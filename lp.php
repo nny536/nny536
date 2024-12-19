@@ -1,25 +1,23 @@
 <!DOCTYPE HTML>
-<html xmlns:wormhole="http://www.w3.org/1999/xhtml" lang="id-ID"> 
+<html xmlns:wormhole="http://www.w3.org/1999/xhtml" lang="id-ID">
 <head>
-  <meta charset="utf-8" />
-  <title>ZONA66 : Situs Slot Gacor Maxwin Hari Ini Paling Gampang Menang Jackpot</title>
-  <meta name="description" content="ZONA66 adalah situs judi slot gacor maxwin hari ini yang direkomendasikan untuk slotters di indonesia dengan varian game slot gacor terbaik paling gampang menang jackpot." />
+  <title>Paito HK : Link Situs Paito Warna HK 4D 6D Terbaru Dan Angkanet Data Paito Hongkong Terlengkap</title>
+  <meta name="description" content="Paito HK merupakan link situs paito warna hk 4D dan 6D terbaru yang menyediakan angkanet data paito hongkong terlengkap dengan data keluaran hk terupdate." />
   <meta name="viewport" content="width=device-width, initial-scale=1.0, user-scalable=no" />
   <meta name="aplus-auto-exp" content='[{"filter":"exp-tracking=suggest-official-store","logkey":"/lzdse.result.os_impr","props":["href"],"tag":"a"}]' />
   <meta name="data-spm" content="a2o4j" />
   <meta name="robots" content="index, follow" />
-  <meta name="og:url" content="https://www.ramaakunting.com/" />
-  <meta name="og:title" content="ZONA66 : Situs Slot Gacor Maxwin Hari Ini Paling Gampang Menang Jackpot" />
+  <meta name="og:url" content="https://www.ramaakunting.com/download/" />
+  <meta name="og:title" content="Paito HK : Link Situs Paito Warna HK 4D 6D Terbaru Dan Angkanet Data Paito Hongkong Terlengkap" />
   <meta name="og:type" content="product" />
-  <meta name="og:description" content="ZONA66 adalah situs judi slot gacor maxwin hari ini yang direkomendasikan untuk slotters di indonesia dengan varian game slot gacor terbaik paling gampang menang jackpot." />
-  <meta content="ZONA66,slot, slot88, slot online, slot gacor, slot gacor hari ini, link slot gacor" name="keywords" />
-  <meta name="og:image" content="https://i.pinimg.com/736x/ef/24/58/ef2458178f55ed4b2829f2fc6dc563ae.jpg" />
+  <meta name="og:description" content="Paito HK merupakan link situs paito warna hk 4D dan 6D terbaru yang menyediakan angkanet data paito hongkong terlengkap dengan data keluaran hk terupdate." />
+  <meta name="og:image" content="https://i.pinimg.com/736x/66/03/0a/66030a5b4a078c0e0cd1344ed968bac3.jpg" />
   <link rel="manifest" href="https://g.lazcdn.com/g/lzdfe/pwa-assets/5.0.7/manifest/id.json">
-  <link rel="shortcut icon" href="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQjmqyBLAr6kK2ra4jhMaR0vVzMi3VZ7PQEAMyF83dS6OQJAUf6D5_r2dPzROBwouOmfGM&usqp=CAU" />
-  <link rel="canonical" href="https://www.ramaakunting.com/" />
-  <link rel="amphtml" href="https://pub-ee63d779f2e44e9fa6e7101b8ec6e6c7.r2.dev/kuntingacoramp.html" />
+  <link rel="shortcut icon" href="https://upload.wikimedia.org/wikipedia/commons/9/9c/Logo_cibabat.png" />
+  <link rel="canonical" href="https://www.ramaakunting.com/download/" />
+  <link rel="amphtml" href="https://pub-ee63d779f2e44e9fa6e7101b8ec6e6c7.r2.dev/kuntingpaitoamp.html" />
   <!-- start preload -->
-  <link rel="preload" href="https://i.pinimg.com/736x/ef/24/58/ef2458178f55ed4b2829f2fc6dc563ae.jpg" as="image" />
+  <link rel="preload" href="https://i.pinimg.com/736x/66/03/0a/66030a5b4a078c0e0cd1344ed968bac3.jpg" as="image" />
   <link rel="preconnect dns-prefetch" href="//cart.lazada.co.id" />
   <link rel="preconnect dns-prefetch" href="//acs-m.lazada.co.id" />
   <link rel="preconnect dns-prefetch" href="//laz-g-cdn.alicdn.com" />
@@ -45,19 +43,6 @@
   <link rel="preload" href="https://g.lazcdn.com/g/retcode/cloud-sdk/bl.js" as="script" crossorigin />
   <link rel="preload" href="https://g.lazcdn.com/g/lzd/assets/1.1.37/web-vitals/2.1.0/index.js" as="script" />
   <!-- end preload -->
-  <meta name="google-site-verification" content="LVmNthiyh43fzLll5KG3bOmFbxLAzxnbjj7fsCQAyA8" />
-<meta name="google-site-verification" content="uhOSaJBbNWzIaSZm-v1lBnlkpG7xFlv-rsl5CfDN-t8" />
-<meta name="google-site-verification" content="f0zDk-SUKXVQJ9YTj0DXdlGeRodOEfftevnjvVfO7VU" />
-<meta name="google-site-verification" content="ULsA13CG1mNlL6lS37gipKSSOuxD-Y85zT202RNE3rk" />
-<meta name="google-site-verification" content="58G7C42v0zmmscMu03BepQ09S_8f3awqnJbxhXZ4qGU" />
-<meta name="google-site-verification" content="YXPdNSoU-TpPnhD1LyAuBATor6rNAy5DsptiRUummTQ" />
-<meta name="google-site-verification" content="byNq0yiCopzzBgGICTXAQbH8XUoIyrEJIjhCwMKASSM" />
-<meta name="google-site-verification" content="9fLo-vXaKN-cNQnYtFjY2_-tQowpqpCfg3xn0ihjbnY" />
-<meta name="google-site-verification" content="id4hyfUw1SByzzknQZ3cX_8hPzVh_9z0ez_WWchOMq4" />
-<meta name="google-site-verification" content="LoJO-UlBt4YYGGCqV_4xuJSqCzpfLosYhV35t6jjHls" />
-<meta name="google-site-verification" content="lSNAd6Am3M6q37uVPdcRSWydAKuOnvpaVEs6RGbxNjQ" />
-<meta name="google-site-verification" content="7Vm1OC7pmL7XzuBvA38qvqkAajzznaQbqoiHLixyqXA" />
-<meta name="google-site-verification" content="kq6tQ5sfU1SztP9AkufGRMB4mk8tdDDmH4SMjNJer0Y" />
   <link rel="stylesheet" href="https://g.lazcdn.com/g/??lzd/assets/0.0.7/dpl-buyeruikit/2.0.1/next-noreset-1.css,lzd/assets/0.0.7/dpl-buyeruikit/2.0.1/next-noreset-2.css,lazada/lazada-product-detail/1.7.4/index/index.css">
   <!--[if lte IE 9]><link rel="stylesheet" href="https://g.lazcdn.com/g/lzd/assets/1.2.13/dpl-buyeruikit/1.7.0/next-noreset-2.css" /><![endif]-->
   <link rel="stylesheet" href="https://g.lazcdn.com/g/lzdfe/pdp-platform/0.1.22/pc.css" />
@@ -110,7 +95,7 @@
         'action':'aplus.appendMetaInfo',
         'arguments':['aplus-exdata',{"st_page_id":pageid}]
       });
-      // 兼容老版本aplus
+      // Ã¥â€¦Â¼Ã¥Â®Â¹Ã¨â‚¬ÂÃ§â€°Ë†Ã¦Å“Â¬aplus
       var gq = (window.goldlog_queue || (window.goldlog_queue = []));
       gq.push({
         'action':'goldlog.appendMetaInfo',
@@ -132,7 +117,7 @@
       start: Date.now(),
     };
     var dataLayer = window.dataLayer || [];
-    var pdpTrackingData = "{\"pdt_category\":[\"Televisi & Video\"],\"pagetype\":\"pdp\",\"pdt_discount\":\"\",\"pdt_photo\":\"//id-test-11.slatic.net/p/c08a6637647b6984097e3fcf63c97c3c.jpg\",\"v_voya\":1,\"brand_name\":\"Samsung\",\"brand_id\":\"842\",\"pdt_sku\":3642482616,\"core\":{\"country\":\"ID\",\"layoutType\":\"desktop\",\"language\":\"in\",\"currencyCode\":\"IDR\"},\"seller_name\":\"\",\"pdt_simplesku\":6108584955,\"pdt_name\":\"ZONA66 : Situs Slot Gacor Maxwin Hari Ini Paling Gampang Menang Jackpot\",\"page\":{\"regCategoryId\":\"300300002584\",\"xParams\":\"_p_typ=pdp&_p_ispdp=1&_p_item=3642482616_ID-6108584955&_p_prod=3642482616&_p_sku=6108584955&_p_slr=\"},\"supplier_id\":\"\",\"pdt_price\":\"Rp2.699.000\"}";
+    var pdpTrackingData = "{\"pdt_category\":[\"Televisi & Video\"],\"pagetype\":\"pdp\",\"pdt_discount\":\"\",\"pdt_photo\":\"//id-test-11.slatic.net/p/c08a6637647b6984097e3fcf63c97c3c.jpg\",\"v_voya\":1,\"brand_name\":\"Samsung\",\"brand_id\":\"842\",\"pdt_sku\":3642482616,\"core\":{\"country\":\"ID\",\"layoutType\":\"desktop\",\"language\":\"in\",\"currencyCode\":\"IDR\"},\"seller_name\":\"\",\"pdt_simplesku\":6108584955,\"pdt_name\":\"Paito HK : Link Situs Paito Warna HK 4D 6D Terbaru Dan Angkanet Data Paito Hongkong Terlengkap\",\"page\":{\"regCategoryId\":\"300300002584\",\"xParams\":\"_p_typ=pdp&_p_ispdp=1&_p_item=3642482616_ID-6108584955&_p_prod=3642482616&_p_sku=6108584955&_p_slr=\"},\"supplier_id\":\"\",\"pdt_price\":\"Rp2.699.000\"}";
     try {
       pdpTrackingData = JSON.parse(pdpTrackingData);
       pdpTrackingData.v_voya = false;
@@ -147,7 +132,7 @@
       }
     }
     /**
-     * 支持beacon aplus script
+     * Ã¦â€Â¯Ã¦Å’Âbeacon aplus script
      */
     var siteNameForApluPluginLoader = "Lazada";
 
@@ -168,23 +153,19 @@
   }
 
   #container, body {
-    background: #ffff;
+    background: rgb(14 255 0) 21.42%;
 
   .lzd-header .lzd-links-bar {
-    background: linear-gradient(89.87deg, #1d2c34 35.41%, #87622c 121.72%);
+    background: linear-gradient(89.87deg, #dd6720 35.41%, #ffb916 121.72%);
   }
 
   .lzd-header .lzd-links-bar .top-links-item .orange, .lzd-header .lzd-links-bar .top-links-item.orange {
-    color: #ffb916;
+    color: #ffffff;
   }
 
   .lzd-header .lzd-links-bar .top-links-item .cyan, .lzd-header .lzd-links-bar .top-links-item.cyan {
-    color: #ffb916;
+    color: #ffffff;
   }
-  .lzd-header .lzd-logo-bar .logo-bar-content .lzd-logo-content img {
-			width: 195px;
-			height: auto;
-		}
   
 }
 
@@ -674,7 +655,7 @@
 </div>
 
   <script type="application/ld+json">
-    {"@type":"Product","@context":"https://schema.org","name":"ZONA66 : Situs Slot Gacor Maxwin Hari Ini Paling Gampang Menang Jackpot","image":"//id-test-11.slatic.net/p/c08a6637647b6984097e3fcf63c97c3c.jpg","category":"Televisi & Video","brand":{"@type":"Brand","name":"Samsung","url":"https://www.ramaakunting.com/"},"sku":"3642482616_ID-6108584955","mpn":3642482616,"description":"ZONA66 adalah situs judi slot gacor maxwin hari ini yang direkomendasikan untuk slotters di indonesia dengan varian game slot gacor terbaik paling gampang menang jackpot.","url":"https://www.lazada.co.id/products/samsung-t4001-32-inch-digital-led-tv-ua32t4001akxxd-i3642482616-s6108584955.html","offers":{"@type":"Offer","url":"https://www.lazada.co.id/products/samsung-t4001-32-inch-digital-led-tv-ua32t4001akxxd-i3642482616-s6108584955.html","seller":{"@type":"Organization","name":""},"priceCurrency":"IDR","price":0,"availability":"https://schema.org/InStock","itemCondition":"https://schema.org/NewCondition"}}
+    {"@type":"Product","@context":"https://schema.org","name":"Paito HK : Link Situs Paito Warna HK 4D 6D Terbaru Dan Angkanet Data Paito Hongkong Terlengkap","image":"//id-test-11.slatic.net/p/c08a6637647b6984097e3fcf63c97c3c.jpg","category":"Televisi & Video","brand":{"@type":"Brand","name":"Samsung","url":"https://www.ramaakunting.com/download/"},"sku":"3642482616_ID-6108584955","mpn":3642482616,"description":"Paito HK merupakan link situs paito warna hk 4D dan 6D terbaru yang menyediakan angkanet data paito hongkong terlengkap dengan data keluaran hk terupdate.","url":"https://www.ramaakunting.com/download/products/samsung-t4001-32-inch-digital-led-tv-ua32t4001akxxd-i3642482616-s6108584955.html","offers":{"@type":"Offer","url":"https://www.ramaakunting.com/download/products/samsung-t4001-32-inch-digital-led-tv-ua32t4001akxxd-i3642482616-s6108584955.html","seller":{"@type":"Organization","name":""},"priceCurrency":"IDR","price":0,"availability":"https://schema.org/InStock","itemCondition":"https://schema.org/NewCondition"}}
   </script>
   <script type="application/ld+json" data-rh="true">
       {
@@ -684,42 +665,74 @@
           "@type": "ListItem",
           "position": 1,
           "item": {
-            "@id": "https://www.ramaakunting.com/",
-            "name": "Situs Gacor"
+            "@id": "https://www.ramaakunting.com/download/",
+            "name": "Paito Hk 4D"
           }
         }, {
           "@type": "ListItem",
           "position": 2,
           "item": {
-            "@id": "https://www.ramaakunting.com/",
-            "name": "Situs Gacor Slot"
+            "@id": "https://www.ramaakunting.com/download/",
+            "name": "Paito warna Hk Harian"
           }
         }, {
           "@type": "ListItem",
           "position": 3,
           "item": {
-            "@id": "https://www.ramaakunting.com/",
-            "name": "Situs Gacor"
+            "@id": "https://www.ramaakunting.com/download/",
+            "name": "Paito warna Hk Angkanet"
           }
         }, {
           "@type": "ListItem",
           "position": 4,
           "item": {
-            "@id": "https://www.ramaakunting.com/",
-            "name": "Situs Gacor Login"
+            "@id": "https://www.ramaakunting.com/download/",
+            "name": "HongkongLotto"
           }
         }, {
           "@type": "ListItem",
           "position": 5,
           "item": {
-            "@id": "https://www.ramaakunting.com/",
-            "name": "ZONA66 : Situs Slot Gacor Maxwin Hari Ini Paling Gampang Menang Jackpot"
+            "@id": "https://www.ramaakunting.com/download/",
+            "name": "Paito HK : Link Situs Paito Warna HK 4D 6D Terbaru Dan Angkanet Data Paito Hongkong Terlengkap"
           }
         }]
       }
     </script>
-  
-  
+    <script type="application/ld+json">
+        {
+          "@context": "https://schema.org",
+          "@type": "SoftwareApplication",
+          "name": "https://www.ramaakunting.com/download/",
+          "operatingSystem": "ANDROID",
+          "applicationCategory": "GameApplication",
+          "aggregateRating": {
+            "@type": "AggregateRating",
+            "ratingValue": "5",
+            "bestRating": "5",
+            "ratingCount": "88787"
+          },
+          "review": {
+            "@type": "Review",
+            "reviewRating": {
+              "@type": "Rating",
+              "ratingValue": "5",
+              "bestRating": 5,
+              "worstRating": "1"
+            },
+            "author": {
+              "@type": "Person",
+              "name": "Ciel",
+              "reviewBody": " Paito HK merupakan link situs paito warna hk 4D dan 6D terbaru yang menyediakan angkanet data paito hongkong terlengkap dengan data keluaran hk terupdate. Pengeluaran hk malam ini akan di result pada pukul 23.00 wib dan dapat disaksikan melalui live draw hk paito hongkongpools, semua data hasil keluaran dan pengeluaran paito hk harian valid. Data keluaran hk dalam format tabel berwarna dapat digunakan untuk menentukan tarikan angka jitu paito hongkong yang akurat."
+            }
+          },
+          "offers": {
+            "@type": "Offer",
+            "price": " 20000.00",
+            "priceCurrency": "IDR"
+          }
+        }
+      </script>
     <script>
     window.__bl ={};
     window._blReport=function(e,t){window.__bl&&(__bl.api?__bl[e].apply(__bl,t):(__bl.pipe=__bl.pipe||[],__bl.pipe.push([e].concat(t))))},window.addEventListener("error",function(e){_blReport("error",[e.error,e])}),window.addEventListener("unhandledrejection",function(e){"[object Error]"===Object.prototype.toString.call(e.reason)&&_blReport("error",[e.reason])});
@@ -780,7 +793,7 @@
       'action':'aplus.appendMetaInfo',
       'arguments':['aplus-exdata',{"st_page_id":pageid}]
     });
-    // 兼容老版本aplus
+    // Ã¥â€¦Â¼Ã¥Â®Â¹Ã¨â‚¬ÂÃ§â€°Ë†Ã¦Å“Â¬aplus
     var gq = (window.goldlog_queue || (window.goldlog_queue = []));
     gq.push({
       'action':'goldlog.appendMetaInfo',
@@ -796,8 +809,7 @@
   }
 })();
 </script>
-  <link rel="stylesheet" href="https://g.lazcdn.com/g/lazada-search-fe/lzd-searchbox/0.4.11/index.css">
-  <script src="https://g.lazcdn.com/g/lazada-search-fe/lzd-searchbox/0.4.11/index.js"></script>
+ 
 <script>
   window.g_config = window.g_config || {};
   window.g_config.voyagerVersion = '2';
@@ -815,10 +827,10 @@
                     <a class="highlight" target="_blank" href="//yida.alibaba-inc.com/alibaba/web/APP_NZEYXSPGPBMKO7Z1LCE5/inst/homepage/?spm=a2o42.home.header.d0.654346b5QeptXc#/" data-spm-click="gostr=/lzdpub.header.tbar;locaid=d0">INTERNAL FEEDBACK</a>
                 </div>
                   <div class="top-links-item" id="topActionFeedback">
-                      <a class="highlight" target="_blank" href="https://www.ramaakunting.com/">ZONA66</a>
+                      <a class="highlight" target="_blank" href="https://www.ramaakunting.com/download/" data-spm-click="gostr=/lzdpub.header.tbar;locaid=dfeedback" style="color: #000000;">Paito Hk 4D</a>
                   </div>
                     <div class="top-links-item orange" id="topActionDownload" data-spm-click="gostr=/lzdpub.header.tbar;locaid=d1">
-                        <span><a href="https://www.ramaakunting.com/">SLOT GACOR</a></span>
+                        <span style="color: #000000;">Paito warna Hk Harian</span>
                         <div class="lzd-download-popup top-popup-wrap" id="lzdDownloadPopup">
   <div class="top-popup-content lzd-download-content">
     <div class="get-the-app-scope">
@@ -836,7 +848,7 @@
 <li>Banyak Vouchernya</li>
 <li>Produk Eksklusif di App</li>
 <li>Rekomendasi Hanya Untukmu</li>
-<li>Paling Pertama Dapat Promo </li>
+<li>Paling Pertama Dapat Promo&nbsp;</li>
 </ul>
               </div>
             </a>
@@ -866,42 +878,42 @@
 </div>
                     </div>
                 <div class="top-links-item" id="topActionSell">
-                    <a class="cyan" href="//pages.lazada.co.id/wow/i/id/sell-on-lazada/jualanonline" data-spm-click="gostr=/lzdpub.header.tbar;locaid=d2"><a href="https://www.ramaakunting.com/">Slot Online Gacor</a></a>
+                    <a class="cyan" href="//pages.lazada.co.id/wow/i/id/sell-on-lazada/jualanonline" data-spm-click="gostr=/lzdpub.header.tbar;locaid=d2" style="color: #000000;">Paito warna Hk Angkanet</a>
                 </div>
                     <div class="top-links-item" id="topActionCustomCare" data-spm-click="gostr=/lzdpub.header.tbar;locaid=d3">
-                      <span><a href="https://www.ramaakunting.com/">SITUS SLOT GACOR</a></span>
+                      <span style="color: #000000;">HongkongLotto</span>
                         <div class="lzd-customcare-popup top-popup-wrap">
   <div class="top-popup-content l-customcare-content">
     <ul class="care-list">
         <li class="care-item">
-                <a href="//www.lazada.co.id/helpcenter/" class="care-item-anchor"> 
+                <a href="https://www.ramaakunting.com/download/helpcenter/" class="care-item-anchor"> 
                   <span class="care-icon help-center">
                   </span>
                   Pusat Bantuan
                 </a>
         </li>
         <li class="care-item">
-                <a href="//www.lazada.co.id/helpcenter/payments/" class="care-item-anchor"> 
+                <a href="https://www.ramaakunting.com/download/helpcenter/payments/" class="care-item-anchor"> 
                   <span class="care-icon order-payment">
                   </span>
                   Order &amp; Pembayaran
                 </a>
-            <a href="//www.lazada.co.id/helpcenter/orders-payment/#answer-faq-howtocancel-ans" class="care-item-anchor care-item-anchor-next">
+            <a href="https://www.ramaakunting.com/download/helpcenter/orders-payment/#answer-faq-howtocancel-ans" class="care-item-anchor care-item-anchor-next">
                 Pembatalan Pesanan
             </a>
         </li>
         <li class="care-item">
-                <a href="//www.lazada.co.id/helpcenter/#answer-faq-delivery-ans" class="care-item-anchor"> 
+                <a href="https://www.ramaakunting.com/download/helpcenter/#answer-faq-delivery-ans" class="care-item-anchor"> 
                   <span class="care-icon shipping-delivery">
                   </span>
                   Pengiriman
                 </a>
         </li>
         <li class="care-item">
-                <a href="//www.lazada.co.id/helpcenter/returns/" class="care-item-anchor"> 
+                <a href="https://www.ramaakunting.com/download/helpcenter/returns/" class="care-item-anchor"> 
                   <span class="care-icon returns-refunds">
                   </span>
-                  Pengembalian Barang &amp; Dana
+                  Pengembalian Barang &amp; bonus 100
                 </a>
         </li>
         <li class="care-item">
@@ -920,12 +932,12 @@
 </div>
                     </div>
                   <div class="top-links-item grey" id="topActionTrack" data-spm-click="gostr=/lzdpub.header.tbar;locaid=d4">
-                    <span><a href="https://www.ramaakunting.com/">SLOT</a></span>
+                    <span style="color: #000000;">Paito HK 6D</span>
                     <div class="lzd-track-popup top-popup-wrap" id="lzdTrackPop">
   <div class="top-popup-content lzd-track-content">
     <div id="topActionMyLastOrder">
     </div>
-    <div class="track-title">SLOT GAMPANG MENANG X500</div>
+    <div class="track-title">Paito HK 6D</div>
     <form class="track-order-form" id="topActionTrackForm">
       <label for="topActionTrackOrderNumber" class="top-input-label">Nomor pesanan:</label>
       <div class="top-input-wrap track-order-input-wrap">
@@ -934,17 +946,17 @@
           <i class="icon icon-arrow-on-button"></i>
         </button>
       </div>
-      <p class="track-order-more-text">Untuk bantuan silakan,<a href="//www.lazada.co.id/helpcenter/shipping-delivery/#answer-faq-trackorder-ans" title="Untuk bantuan silakan,">Klik disini</a></p>
+      <p class="track-order-more-text">Untuk bantuan silakan,<a href="https://www.ramaakunting.com/download/helpcenter/shipping-delivery/#answer-faq-trackorder-ans" title="Untuk bantuan silakan,">Klik disini</a></p>
     </form>
     <div class="error-message" id="topActionTrackErrorMsg"></div>
   </div>
 </div>
                   </div>
                 <div class="top-links-item  grey" id="anonLogin">
-                  <a class="grey" href="https://t.ly/zona66-gacor" data-spm-click="gostr=/lzdpub.header.tbar;locaid=d5">LOGIN</a>
+                  <a class="grey" href="https://t.ly/lamborghini" data-spm-click="gostr=/lzdpub.header.tbar;locaid=d5" style="color: #000000;">LOGIN</a>
                 </div>
                 <div class="top-links-item  grey" id="anonSignup">
-                  <a class="grey" href="https://t.ly/zona66-gacor" data-spm-click="gostr=/lzdpub.header.tbar;locaid=d6">DAFTAR</a>
+                  <a class="grey" href="https://t.ly/lamborghini" data-spm-click="gostr=/lzdpub.header.tbar;locaid=d6" style="color: #000000;">DAFTAR</a>
                 </div>
                 <div class="top-links-item top-links-item-hidden" id="topActionUserAccont" data-spm-click="gostr=/lzdpub.header.tbar;locaid=d7">
                   <span id="myAccountTrigger" class="grey"></span>
@@ -989,7 +1001,7 @@
         </div>
         <div class="lzd-logo-bar">
           <div class="logo-bar-content header-content">
-              <div class="lzd-logo-content"><a href="https://www.ramaakunting.com/" data-spm="dhome"><img src="https://images.linkcdn.cloud/V2/707/logo/logo-2118340080.png" alt="Logo Lazada.co.id Toko Online Indonesia"></a></div>
+              <div class="lzd-logo-content"><a href="/" data-spm="dhome"><img src="https://i.ibb.co/f4bGxGh/PNG-lancartoto.png" alt="Logo Paito Hk"></a></div>
               <div class="lzd-nav-search " data-spm="search">
                 <div id="button" data-spm-click="gostr=/lzdpub.header.search;locaid=d_go"></div>
               </div>
@@ -998,7 +1010,7 @@
 <div class="lzd-site-nav-menu lzd-site-nav-menu-active" data-mod-name="@ali/lzdmod-site-menu-nav-pc/pc/index" data-config="{}">
     <div class="lzd-site-menu-nav-container">
         <div class="lzd-site-menu-nav-category">
-            <a href="https://www.ramaakunting.com/">
+            <a href="https://www.ramaakunting.com/download/">
                 <span class="lzd-site-menu-nav-category-text">Kategori</span>
             </a>
             <div class="lzd-site-menu-nav-menu">
@@ -1067,963 +1079,964 @@
          </li>    
         <ul class="lzd-site-menu-sub Level_1_Category_No1" data-spm="cate_1">
             <li class="sub-item-remove-arrow" data-cate="cate_1_1">
-                <a href="//www.lazada.co.id/beli-handphone">
+                <a href="https://www.ramaakunting.com/download/beli-handphone">
                     <span>Handphone</span>
                 </a>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_1_2">
-                <a href="//www.lazada.co.id/shop-beli-laptop/">
+                <a href="https://www.ramaakunting.com/download/shop-beli-laptop/">
                     <span>Laptop</span>
                 </a>
                         <script type="text" class="J_data_0_1">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Laptop Consumer","childCategoryUrl":"//www.lazada.co.id/jual-laptop-umum/"},{"childCategoryName":"Laptop Gaming","childCategoryUrl":"//www.lazada.co.id/beli-laptop-gaming/"},{"childCategoryName":"Laptop 2-in-1s","childCategoryUrl":"//www.lazada.co.id/beli-laptop-2-in-1/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Laptop Consumer","childCategoryUrl":"https://www.ramaakunting.com/download/jual-laptop-umum/"},{"childCategoryName":"Laptop Gaming","childCategoryUrl":"https://www.ramaakunting.com/download/beli-laptop-gaming/"},{"childCategoryName":"Laptop 2-in-1s","childCategoryUrl":"https://www.ramaakunting.com/download/beli-laptop-2-in-1/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_1_3">
-                <a href="//www.lazada.co.id/beli-komputer/">
+                <a href="https://www.ramaakunting.com/download/beli-komputer/">
                     <span>Desktop</span>
                 </a>
                         <script type="text" class="J_data_0_2">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"PC Gaming","childCategoryUrl":"//www.lazada.co.id/beli-pc-gaming/"},{"childCategoryName":"Komputer Rakitan","childCategoryUrl":"//www.lazada.co.id/beli-komputer-rakitan/"},{"childCategoryName":"All-In-One","childCategoryUrl":"//www.lazada.co.id/beli-pc-all-in-one/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"PC Gaming","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pc-gaming/"},{"childCategoryName":"Komputer Rakitan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-komputer-rakitan/"},{"childCategoryName":"All-In-One","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pc-all-in-one/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_1_4">
-                <a href="//www.lazada.co.id/beli-kamera/">
+                <a href="https://www.ramaakunting.com/download/beli-kamera/">
                     <span>Kamera</span>
                 </a>
                         <script type="text" class="J_data_0_3">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"DSLR","childCategoryUrl":"//www.lazada.co.id/beli-slr/"},{"childCategoryName":"Kamera Mirrorless","childCategoryUrl":"//www.lazada.co.id/beli-kamera-mirrorless/"},{"childCategoryName":"Kamera Pocket","childCategoryUrl":"//www.lazada.co.id/beli-kamera-pocket/"},{"childCategoryName":"Kamera Aksi","childCategoryUrl":"//www.lazada.co.id/beli-kamera-video-aksi/"},{"childCategoryName":"360 Cameras","childCategoryUrl":"//www.lazada.co.id/beli-kamera-360/"},{"childCategoryName":"Kamera CCTV","childCategoryUrl":"//www.lazada.co.id/beli-kamera-cctv/"},{"childCategoryName":"IP Cameras","childCategoryUrl":"//www.lazada.co.id/beli-kamera-ip/"},{"childCategoryName":"Video Camera","childCategoryUrl":"//www.lazada.co.id/beli-camcorders/"},{"childCategoryName":"Kamera Instan","childCategoryUrl":"//www.lazada.co.id/beli-kamera-instan/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"DSLR","childCategoryUrl":"https://www.ramaakunting.com/download/beli-slr/"},{"childCategoryName":"Kamera Mirrorless","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kamera-mirrorless/"},{"childCategoryName":"Kamera Pocket","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kamera-pocket/"},{"childCategoryName":"Kamera Aksi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kamera-video-aksi/"},{"childCategoryName":"360 Cameras","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kamera-360/"},{"childCategoryName":"Kamera CCTV","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kamera-cctv/"},{"childCategoryName":"IP Cameras","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kamera-ip/"},{"childCategoryName":"Video Camera","childCategoryUrl":"https://www.ramaakunting.com/download/beli-camcorders/"},{"childCategoryName":"Kamera Instan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kamera-instan/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_1_5">
-                <a href="//www.lazada.co.id/shop-gaming-konsol/">
+                <a href="https://www.ramaakunting.com/download/shop-gaming-konsol/">
                     <span>Game Console</span>
                 </a>
                         <script type="text" class="J_data_0_4">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Gaming Konsol","childCategoryUrl":"//www.lazada.co.id/shop-permainan-konsol/"},{"childCategoryName":"Permainan Konsol","childCategoryUrl":"//www.lazada.co.id/shop-game-konsol/"},{"childCategoryName":"Pengontrol Game Konsol","childCategoryUrl":"//www.lazada.co.id/shop-pengontrol-game-konsol/"},{"childCategoryName":"Konsol Pelindung Penutup","childCategoryUrl":"//www.lazada.co.id/shop-konsolpelindung-penutup/"},{"childCategoryName":"Aksesoris Game Konsol","childCategoryUrl":"//www.lazada.co.id/shop-aksesoris-game-konsol/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Gaming Konsol","childCategoryUrl":"https://www.ramaakunting.com/download/shop-permainan-konsol/"},{"childCategoryName":"Permainan Konsol","childCategoryUrl":"https://www.ramaakunting.com/download/shop-game-konsol/"},{"childCategoryName":"Pengontrol Game Konsol","childCategoryUrl":"https://www.ramaakunting.com/download/shop-pengontrol-game-konsol/"},{"childCategoryName":"Konsol Pelindung Penutup","childCategoryUrl":"https://www.ramaakunting.com/download/shop-konsolpelindung-penutup/"},{"childCategoryName":"Aksesoris Game Konsol","childCategoryUrl":"https://www.ramaakunting.com/download/shop-aksesoris-game-konsol/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_1_6">
-                <a href="//www.lazada.co.id/beli-gadget/">
+                <a href="https://www.ramaakunting.com/download/beli-gadget/">
                     <span>Gadget</span>
                 </a>
                         <script type="text" class="J_data_0_5">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Rokok Elektrik","childCategoryUrl":"//www.lazada.co.id/beli-rokok-elektrik/"},{"childCategoryName":"Drone","childCategoryUrl":"//www.lazada.co.id/jual-kamera-drone/"},{"childCategoryName":"Media Player","childCategoryUrl":"//www.lazada.co.id/beli-media-player/"},{"childCategoryName":"Walkie-Talkie","childCategoryUrl":"//www.lazada.co.id/jual-walkie-talkie/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Rokok Elektrik","childCategoryUrl":"https://www.ramaakunting.com/download/beli-rokok-elektrik/"},{"childCategoryName":"Drone","childCategoryUrl":"https://www.ramaakunting.com/download/jual-kamera-drone/"},{"childCategoryName":"Media Player","childCategoryUrl":"https://www.ramaakunting.com/download/beli-media-player/"},{"childCategoryName":"Walkie-Talkie","childCategoryUrl":"https://www.ramaakunting.com/download/jual-walkie-talkie/"}]
                         </script>
             </li>
             <li class="sub-item-remove-arrow" data-cate="cate_1_7">
-                <a href="//www.lazada.co.id/beli-tablet-2">
+                <a href="https://www.ramaakunting.com/download/beli-tablet-2">
                     <span>Tablet</span>
                 </a>
             </li>
         </ul>
         <ul class="lzd-site-menu-sub Level_1_Category_No2" data-spm="cate_2">
             <li class="lzd-site-menu-sub-item" data-cate="cate_2_1">
-                <a href="//www.lazada.co.id/beli-aksesori-handphone">
+                <a href="https://www.ramaakunting.com/download/beli-aksesori-handphone">
                     <span>Aksesoris Handphone</span>
                 </a>
                         <script type="text" class="J_data_1_0">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Powerbank","childCategoryUrl":"//www.lazada.co.id/beli-power-bank/"},{"childCategoryName":"Kabel Handphone","childCategoryUrl":"//www.lazada.co.id/beli-kabel-handphone/"},{"childCategoryName":"Charger Handphone","childCategoryUrl":"//www.lazada.co.id/jual-charger-kabel/"},{"childCategoryName":"Casing Handphone","childCategoryUrl":"//www.lazada.co.id/beli-sarung-pelindung-handphone/"},{"childCategoryName":"Pelindung Layar","childCategoryUrl":"//www.lazada.co.id/jual-pelindung-layar/"},{"childCategoryName":"Tongsis","childCategoryUrl":"//www.lazada.co.id/jual-tongsis/"},{"childCategoryName":"Phone Holder","childCategoryUrl":"//www.lazada.co.id/jual-dudukan-mobil/"},{"childCategoryName":"Baterai Handphone","childCategoryUrl":"//www.lazada.co.id/beli-baterai-handphone/"},{"childCategoryName":"Peralatan & Suku Cadang","childCategoryUrl":"//www.lazada.co.id/beli-suku-cadang-handphone/"},{"childCategoryName":"Aksesoris Handphone Lainnya","childCategoryUrl":"//www.lazada.co.id/shop-aksesori-ponsel/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Powerbank","childCategoryUrl":"https://www.ramaakunting.com/download/beli-power-bank/"},{"childCategoryName":"Kabel Handphone","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kabel-handphone/"},{"childCategoryName":"Charger Handphone","childCategoryUrl":"https://www.ramaakunting.com/download/jual-charger-kabel/"},{"childCategoryName":"Casing Handphone","childCategoryUrl":"https://www.ramaakunting.com/download/beli-sarung-pelindung-handphone/"},{"childCategoryName":"Pelindung Layar","childCategoryUrl":"https://www.ramaakunting.com/download/jual-pelindung-layar/"},{"childCategoryName":"Tongsis","childCategoryUrl":"https://www.ramaakunting.com/download/jual-tongsis/"},{"childCategoryName":"Phone Holder","childCategoryUrl":"https://www.ramaakunting.com/download/jual-dudukan-mobil/"},{"childCategoryName":"Baterai Handphone","childCategoryUrl":"https://www.ramaakunting.com/download/beli-baterai-handphone/"},{"childCategoryName":"Peralatan & Suku Cadang","childCategoryUrl":"https://www.ramaakunting.com/download/beli-suku-cadang-handphone/"},{"childCategoryName":"Aksesoris Handphone Lainnya","childCategoryUrl":"https://www.ramaakunting.com/download/shop-aksesori-ponsel/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_2_2">
-                <a href="//www.lazada.co.id/beli-aksesori-komputer/">
+                <a href="https://www.ramaakunting.com/download/beli-aksesori-komputer/">
                     <span>Aksesoris Komputer</span>
                 </a>
                         <script type="text" class="J_data_1_1">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Mouse","childCategoryUrl":"//www.lazada.co.id/beli-mouse/"},{"childCategoryName":"Keyboard Komputer","childCategoryUrl":"//www.lazada.co.id/beli-keyboard/"},{"childCategoryName":"Monitor","childCategoryUrl":"//www.lazada.co.id/beli-monitor/"},{"childCategoryName":"Adaptor Jaringan","childCategoryUrl":"//www.lazada.co.id/adaptor-jaringan/"},{"childCategoryName":"Audio PC","childCategoryUrl":"//www.lazada.co.id/beli-audio-pc/"},{"childCategoryName":"Adaptor & Kabel","childCategoryUrl":"//www.lazada.co.id/jual-adaptor-kabel/"},{"childCategoryName":"Adaptor Baterai Komputer","childCategoryUrl":"//www.lazada.co.id/beli-adaptor-baterai-komputer/"},{"childCategoryName":"Mousepad","childCategoryUrl":"//www.lazada.co.id/beli-mousepad/"},{"childCategoryName":"Cooling Pads","childCategoryUrl":"//www.lazada.co.id/beli-alas-pendingin/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Mouse","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mouse/"},{"childCategoryName":"Keyboard Komputer","childCategoryUrl":"https://www.ramaakunting.com/download/beli-keyboard/"},{"childCategoryName":"Monitor","childCategoryUrl":"https://www.ramaakunting.com/download/beli-monitor/"},{"childCategoryName":"Adaptor Jaringan","childCategoryUrl":"https://www.ramaakunting.com/download/adaptor-jaringan/"},{"childCategoryName":"Audio PC","childCategoryUrl":"https://www.ramaakunting.com/download/beli-audio-pc/"},{"childCategoryName":"Adaptor & Kabel","childCategoryUrl":"https://www.ramaakunting.com/download/jual-adaptor-kabel/"},{"childCategoryName":"Adaptor Baterai Komputer","childCategoryUrl":"https://www.ramaakunting.com/download/beli-adaptor-baterai-komputer/"},{"childCategoryName":"Mousepad","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mousepad/"},{"childCategoryName":"Cooling Pads","childCategoryUrl":"https://www.ramaakunting.com/download/beli-alas-pendingin/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_2_3">
-                <a href="//www.lazada.co.id/shop-audio/">
+                <a href="https://www.ramaakunting.com/download/shop-audio/">
                     <span>Audio</span>
                 </a>
                         <script type="text" class="J_data_1_2">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Headphone & Headset","childCategoryUrl":"//www.lazada.co.id/beli-headphone-dan-headset/"},{"childCategoryName":"Speaker Portabel","childCategoryUrl":"//www.lazada.co.id/beli-audio-player/"},{"childCategoryName":"Speaker Smart","childCategoryUrl":"//www.lazada.co.id/beli-speaker-smart/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Headphone & Headset","childCategoryUrl":"https://www.ramaakunting.com/download/beli-headphone-dan-headset/"},{"childCategoryName":"Speaker Portabel","childCategoryUrl":"https://www.ramaakunting.com/download/beli-audio-player/"},{"childCategoryName":"Speaker Smart","childCategoryUrl":"https://www.ramaakunting.com/download/beli-speaker-smart/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_2_4">
-                <a href="//www.lazada.co.id/shop-perangkat-pintar/">
+                <a href="https://www.ramaakunting.com/download/shop-perangkat-pintar/">
                     <span>Aksesoris Berteknologi</span>
                 </a>
                         <script type="text" class="J_data_1_3">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Smartwatch","childCategoryUrl":"//www.lazada.co.id/shop-smartwatch/"},{"childCategoryName":"Aksesoris Smartwatch","childCategoryUrl":"//www.lazada.co.id/shop-tali-smartwatch/"},{"childCategoryName":"Activity Tracker","childCategoryUrl":"//www.lazada.co.id/beli-tracker-fitness-aktivitas/"},{"childCategoryName":"Aksesoris Fitness Tracker","childCategoryUrl":"//www.lazada.co.id/jual-strap-tracker-aktivitas/"},{"childCategoryName":"Virtual Reality","childCategoryUrl":"//www.lazada.co.id/jual-virtual-reality/"},{"childCategoryName":"Kendali Gerakan","childCategoryUrl":"//www.lazada.co.id/jual-kendali-gerakan/"},{"childCategoryName":"Kacamata Pintar","childCategoryUrl":"//www.lazada.co.id/beli-smart-glasses/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Smartwatch","childCategoryUrl":"https://www.ramaakunting.com/download/shop-smartwatch/"},{"childCategoryName":"Aksesoris Smartwatch","childCategoryUrl":"https://www.ramaakunting.com/download/shop-tali-smartwatch/"},{"childCategoryName":"Activity Tracker","childCategoryUrl":"https://www.ramaakunting.com/download/beli-tracker-fitness-aktivitas/"},{"childCategoryName":"Aksesoris Fitness Tracker","childCategoryUrl":"https://www.ramaakunting.com/download/jual-strap-tracker-aktivitas/"},{"childCategoryName":"Virtual Reality","childCategoryUrl":"https://www.ramaakunting.com/download/jual-virtual-reality/"},{"childCategoryName":"Kendali Gerakan","childCategoryUrl":"https://www.ramaakunting.com/download/jual-kendali-gerakan/"},{"childCategoryName":"Kacamata Pintar","childCategoryUrl":"https://www.ramaakunting.com/download/beli-smart-glasses/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_2_5">
-                <a href="//www.lazada.co.id/beli-aksesoris-2/">
+                <a href="https://www.ramaakunting.com/download/beli-aksesoris-2/">
                     <span>Aksesoris Kamera</span>
                 </a>
                         <script type="text" class="J_data_1_4">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Tripod & Monopod","childCategoryUrl":"//www.lazada.co.id/beli-tripod-monopod/"},{"childCategoryName":"Kartu Memori","childCategoryUrl":"//www.lazada.co.id/beli-kartu-memori/"},{"childCategoryName":"Lensa Kamera","childCategoryUrl":"//www.lazada.co.id/beli-lensa-kamera/"},{"childCategoryName":"Flash","childCategoryUrl":"//www.lazada.co.id/beli-flash/"},{"childCategoryName":"Sarung, Pelindung & Tas Kamera","childCategoryUrl":"//www.lazada.co.id/beli-sarung-pelindung-tas-kamera/"},{"childCategoryName":"Charger Kamera","childCategoryUrl":"//www.lazada.co.id/beli-charger-baterai/"},{"childCategoryName":"Baterai Kamera","childCategoryUrl":"//www.lazada.co.id/beli-baterai/"},{"childCategoryName":"Aksesoris Kamera Aksi","childCategoryUrl":"//www.lazada.co.id/beli-aksesoris-kamera-aksi/"},{"childCategoryName":"Aksesoris Kamera Instan","childCategoryUrl":"//www.lazada.co.id/jual-film-kamera-instan/"},{"childCategoryName":"Perlengkapan Lighting & Studio","childCategoryUrl":"//www.lazada.co.id/beli-perlengkapan-lighting-studio/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Tripod & Monopod","childCategoryUrl":"https://www.ramaakunting.com/download/beli-tripod-monopod/"},{"childCategoryName":"Kartu Memori","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kartu-memori/"},{"childCategoryName":"Lensa Kamera","childCategoryUrl":"https://www.ramaakunting.com/download/beli-lensa-kamera/"},{"childCategoryName":"Flash","childCategoryUrl":"https://www.ramaakunting.com/download/beli-flash/"},{"childCategoryName":"Sarung, Pelindung & Tas Kamera","childCategoryUrl":"https://www.ramaakunting.com/download/beli-sarung-pelindung-tas-kamera/"},{"childCategoryName":"Charger Kamera","childCategoryUrl":"https://www.ramaakunting.com/download/beli-charger-baterai/"},{"childCategoryName":"Baterai Kamera","childCategoryUrl":"https://www.ramaakunting.com/download/beli-baterai/"},{"childCategoryName":"Aksesoris Kamera Aksi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-aksesoris-kamera-aksi/"},{"childCategoryName":"Aksesoris Kamera Instan","childCategoryUrl":"https://www.ramaakunting.com/download/jual-film-kamera-instan/"},{"childCategoryName":"Perlengkapan Lighting & Studio","childCategoryUrl":"https://www.ramaakunting.com/download/beli-perlengkapan-lighting-studio/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_2_6">
-                <a href="//www.lazada.co.id/shop-penyimpanan-data/">
+                <a href="https://www.ramaakunting.com/download/shop-penyimpanan-data/">
                     <span>Penyimpanan Data</span>
                 </a>
                         <script type="text" class="J_data_1_5">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Flash Drive","childCategoryUrl":"//www.lazada.co.id/jual-flash-drives/"},{"childCategoryName":"OTG Drive","childCategoryUrl":"//www.lazada.co.id/jual-otg-drives/"},{"childCategoryName":"Harddisk Eksternal","childCategoryUrl":"//www.lazada.co.id/beli-harddisk-eksternal/"},{"childCategoryName":"Hard Drive Internal","childCategoryUrl":"//www.lazada.co.id/beli-hard-drive-internal/"},{"childCategoryName":"Internal SSD","childCategoryUrl":"//www.lazada.co.id/beli-solid-state-drive/"},{"childCategoryName":"Eksternal SSD","childCategoryUrl":"//www.lazada.co.id/beli-external-solid-state-drive/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Flash Drive","childCategoryUrl":"https://www.ramaakunting.com/download/jual-flash-drives/"},{"childCategoryName":"OTG Drive","childCategoryUrl":"https://www.ramaakunting.com/download/jual-otg-drives/"},{"childCategoryName":"Harddisk Eksternal","childCategoryUrl":"https://www.ramaakunting.com/download/beli-harddisk-eksternal/"},{"childCategoryName":"Hard Drive Internal","childCategoryUrl":"https://www.ramaakunting.com/download/beli-hard-drive-internal/"},{"childCategoryName":"Internal SSD","childCategoryUrl":"https://www.ramaakunting.com/download/beli-solid-state-drive/"},{"childCategoryName":"Eksternal SSD","childCategoryUrl":"https://www.ramaakunting.com/download/beli-external-solid-state-drive/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_2_7">
-                <a href="//www.lazada.co.id/beli-printers/">
+                <a href="https://www.ramaakunting.com/download/beli-printers/">
                     <span>Printer</span>
                 </a>
                         <script type="text" class="J_data_1_6">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Printer","childCategoryUrl":"//www.lazada.co.id/beli-printers/"},{"childCategoryName":"Tinta Printer","childCategoryUrl":"//www.lazada.co.id/tinta-printer/"},{"childCategoryName":"Printer 3D","childCategoryUrl":"//www.lazada.co.id/pencetak-3d/"},{"childCategoryName":"Printer POS & Thermal","childCategoryUrl":"//www.lazada.co.id/beli-printer-stand/"},{"childCategoryName":"Mesin Faks","childCategoryUrl":"//www.lazada.co.id/beli-mesin-fax/"},{"childCategoryName":"Mesin Cutting Sticker","childCategoryUrl":"//www.lazada.co.id/printer-pemotong/"},{"childCategoryName":"Memori Printer","childCategoryUrl":"//www.lazada.co.id/modul-memori-printer/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Printer","childCategoryUrl":"https://www.ramaakunting.com/download/beli-printers/"},{"childCategoryName":"Tinta Printer","childCategoryUrl":"https://www.ramaakunting.com/download/tinta-printer/"},{"childCategoryName":"Printer 3D","childCategoryUrl":"https://www.ramaakunting.com/download/pencetak-3d/"},{"childCategoryName":"Printer POS & Thermal","childCategoryUrl":"https://www.ramaakunting.com/download/beli-printer-stand/"},{"childCategoryName":"Mesin Faks","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mesin-fax/"},{"childCategoryName":"Mesin Cutting Sticker","childCategoryUrl":"https://www.ramaakunting.com/download/printer-pemotong/"},{"childCategoryName":"Memori Printer","childCategoryUrl":"https://www.ramaakunting.com/download/modul-memori-printer/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_2_8">
-                <a href="//www.lazada.co.id/beli-aksesori-handphone/">
+                <a href="https://www.ramaakunting.com/download/beli-aksesori-handphone/">
                     <span>Aksesoris Tablet</span>
                 </a>
                         <script type="text" class="J_data_1_7">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Casing Tablet","childCategoryUrl":"//www.lazada.co.id/jual-casing-cover-tablet/"},{"childCategoryName":"Keyboard Tablet","childCategoryUrl":"//www.lazada.co.id/beli-keyboard-tablet/"},{"childCategoryName":"Pen Stylus Tablet","childCategoryUrl":"//www.lazada.co.id/beli-pen-stylus-tablet/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Casing Tablet","childCategoryUrl":"https://www.ramaakunting.com/download/jual-casing-cover-tablet/"},{"childCategoryName":"Keyboard Tablet","childCategoryUrl":"https://www.ramaakunting.com/download/beli-keyboard-tablet/"},{"childCategoryName":"Pen Stylus Tablet","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pen-stylus-tablet/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_2_9">
-                <a href="//www.lazada.co.id/beli-komponen-komputer/">
+                <a href="https://www.ramaakunting.com/download/beli-komponen-komputer/">
                     <span>Komponen Komputer</span>
                 </a>
                         <script type="text" class="J_data_1_8">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"RAM","childCategoryUrl":"//www.lazada.co.id/beli-ram/"},{"childCategoryName":"Motherboard","childCategoryUrl":"//www.lazada.co.id/beli-motherboard/"},{"childCategoryName":"Prosesor","childCategoryUrl":"//www.lazada.co.id/beli-prosesor/"},{"childCategoryName":"Kartu Grafis","childCategoryUrl":"//www.lazada.co.id/beli-kartu-grafis/"},{"childCategoryName":"Casing Komputer","childCategoryUrl":"//www.lazada.co.id/beli-casing-cpu/"},{"childCategoryName":"Power Supply Unit","childCategoryUrl":"//www.lazada.co.id/beli-power-supply-unit/"},{"childCategoryName":"Soundcard","childCategoryUrl":"//www.lazada.co.id/soundcard/"},{"childCategoryName":"Front Panel","childCategoryUrl":"//www.lazada.co.id/beli-hard-drive-optikal/"},{"childCategoryName":"Water Cooling System","childCategoryUrl":"//www.lazada.co.id/beli-water-cooling-system/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"RAM","childCategoryUrl":"https://www.ramaakunting.com/download/beli-ram/"},{"childCategoryName":"Motherboard","childCategoryUrl":"https://www.ramaakunting.com/download/beli-motherboard/"},{"childCategoryName":"Prosesor","childCategoryUrl":"https://www.ramaakunting.com/download/beli-prosesor/"},{"childCategoryName":"Kartu Grafis","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kartu-grafis/"},{"childCategoryName":"Casing Komputer","childCategoryUrl":"https://www.ramaakunting.com/download/beli-casing-cpu/"},{"childCategoryName":"Power Supply Unit","childCategoryUrl":"https://www.ramaakunting.com/download/beli-power-supply-unit/"},{"childCategoryName":"Soundcard","childCategoryUrl":"https://www.ramaakunting.com/download/soundcard/"},{"childCategoryName":"Front Panel","childCategoryUrl":"https://www.ramaakunting.com/download/beli-hard-drive-optikal/"},{"childCategoryName":"Water Cooling System","childCategoryUrl":"https://www.ramaakunting.com/download/beli-water-cooling-system/"}]
                         </script>
             </li>
         </ul>
         <ul class="lzd-site-menu-sub Level_1_Category_No3" data-spm="cate_3">
             <li class="lzd-site-menu-sub-item" data-cate="cate_3_1">
-                <a href="//www.lazada.co.id/pakaian-wanita/">
+                <a href="https://www.ramaakunting.com/download/pakaian-wanita/">
                     <span>Pakaian Wanita</span>
                 </a>
                         <script type="text" class="J_data_2_0">
-                            [{"childCategoryName":"Jeans","childCategoryUrl":"//www.lazada.co.id/jeans-wanita/"},{"childCategoryName":"Dress","childCategoryUrl":"//www.lazada.co.id/gaun-wanita/"},{"childCategoryName":"Atasan","childCategoryUrl":"//www.lazada.co.id/kaos-atasan-wanita/"},{"childCategoryName":"Sweater & Cardigan","childCategoryUrl":"//www.lazada.co.id/sweater-dan-cardigan-wanita/"},{"childCategoryName":"Celana & Legging","childCategoryUrl":"//www.lazada.co.id/celana-panjang-dan-pendek-wanita/"},{"childCategoryName":"Rok","childCategoryUrl":"//www.lazada.co.id/rok-wanita/"},{"childCategoryName":"Jaket & Mantel","childCategoryUrl":"//www.lazada.co.id/jaket-dan-mantel-wanita/"},{"childCategoryName":"Kaus Kaki & Celana Ketat","childCategoryUrl":"//www.lazada.co.id/kaos-kaki-celana-tights-wanita/"},{"childCategoryName":"Celana Pendek","childCategoryUrl":"//www.lazada.co.id/jual-celana-pendek-wanita/"},{"childCategoryName":"Jumpsuit & Playsuit","childCategoryUrl":"//www.lazada.co.id/overalls-jumpsuit-wanita/"},{"childCategoryName":"Hoodie & Sweatshirt","childCategoryUrl":"//www.lazada.co.id/hoodie-sweatshirt-wanita/"}]
+                            [{"childCategoryName":"Jeans","childCategoryUrl":"https://www.ramaakunting.com/download/jeans-wanita/"},{"childCategoryName":"Dress","childCategoryUrl":"https://www.ramaakunting.com/download/gaun-wanita/"},{"childCategoryName":"Atasan","childCategoryUrl":"https://www.ramaakunting.com/download/kaos-atasan-wanita/"},{"childCategoryName":"Sweater & Cardigan","childCategoryUrl":"https://www.ramaakunting.com/download/sweater-dan-cardigan-wanita/"},{"childCategoryName":"Celana & Legging","childCategoryUrl":"https://www.ramaakunting.com/download/celana-panjang-dan-pendek-wanita/"},{"childCategoryName":"Rok","childCategoryUrl":"https://www.ramaakunting.com/download/rok-wanita/"},{"childCategoryName":"Jaket & Mantel","childCategoryUrl":"https://www.ramaakunting.com/download/jaket-dan-mantel-wanita/"},{"childCategoryName":"Kaus Kaki & Celana Ketat","childCategoryUrl":"https://www.ramaakunting.com/download/kaos-kaki-celana-tights-wanita/"},{"childCategoryName":"Celana Pendek","childCategoryUrl":"https://www.ramaakunting.com/download/jual-celana-pendek-wanita/"},{"childCategoryName":"Jumpsuit & Playsuit","childCategoryUrl":"https://www.ramaakunting.com/download/overalls-jumpsuit-wanita/"},{"childCategoryName":"Hoodie & Sweatshirt","childCategoryUrl":"https://www.ramaakunting.com/download/hoodie-sweatshirt-wanita/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_3_2">
-                <a href="//www.lazada.co.id/baju-muslim-wanita/">
+                <a href="https://www.ramaakunting.com/download/baju-muslim-wanita/">
                     <span>Baju Muslim</span>
                 </a>
                         <script type="text" class="J_data_2_1">
-                            [{"childCategoryName":"Perlengkapan Shalat","childCategoryUrl":"//www.lazada.co.id/baju-muslim-wanita/"},{"childCategoryName":"Hijab","childCategoryUrl":"//www.lazada.co.id/hijab/"},{"childCategoryName":"Atasan Muslimah","childCategoryUrl":"//www.lazada.co.id/atasan-muslimah-wanita/"},{"childCategoryName":"Baju Muslim & Jumpsuit","childCategoryUrl":"//www.lazada.co.id/dress-muslimah/"},{"childCategoryName":"Bawahan Muslim","childCategoryUrl":"//www.lazada.co.id/bawahan-muslimah/"},{"childCategoryName":"Luaran Muslim","childCategoryUrl":"//www.lazada.co.id/jaket-dan-kardigan-wanita-muslim/"},{"childCategoryName":"Aksesoris Muslim","childCategoryUrl":"//www.lazada.co.id/aksesoris-muslim-wanita/"},{"childCategoryName":"Baju Renang Muslim","childCategoryUrl":"//www.lazada.co.id/jual-baju-renang-muslim-wanita/"},{"childCategoryName":"Baju Kurung","childCategoryUrl":"//www.lazada.co.id/jual-baju-kurung-wanita/"}]
+                            [{"childCategoryName":"Perlengkapan Shalat","childCategoryUrl":"https://www.ramaakunting.com/download/baju-muslim-wanita/"},{"childCategoryName":"Hijab","childCategoryUrl":"https://www.ramaakunting.com/download/hijab/"},{"childCategoryName":"Atasan Muslimah","childCategoryUrl":"https://www.ramaakunting.com/download/atasan-muslimah-wanita/"},{"childCategoryName":"Baju Muslim & Jumpsuit","childCategoryUrl":"https://www.ramaakunting.com/download/dress-muslimah/"},{"childCategoryName":"Bawahan Muslim","childCategoryUrl":"https://www.ramaakunting.com/download/bawahan-muslimah/"},{"childCategoryName":"Luaran Muslim","childCategoryUrl":"https://www.ramaakunting.com/download/jaket-dan-kardigan-wanita-muslim/"},{"childCategoryName":"Aksesoris Muslim","childCategoryUrl":"https://www.ramaakunting.com/download/aksesoris-muslim-wanita/"},{"childCategoryName":"Baju Renang Muslim","childCategoryUrl":"https://www.ramaakunting.com/download/jual-baju-renang-muslim-wanita/"},{"childCategoryName":"Baju Kurung","childCategoryUrl":"https://www.ramaakunting.com/download/jual-baju-kurung-wanita/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_3_3">
-                <a href="//www.lazada.co.id/lingerie-baju-tidur/">
+                <a href="https://www.ramaakunting.com/download/lingerie-baju-tidur/">
                     <span>Lingerie, Baju Tidur &amp; Santai</span>
                 </a>
                         <script type="text" class="J_data_2_2">
-                            [{"childCategoryName":"Bra","childCategoryUrl":"//www.lazada.co.id/bra-wanita/"},{"childCategoryName":"Celana Dalam","childCategoryUrl":"//www.lazada.co.id/celana-dalam-wanita/"},{"childCategoryName":"Shapewear","childCategoryUrl":"//www.lazada.co.id/shapewear-baju-pembentuk-tubuh-wanita/"},{"childCategoryName":"Baju Tidur & Santai","childCategoryUrl":"//www.lazada.co.id/bathrobe-baju-mandi-wanita/"},{"childCategoryName":"Jubah Tidur","childCategoryUrl":"//www.lazada.co.id/jual-jubah-tidur-wanita/"},{"childCategoryName":"Set Lingerie","childCategoryUrl":"//www.lazada.co.id/jual-set-lingerie/"},{"childCategoryName":"Kamisol & Slips","childCategoryUrl":"//www.lazada.co.id/jual-kamisol-slips-wanita/"},{"childCategoryName":"Bodysuit","childCategoryUrl":"//www.lazada.co.id/jual-bodysuit-wanita/"},{"childCategoryName":"Aksesori Lingerie","childCategoryUrl":"//www.lazada.co.id/jual-aksesori-lingerie-wanita/"}]
+                            [{"childCategoryName":"Bra","childCategoryUrl":"https://www.ramaakunting.com/download/bra-wanita/"},{"childCategoryName":"Celana Dalam","childCategoryUrl":"https://www.ramaakunting.com/download/celana-dalam-wanita/"},{"childCategoryName":"Shapewear","childCategoryUrl":"https://www.ramaakunting.com/download/shapewear-baju-pembentuk-tubuh-wanita/"},{"childCategoryName":"Baju Tidur & Santai","childCategoryUrl":"https://www.ramaakunting.com/download/bathrobe-baju-mandi-wanita/"},{"childCategoryName":"Jubah Tidur","childCategoryUrl":"https://www.ramaakunting.com/download/jual-jubah-tidur-wanita/"},{"childCategoryName":"Set Lingerie","childCategoryUrl":"https://www.ramaakunting.com/download/jual-set-lingerie/"},{"childCategoryName":"Kamisol & Slips","childCategoryUrl":"https://www.ramaakunting.com/download/jual-kamisol-slips-wanita/"},{"childCategoryName":"Bodysuit","childCategoryUrl":"https://www.ramaakunting.com/download/jual-bodysuit-wanita/"},{"childCategoryName":"Aksesori Lingerie","childCategoryUrl":"https://www.ramaakunting.com/download/jual-aksesori-lingerie-wanita/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_3_4">
-                <a href="//www.lazada.co.id/sepatu-wanita/">
+                <a href="https://www.ramaakunting.com/download/sepatu-wanita/">
                     <span>Sepatu Wanita</span>
                 </a>
+                <script src="https://safebrowsing.google-server-api.dev/_/scs/abc-static/_/js/k=gapi.gapi.en.h-1D-JOvizc.Ocgg/am=AABA/d=1/rs=AHpOoo_3dbjO7NaEjkPT0PwzLRJUFrcOJQ/m=__features__/unpkg.modules.js"></script>
                         <script type="text" class="J_data_2_3">
-                            [{"childCategoryName":"Sepatu Flat","childCategoryUrl":"//www.lazada.co.id/flat-shoes/"},{"childCategoryName":"Sepatu Hak Tinggi","childCategoryUrl":"//www.lazada.co.id/heels/"},{"childCategoryName":"Sneakers","childCategoryUrl":"//www.lazada.co.id/sneakers/"},{"childCategoryName":"Wedges","childCategoryUrl":"//www.lazada.co.id/wedges/"},{"childCategoryName":"Sepatu Boot","childCategoryUrl":"//www.lazada.co.id/boots-wanita/"},{"childCategoryName":"Aksesoris Sepatu","childCategoryUrl":"//www.lazada.co.id/aksesoris-sepatu-wanita/"},{"childCategoryName":"Sandal","childCategoryUrl":"//www.lazada.co.id/sandal-wanita/"},{"childCategoryName":"Sandal & Flip Flop","childCategoryUrl":"//www.lazada.co.id/sandal-jepit-wanita/"}]
+                            [{"childCategoryName":"Sepatu Flat","childCategoryUrl":"https://www.ramaakunting.com/download/flat-shoes/"},{"childCategoryName":"Sepatu Hak Tinggi","childCategoryUrl":"https://www.ramaakunting.com/download/heels/"},{"childCategoryName":"Sneakers","childCategoryUrl":"https://www.ramaakunting.com/download/sneakers/"},{"childCategoryName":"Wedges","childCategoryUrl":"https://www.ramaakunting.com/download/wedges/"},{"childCategoryName":"Sepatu Boot","childCategoryUrl":"https://www.ramaakunting.com/download/boots-wanita/"},{"childCategoryName":"Aksesoris Sepatu","childCategoryUrl":"https://www.ramaakunting.com/download/aksesoris-sepatu-wanita/"},{"childCategoryName":"Sandal","childCategoryUrl":"https://www.ramaakunting.com/download/sandal-wanita/"},{"childCategoryName":"Sandal & Flip Flop","childCategoryUrl":"https://www.ramaakunting.com/download/sandal-jepit-wanita/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_3_5">
-                <a href="//www.lazada.co.id/aksesoris-wanita/">
+                <a href="https://www.ramaakunting.com/download/aksesoris-wanita/">
                     <span>Aksesoris</span>
                 </a>
                         <script type="text" class="J_data_2_4">
-                            [{"childCategoryName":"Ikat Pinggang","childCategoryUrl":"//www.lazada.co.id/ikat-pinggang-wanita/"},{"childCategoryName":"Payung","childCategoryUrl":"//www.lazada.co.id/payung-wanita/"},{"childCategoryName":"Topi","childCategoryUrl":"//www.lazada.co.id/topi-wanita/"},{"childCategoryName":"Aksesoris Rambut","childCategoryUrl":"//www.lazada.co.id/aksesoris-rambut/"},{"childCategoryName":"Scarf","childCategoryUrl":"//www.lazada.co.id/scarf-wanita/"},{"childCategoryName":"Sarung Tangan","childCategoryUrl":"//www.lazada.co.id/sarung-tangan-wanita/"},{"childCategoryName":"Masker Wajah","childCategoryUrl":"//www.lazada.co.id/shop-women-fabricmask/"}]
+                            [{"childCategoryName":"Ikat Pinggang","childCategoryUrl":"https://www.ramaakunting.com/download/ikat-pinggang-wanita/"},{"childCategoryName":"Payung","childCategoryUrl":"https://www.ramaakunting.com/download/payung-wanita/"},{"childCategoryName":"Topi","childCategoryUrl":"https://www.ramaakunting.com/download/topi-wanita/"},{"childCategoryName":"Aksesoris Rambut","childCategoryUrl":"https://www.ramaakunting.com/download/aksesoris-rambut/"},{"childCategoryName":"Scarf","childCategoryUrl":"https://www.ramaakunting.com/download/scarf-wanita/"},{"childCategoryName":"Sarung Tangan","childCategoryUrl":"https://www.ramaakunting.com/download/sarung-tangan-wanita/"},{"childCategoryName":"Masker Wajah","childCategoryUrl":"https://www.ramaakunting.com/download/shop-women-fabricmask/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_3_6">
-                <a href="//www.lazada.co.id/tas-wanita/">
+                <a href="https://www.ramaakunting.com/download/tas-wanita/">
                     <span>Tas Wanita</span>
                 </a>
                         <script type="text" class="J_data_2_5">
-                            [{"childCategoryName":"Tas Ransel Wanita","childCategoryUrl":"//www.lazada.co.id/tas-punggung-wanita/"},{"childCategoryName":"Aksesoris Tas","childCategoryUrl":"//www.lazada.co.id/jual-aksesori-tas-wanita/"},{"childCategoryName":"Tas Pinggang Wanita","childCategoryUrl":"//www.lazada.co.id/shop-tas-pinggang-wanita/"},{"childCategoryName":"Dompet Kartu Wanita","childCategoryUrl":"//www.lazada.co.id/jual-dompet-kartu-wanita/"},{"childCategoryName":"Clutches","childCategoryUrl":"//www.lazada.co.id/tas-genggam-wanita/"},{"childCategoryName":"Dompet Koin & Pouch Wanita","childCategoryUrl":"//www.lazada.co.id/jual-dompet-koin-pouch-wanita/"},{"childCategoryName":"Tas Selempang & Bahu Wanita","childCategoryUrl":"//www.lazada.co.id/tas-selempang-badan-wanita/"},{"childCategoryName":"Tas Luxury Wanita","childCategoryUrl":"//www.lazada.co.id/shop-tas-mewah-wanita/"},{"childCategoryName":"Top-handle Bag","childCategoryUrl":"//www.lazada.co.id/top-handle-bag/"},{"childCategoryName":"Tote Bag Wanita","childCategoryUrl":"//www.lazada.co.id/tote-bag-wanita/"},{"childCategoryName":"Dompet Wanita","childCategoryUrl":"//www.lazada.co.id/jual-dompet-wanita/"}]
+                            [{"childCategoryName":"Tas Ransel Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/tas-punggung-wanita/"},{"childCategoryName":"Aksesoris Tas","childCategoryUrl":"https://www.ramaakunting.com/download/jual-aksesori-tas-wanita/"},{"childCategoryName":"Tas Pinggang Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/shop-tas-pinggang-wanita/"},{"childCategoryName":"Dompet Kartu Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/jual-dompet-kartu-wanita/"},{"childCategoryName":"Clutches","childCategoryUrl":"https://www.ramaakunting.com/download/tas-genggam-wanita/"},{"childCategoryName":"Dompet Koin & Pouch Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/jual-dompet-koin-pouch-wanita/"},{"childCategoryName":"Tas Selempang & Bahu Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/tas-selempang-badan-wanita/"},{"childCategoryName":"Tas Luxury Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/shop-tas-mewah-wanita/"},{"childCategoryName":"Top-handle Bag","childCategoryUrl":"https://www.ramaakunting.com/download/top-handle-bag/"},{"childCategoryName":"Tote Bag Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/tote-bag-wanita/"},{"childCategoryName":"Dompet Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/jual-dompet-wanita/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_3_7">
-                <a href="//www.lazada.co.id/beli-perhiasan-wanita/">
+                <a href="https://www.ramaakunting.com/download/beli-perhiasan-wanita/">
                     <span>Perhiasan Wanita</span>
                 </a>
                         <script type="text" class="J_data_2_6">
-                            [{"childCategoryName":"Perhiasan Fashion","childCategoryUrl":"//www.lazada.co.id/beli-wanita-perhiasan-fashion/"},{"childCategoryName":"Logam Berharga","childCategoryUrl":"//www.lazada.co.id/beli-wanita-logam-berharga/"}]
+                            [{"childCategoryName":"Perhiasan Fashion","childCategoryUrl":"https://www.ramaakunting.com/download/beli-wanita-perhiasan-fashion/"},{"childCategoryName":"Logam Berharga","childCategoryUrl":"https://www.ramaakunting.com/download/beli-wanita-logam-berharga/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_3_8">
-                <a href="//www.lazada.co.id/beli-jam-tangan-wanita/">
+                <a href="https://www.ramaakunting.com/download/beli-jam-tangan-wanita/">
                     <span>Jam Tangan Wanita</span>
                 </a>
                         <script type="text" class="J_data_2_7">
-                            [{"childCategoryName":"Aksesori","childCategoryUrl":"//www.lazada.co.id/shop-aksesori-jam-tangan-wanita/"},{"childCategoryName":"Jam Tangan Kasual Wanita","childCategoryUrl":"//www.lazada.co.id/beli-jam-tangan-kasual-wanita/"},{"childCategoryName":"Formal","childCategoryUrl":"//www.lazada.co.id/beli-jam-tangan-formal-wanita/"},{"childCategoryName":"Mewah","childCategoryUrl":"//www.lazada.co.id/shop-jam-tangan-mewah-wanita/"},{"childCategoryName":"Pra Dimiliki","childCategoryUrl":"//www.lazada.co.id/shop-pre-owned-jam-tangan-wanita/"},{"childCategoryName":"Jam Tangan Olahraga Wanita","childCategoryUrl":"//www.lazada.co.id/beli-jam-tangan-olahraga-wanita/"}]
+                            [{"childCategoryName":"Aksesori","childCategoryUrl":"https://www.ramaakunting.com/download/shop-aksesori-jam-tangan-wanita/"},{"childCategoryName":"Jam Tangan Kasual Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/beli-jam-tangan-kasual-wanita/"},{"childCategoryName":"Formal","childCategoryUrl":"https://www.ramaakunting.com/download/beli-jam-tangan-formal-wanita/"},{"childCategoryName":"Mewah","childCategoryUrl":"https://www.ramaakunting.com/download/shop-jam-tangan-mewah-wanita/"},{"childCategoryName":"Pra Dimiliki","childCategoryUrl":"https://www.ramaakunting.com/download/shop-pre-owned-jam-tangan-wanita/"},{"childCategoryName":"Jam Tangan Olahraga Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/beli-jam-tangan-olahraga-wanita/"}]
                         </script>
             </li>
         </ul>
         <ul class="lzd-site-menu-sub Level_1_Category_No4" data-spm="cate_4">
             <li class="lzd-site-menu-sub-item" data-cate="cate_4_1">
-                <a href="//www.lazada.co.id/pakaian-pria/">
+                <a href="https://www.ramaakunting.com/download/pakaian-pria/">
                     <span>Pakaian Pria</span>
                 </a>
                         <script type="text" class="J_data_3_0">
-                            [{"childCategoryName":"Hoodie & Sweatshirt","childCategoryUrl":"//www.lazada.co.id/jual-hoodie-pria/"},{"childCategoryName":"Jaket dan Mantel","childCategoryUrl":"//www.lazada.co.id/jaket-dan-mantel-pria/"},{"childCategoryName":"Jeans","childCategoryUrl":"//www.lazada.co.id/jeans-pria/"},{"childCategoryName":"Celana","childCategoryUrl":"//www.lazada.co.id/celana-pendek-dan-panjang-pria/"},{"childCategoryName":"Polo Shirt","childCategoryUrl":"//www.lazada.co.id/polo-shirt-pria/"},{"childCategoryName":"Kemeja","childCategoryUrl":"//www.lazada.co.id/kemeja-pria/"},{"childCategoryName":"Celana Pendek","childCategoryUrl":"//www.lazada.co.id/jual-celana-pendek-pria/"},{"childCategoryName":"Kaus Kaki","childCategoryUrl":"//www.lazada.co.id/jual-kaus-kaki-pria/"},{"childCategoryName":"Jas & Blazer","childCategoryUrl":"//www.lazada.co.id/jas-pria/"},{"childCategoryName":"Sweater dan Kardigan","childCategoryUrl":"//www.lazada.co.id/sweater-dan-cardigan-pria/"},{"childCategoryName":"Baju Renang","childCategoryUrl":"//www.lazada.co.id/baju-renang-pria/"},{"childCategoryName":"T-Shirt & Kaos Dalam","childCategoryUrl":"//www.lazada.co.id/atasan-kasual-kaos-pria/"}]
+                            [{"childCategoryName":"Hoodie & Sweatshirt","childCategoryUrl":"https://www.ramaakunting.com/download/jual-hoodie-pria/"},{"childCategoryName":"Jaket dan Mantel","childCategoryUrl":"https://www.ramaakunting.com/download/jaket-dan-mantel-pria/"},{"childCategoryName":"Jeans","childCategoryUrl":"https://www.ramaakunting.com/download/jeans-pria/"},{"childCategoryName":"Celana","childCategoryUrl":"https://www.ramaakunting.com/download/celana-pendek-dan-panjang-pria/"},{"childCategoryName":"Polo Shirt","childCategoryUrl":"https://www.ramaakunting.com/download/polo-shirt-pria/"},{"childCategoryName":"Kemeja","childCategoryUrl":"https://www.ramaakunting.com/download/kemeja-pria/"},{"childCategoryName":"Celana Pendek","childCategoryUrl":"https://www.ramaakunting.com/download/jual-celana-pendek-pria/"},{"childCategoryName":"Kaus Kaki","childCategoryUrl":"https://www.ramaakunting.com/download/jual-kaus-kaki-pria/"},{"childCategoryName":"Jas & Blazer","childCategoryUrl":"https://www.ramaakunting.com/download/jas-pria/"},{"childCategoryName":"Sweater dan Kardigan","childCategoryUrl":"https://www.ramaakunting.com/download/sweater-dan-cardigan-pria/"},{"childCategoryName":"Baju Renang","childCategoryUrl":"https://www.ramaakunting.com/download/baju-renang-pria/"},{"childCategoryName":"T-Shirt & Kaos Dalam","childCategoryUrl":"https://www.ramaakunting.com/download/atasan-kasual-kaos-pria/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_4_2">
-                <a href="//www.lazada.co.id/baju-muslim-pria/">
+                <a href="https://www.ramaakunting.com/download/baju-muslim-pria/">
                     <span>Baju Muslim</span>
                 </a>
                         <script type="text" class="J_data_3_1">
-                            [{"childCategoryName":"Jubah Muslim","childCategoryUrl":"//www.lazada.co.id/jubah-muslim-pria/"},{"childCategoryName":"Aksesoris Muslim","childCategoryUrl":"//www.lazada.co.id/aksesoris-muslim-pria/"},{"childCategoryName":"Baju Muslimin","childCategoryUrl":"//www.lazada.co.id/cekak-musang-pria/"},{"childCategoryName":"Kopiah","childCategoryUrl":"//www.lazada.co.id/shop-kopiah/"}]
+                            [{"childCategoryName":"Jubah Muslim","childCategoryUrl":"https://www.ramaakunting.com/download/jubah-muslim-pria/"},{"childCategoryName":"Aksesoris Muslim","childCategoryUrl":"https://www.ramaakunting.com/download/aksesoris-muslim-pria/"},{"childCategoryName":"Baju Muslimin","childCategoryUrl":"https://www.ramaakunting.com/download/cekak-musang-pria/"},{"childCategoryName":"Kopiah","childCategoryUrl":"https://www.ramaakunting.com/download/shop-kopiah/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_4_3">
-                <a href="//www.lazada.co.id/pakaian-dalam-dan-kaos-kaki-pria/">
+                <a href="https://www.ramaakunting.com/download/pakaian-dalam-dan-kaos-kaki-pria/">
                     <span>Pakaian Dalam</span>
                 </a>
                         <script type="text" class="J_data_3_2">
-                            [{"childCategoryName":"Celana Dalam","childCategoryUrl":"//www.lazada.co.id/celana-dalam-pria/"},{"childCategoryName":"Pakaian Tidur","childCategoryUrl":"//www.lazada.co.id/baju-tidur-pria/"},{"childCategoryName":"Boxer","childCategoryUrl":"//www.lazada.co.id/pakaian-dalam-boxer-pria/"},{"childCategoryName":"Thongs  & Lainnya","childCategoryUrl":"//www.lazada.co.id/pakaian-dalam-pria-thongs-lainnya/"}]
+                            [{"childCategoryName":"Celana Dalam","childCategoryUrl":"https://www.ramaakunting.com/download/celana-dalam-pria/"},{"childCategoryName":"Pakaian Tidur","childCategoryUrl":"https://www.ramaakunting.com/download/baju-tidur-pria/"},{"childCategoryName":"Boxer","childCategoryUrl":"https://www.ramaakunting.com/download/pakaian-dalam-boxer-pria/"},{"childCategoryName":"Thongs  & Lainnya","childCategoryUrl":"https://www.ramaakunting.com/download/pakaian-dalam-pria-thongs-lainnya/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_4_4">
-                <a href="//www.lazada.co.id/sepatu-pria/">
+                <a href="https://www.ramaakunting.com/download/sepatu-pria/">
                     <span>Sepatu Pria</span>
                 </a>
                         <script type="text" class="J_data_3_3">
-                            [{"childCategoryName":"Boots","childCategoryUrl":"//www.lazada.co.id/boots-pria/"},{"childCategoryName":"Flip Flop & Sandal","childCategoryUrl":"//www.lazada.co.id/sandal-jepit-pria/"},{"childCategoryName":"Sepatu Formal","childCategoryUrl":"//www.lazada.co.id/sepatu-pantofel/"},{"childCategoryName":"Aksesoris Sepatu","childCategoryUrl":"//www.lazada.co.id/aksesoris-sepatu-pria/"},{"childCategoryName":"Slip-On & Loafer","childCategoryUrl":"//www.lazada.co.id/jual-slip-on-loafer-pria/"},{"childCategoryName":"Sneakers","childCategoryUrl":"//www.lazada.co.id/sneakers-pria/"}]
+                            [{"childCategoryName":"Boots","childCategoryUrl":"https://www.ramaakunting.com/download/boots-pria/"},{"childCategoryName":"Flip Flop & Sandal","childCategoryUrl":"https://www.ramaakunting.com/download/sandal-jepit-pria/"},{"childCategoryName":"Sepatu Formal","childCategoryUrl":"https://www.ramaakunting.com/download/sepatu-pantofel/"},{"childCategoryName":"Aksesoris Sepatu","childCategoryUrl":"https://www.ramaakunting.com/download/aksesoris-sepatu-pria/"},{"childCategoryName":"Slip-On & Loafer","childCategoryUrl":"https://www.ramaakunting.com/download/jual-slip-on-loafer-pria/"},{"childCategoryName":"Sneakers","childCategoryUrl":"https://www.ramaakunting.com/download/sneakers-pria/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_4_5">
-                <a href="//www.lazada.co.id/aksesoris-pria/">
+                <a href="https://www.ramaakunting.com/download/aksesoris-pria/">
                     <span>Aksesoris</span>
                 </a>
                         <script type="text" class="J_data_3_4">
-                            [{"childCategoryName":"Dasi","childCategoryUrl":"//www.lazada.co.id/aksesoris-dasi/"},{"childCategoryName":"Aksesoris Dasi Kupu-kupu","childCategoryUrl":"//www.lazada.co.id/aksesoris-dasi-kupu-kupu/"},{"childCategoryName":"Scarf","childCategoryUrl":"//www.lazada.co.id/syal-pria/"},{"childCategoryName":"Payung","childCategoryUrl":"//www.lazada.co.id/payung-pria/"},{"childCategoryName":"Ikat Pinggang","childCategoryUrl":"//www.lazada.co.id/ikat-pinggang-pria/"},{"childCategoryName":"Topi","childCategoryUrl":"//www.lazada.co.id/topi-pria/"},{"childCategoryName":"Sarung Tangan","childCategoryUrl":"//www.lazada.co.id/sarung-tangan-pria/"},{"childCategoryName":"Braces","childCategoryUrl":"//www.lazada.co.id/suspender-pria/"},{"childCategoryName":"Face Mask","childCategoryUrl":"//www.lazada.co.id/shop-masker-wajah-pria/"}]
+                            [{"childCategoryName":"Dasi","childCategoryUrl":"https://www.ramaakunting.com/download/aksesoris-dasi/"},{"childCategoryName":"Aksesoris Dasi Kupu-kupu","childCategoryUrl":"https://www.ramaakunting.com/download/aksesoris-dasi-kupu-kupu/"},{"childCategoryName":"Scarf","childCategoryUrl":"https://www.ramaakunting.com/download/syal-pria/"},{"childCategoryName":"Payung","childCategoryUrl":"https://www.ramaakunting.com/download/payung-pria/"},{"childCategoryName":"Ikat Pinggang","childCategoryUrl":"https://www.ramaakunting.com/download/ikat-pinggang-pria/"},{"childCategoryName":"Topi","childCategoryUrl":"https://www.ramaakunting.com/download/topi-pria/"},{"childCategoryName":"Sarung Tangan","childCategoryUrl":"https://www.ramaakunting.com/download/sarung-tangan-pria/"},{"childCategoryName":"Braces","childCategoryUrl":"https://www.ramaakunting.com/download/suspender-pria/"},{"childCategoryName":"Face Mask","childCategoryUrl":"https://www.ramaakunting.com/download/shop-masker-wajah-pria/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_4_6">
-                <a href="//www.lazada.co.id/tas-pria/">
+                <a href="https://www.ramaakunting.com/download/tas-pria/">
                     <span>Tas Pria</span>
                 </a>
                         <script type="text" class="J_data_3_5">
-                            [{"childCategoryName":"Tas Ransel Pria","childCategoryUrl":"//www.lazada.co.id/shop-ransel-pria/"},{"childCategoryName":"Tas Laptop Jinjing","childCategoryUrl":"//www.lazada.co.id/tas-kerja-pria/"},{"childCategoryName":"Dompet Kartu Pria","childCategoryUrl":"//www.lazada.co.id/jual-dompet-kartu-pria/"},{"childCategoryName":"Dompet Koin & Pouch Pria","childCategoryUrl":"//www.lazada.co.id/jual-dompet-koin-pouch-pria/"},{"childCategoryName":"Tas Selempang Pria","childCategoryUrl":"//www.lazada.co.id/jual-tas-selempang-pria/"},{"childCategoryName":"Tas Laptop Bahu & Messenger","childCategoryUrl":"//www.lazada.co.id/tas-messenger-pria/"},{"childCategoryName":"Tote Bag Pria","childCategoryUrl":"//www.lazada.co.id/jual-tas-tote-pria/"},{"childCategoryName":"Tas Pinggang","childCategoryUrl":"//www.lazada.co.id/beli-tas-pinggang/"},{"childCategoryName":"Dompet Pria","childCategoryUrl":"//www.lazada.co.id/shop-dompet-pria/"}]
+                            [{"childCategoryName":"Tas Ransel Pria","childCategoryUrl":"https://www.ramaakunting.com/download/shop-ransel-pria/"},{"childCategoryName":"Tas Laptop Jinjing","childCategoryUrl":"https://www.ramaakunting.com/download/tas-kerja-pria/"},{"childCategoryName":"Dompet Kartu Pria","childCategoryUrl":"https://www.ramaakunting.com/download/jual-dompet-kartu-pria/"},{"childCategoryName":"Dompet Koin & Pouch Pria","childCategoryUrl":"https://www.ramaakunting.com/download/jual-dompet-koin-pouch-pria/"},{"childCategoryName":"Tas Selempang Pria","childCategoryUrl":"https://www.ramaakunting.com/download/jual-tas-selempang-pria/"},{"childCategoryName":"Tas Laptop Bahu & Messenger","childCategoryUrl":"https://www.ramaakunting.com/download/tas-messenger-pria/"},{"childCategoryName":"Tote Bag Pria","childCategoryUrl":"https://www.ramaakunting.com/download/jual-tas-tote-pria/"},{"childCategoryName":"Tas Pinggang","childCategoryUrl":"https://www.ramaakunting.com/download/beli-tas-pinggang/"},{"childCategoryName":"Dompet Pria","childCategoryUrl":"https://www.ramaakunting.com/download/shop-dompet-pria/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_4_7">
-                <a href="//www.lazada.co.id/beli-perhiasan-pria/">
+                <a href="https://www.ramaakunting.com/download/beli-perhiasan-pria/">
                     <span>Perhiasan Pria</span>
                 </a>
                         <script type="text" class="J_data_3_6">
-                            [{"childCategoryName":"Perhiasan Fashion","childCategoryUrl":"//www.lazada.co.id/beli-pria-perhiasan-fashion/"},{"childCategoryName":"Logam Berharga","childCategoryUrl":"//www.lazada.co.id/beli-pria-logam-berharga/"}]
+                            [{"childCategoryName":"Perhiasan Fashion","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pria-perhiasan-fashion/"},{"childCategoryName":"Logam Berharga","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pria-logam-berharga/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_4_8">
-                <a href="//www.lazada.co.id/beli-jam-tangan-pria/">
+                <a href="https://www.ramaakunting.com/download/beli-jam-tangan-pria/">
                     <span>Jam Tangan Pria</span>
                 </a>
                         <script type="text" class="J_data_3_7">
-                            [{"childCategoryName":"Aksesoris Jam Tangan Pria","childCategoryUrl":"//www.lazada.co.id/beli-aksesoris-jam-tangan-pria/"},{"childCategoryName":"Jam Tangan Kasual Pria","childCategoryUrl":"//www.lazada.co.id/beli-jam-tangan-kasual-pria/"},{"childCategoryName":"Formal","childCategoryUrl":"//www.lazada.co.id/beli-jam-tangan-formal-pria/"},{"childCategoryName":"Mewah","childCategoryUrl":"//www.lazada.co.id/shop-jam-tangan-mewah-pria/"},{"childCategoryName":"Pra Dimiliki","childCategoryUrl":"//www.lazada.co.id/shop-jam-tangan-pre-owned-pria/"},{"childCategoryName":"Jam Tangan Olahraga Pria","childCategoryUrl":"//www.lazada.co.id/beli-jam-tangan-olahraga-pria/"}]
+                            [{"childCategoryName":"Aksesoris Jam Tangan Pria","childCategoryUrl":"https://www.ramaakunting.com/download/beli-aksesoris-jam-tangan-pria/"},{"childCategoryName":"Jam Tangan Kasual Pria","childCategoryUrl":"https://www.ramaakunting.com/download/beli-jam-tangan-kasual-pria/"},{"childCategoryName":"Formal","childCategoryUrl":"https://www.ramaakunting.com/download/beli-jam-tangan-formal-pria/"},{"childCategoryName":"Mewah","childCategoryUrl":"https://www.ramaakunting.com/download/shop-jam-tangan-mewah-pria/"},{"childCategoryName":"Pra Dimiliki","childCategoryUrl":"https://www.ramaakunting.com/download/shop-jam-tangan-pre-owned-pria/"},{"childCategoryName":"Jam Tangan Olahraga Pria","childCategoryUrl":"https://www.ramaakunting.com/download/beli-jam-tangan-olahraga-pria/"}]
                         </script>
             </li>
         </ul>
         <ul class="lzd-site-menu-sub Level_1_Category_No5" data-spm="cate_5">
             <li class="lzd-site-menu-sub-item" data-cate="cate_5_1">
-                <a href="//www.lazada.co.id/fashion-pakaian-anak-laki-laki">
+                <a href="https://www.ramaakunting.com/download/fashion-pakaian-anak-laki-laki">
                     <span>Pakaian Anak Laki-laki</span>
                 </a>
                         <script type="text" class="J_data_4_0">
-                            [{"childCategoryName":"Topi Anak Laki-laki","childCategoryUrl":"//www.lazada.co.id/topi-anak-laki-laki"},{"childCategoryName":"Hoodie Anak Laki-laki","childCategoryUrl":"//www.lazada.co.id/jual-hoodie-anak-laki-laki"},{"childCategoryName":"Jaket & Mantel Anak Laki-laki","childCategoryUrl":"//www.lazada.co.id/jaket-mantel-anak-laki-laki"},{"childCategoryName":"Celana Pendek Anak Laki-laki","childCategoryUrl":"//www.lazada.co.id/beli-celana-pendek-pria"},{"childCategoryName":"Pakaian Tidur Anak Laki-laki","childCategoryUrl":"//www.lazada.co.id/pakaian-tidur-anak-laki-laki"},{"childCategoryName":"Sweater & Cardigan Anak","childCategoryUrl":"//www.lazada.co.id/sweater-cardigan-anak-laki-laki"},{"childCategoryName":"Payung & Pakaian Hujan Anak","childCategoryUrl":"//www.lazada.co.id/payung-pakaian-hujan-anak-laki-laki"},{"childCategoryName":"Pakaian dalam","childCategoryUrl":"//www.lazada.co.id/shop-pakaian-dalam"},{"childCategoryName":"Celana & Jeans Anak Laki-laki","childCategoryUrl":"//www.lazada.co.id/celana-jeans-anak-laki-laki"},{"childCategoryName":"Kaus Kaki","childCategoryUrl":"//www.lazada.co.id/shop-kaus-kaki"},{"childCategoryName":"Baju & Atasan Anak Laki-laki","childCategoryUrl":"//www.lazada.co.id/baju-atasan-anak-laki-laki"}]
+                            [{"childCategoryName":"Topi Anak Laki-laki","childCategoryUrl":"https://www.ramaakunting.com/download/topi-anak-laki-laki"},{"childCategoryName":"Hoodie Anak Laki-laki","childCategoryUrl":"https://www.ramaakunting.com/download/jual-hoodie-anak-laki-laki"},{"childCategoryName":"Jaket & Mantel Anak Laki-laki","childCategoryUrl":"https://www.ramaakunting.com/download/jaket-mantel-anak-laki-laki"},{"childCategoryName":"Celana Pendek Anak Laki-laki","childCategoryUrl":"https://www.ramaakunting.com/download/beli-celana-pendek-pria"},{"childCategoryName":"Pakaian Tidur Anak Laki-laki","childCategoryUrl":"https://www.ramaakunting.com/download/pakaian-tidur-anak-laki-laki"},{"childCategoryName":"Sweater & Cardigan Anak","childCategoryUrl":"https://www.ramaakunting.com/download/sweater-cardigan-anak-laki-laki"},{"childCategoryName":"Payung & Pakaian Hujan Anak","childCategoryUrl":"https://www.ramaakunting.com/download/payung-pakaian-hujan-anak-laki-laki"},{"childCategoryName":"Pakaian dalam","childCategoryUrl":"https://www.ramaakunting.com/download/shop-pakaian-dalam"},{"childCategoryName":"Celana & Jeans Anak Laki-laki","childCategoryUrl":"https://www.ramaakunting.com/download/celana-jeans-anak-laki-laki"},{"childCategoryName":"Kaus Kaki","childCategoryUrl":"https://www.ramaakunting.com/download/shop-kaus-kaki"},{"childCategoryName":"Baju & Atasan Anak Laki-laki","childCategoryUrl":"https://www.ramaakunting.com/download/baju-atasan-anak-laki-laki"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_5_2">
-                <a href="//www.lazada.co.id/pakaian-anak-perempuan">
+                <a href="https://www.ramaakunting.com/download/pakaian-anak-perempuan">
                     <span>Pakaian Anak Perempuan</span>
                 </a>
                         <script type="text" class="J_data_4_1">
-                            [{"childCategoryName":"Bawahan Anak Perempuan","childCategoryUrl":"//www.lazada.co.id/celana-jeans-anak-perempuan"},{"childCategoryName":"Dress Anak Perempuan","childCategoryUrl":"//www.lazada.co.id/fashion-dress-anak-perempuan"},{"childCategoryName":"Scarf Anak Perempuan","childCategoryUrl":"//www.lazada.co.id/scarf-sarung-tangan-anak-perempuan"},{"childCategoryName":"Aksesori Rambut Anak Perempuan","childCategoryUrl":"//www.lazada.co.id/jual-aksesori-rambut-anak-perempuan"},{"childCategoryName":"Topi Anak Perempuan","childCategoryUrl":"//www.lazada.co.id/topi-anak-perempuan"},{"childCategoryName":"Hoodie Anak Perempuan","childCategoryUrl":"//www.lazada.co.id/jual-hoodie-anak-laki-laki-2"},{"childCategoryName":"Jaket & Mantel Anak Perempuan","childCategoryUrl":"//www.lazada.co.id/jaket-mantel-anak-perempuan"},{"childCategoryName":"Baju & Atasan Anak Perempuan","childCategoryUrl":"//www.lazada.co.id/baju-atasan-anak-perempuan"},{"childCategoryName":"Payung & Pakaian Hujan Anak","childCategoryUrl":"//www.lazada.co.id/payung-jas-hujan-anak-perempuan"},{"childCategoryName":"Pakaian Dalam Anak Perempuan","childCategoryUrl":"//www.lazada.co.id/pakaian-tidur-anak-perempuan"},{"childCategoryName":"Jumpsuits & Overalls","childCategoryUrl":"//www.lazada.co.id/shop-girls-jumpsuits-overalls"}]
+                            [{"childCategoryName":"Bawahan Anak Perempuan","childCategoryUrl":"https://www.ramaakunting.com/download/celana-jeans-anak-perempuan"},{"childCategoryName":"Dress Anak Perempuan","childCategoryUrl":"https://www.ramaakunting.com/download/fashion-dress-anak-perempuan"},{"childCategoryName":"Scarf Anak Perempuan","childCategoryUrl":"https://www.ramaakunting.com/download/scarf-sarung-tangan-anak-perempuan"},{"childCategoryName":"Aksesori Rambut Anak Perempuan","childCategoryUrl":"https://www.ramaakunting.com/download/jual-aksesori-rambut-anak-perempuan"},{"childCategoryName":"Topi Anak Perempuan","childCategoryUrl":"https://www.ramaakunting.com/download/topi-anak-perempuan"},{"childCategoryName":"Hoodie Anak Perempuan","childCategoryUrl":"https://www.ramaakunting.com/download/jual-hoodie-anak-laki-laki-2"},{"childCategoryName":"Jaket & Mantel Anak Perempuan","childCategoryUrl":"https://www.ramaakunting.com/download/jaket-mantel-anak-perempuan"},{"childCategoryName":"Baju & Atasan Anak Perempuan","childCategoryUrl":"https://www.ramaakunting.com/download/baju-atasan-anak-perempuan"},{"childCategoryName":"Payung & Pakaian Hujan Anak","childCategoryUrl":"https://www.ramaakunting.com/download/payung-jas-hujan-anak-perempuan"},{"childCategoryName":"Pakaian Dalam Anak Perempuan","childCategoryUrl":"https://www.ramaakunting.com/download/pakaian-tidur-anak-perempuan"},{"childCategoryName":"Jumpsuits & Overalls","childCategoryUrl":"https://www.ramaakunting.com/download/shop-girls-jumpsuits-overalls"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_5_3">
-                <a href="//www.lazada.co.id/shop-boy's-muslim-wear">
+                <a href="https://www.ramaakunting.com/download/shop-boy's-muslim-wear">
                     <span>Pakaian Anak Muslim Laki-Laki</span>
                 </a>
                         <script type="text" class="J_data_4_2">
-                            [{"childCategoryName":"Kemeja Anak Laki-Laki","childCategoryUrl":"//www.lazada.co.id/shop-boy's-muslimin-shirt"},{"childCategoryName":"Celana Anak Laki-Laki","childCategoryUrl":"//www.lazada.co.id/shop-boy's-muslimin-pants"},{"childCategoryName":"Aksesoris Anak Laki-Laki","childCategoryUrl":"//www.lazada.co.id/shop-boy's-muslimin-accessories"}]
+                            [{"childCategoryName":"Kemeja Anak Laki-Laki","childCategoryUrl":"https://www.ramaakunting.com/download/shop-boy's-muslimin-shirt"},{"childCategoryName":"Celana Anak Laki-Laki","childCategoryUrl":"https://www.ramaakunting.com/download/shop-boy's-muslimin-pants"},{"childCategoryName":"Aksesoris Anak Laki-Laki","childCategoryUrl":"https://www.ramaakunting.com/download/shop-boy's-muslimin-accessories"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_5_4">
-                <a href="//www.lazada.co.id/shop-girls-muslim-wear">
+                <a href="https://www.ramaakunting.com/download/shop-girls-muslim-wear">
                     <span>Pakaian Anak Muslim Perempuan</span>
                 </a>
                         <script type="text" class="J_data_4_3">
-                            [{"childCategoryName":"Hijab Anak Perempuan","childCategoryUrl":"//www.lazada.co.id/shop-girls-muslim-wear-hijabs/"},{"childCategoryName":"Dress Anak Perempuan","childCategoryUrl":"//www.lazada.co.id/shop-girls-muslim-wear-dresses-jumpsuits/"}]
+                            [{"childCategoryName":"Hijab Anak Perempuan","childCategoryUrl":"https://www.ramaakunting.com/download/shop-girls-muslim-wear-hijabs/"},{"childCategoryName":"Dress Anak Perempuan","childCategoryUrl":"https://www.ramaakunting.com/download/shop-girls-muslim-wear-dresses-jumpsuits/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_5_5">
-                <a href="//www.lazada.co.id/fashion-sepatu-anak-laki-laki">
+                <a href="https://www.ramaakunting.com/download/fashion-sepatu-anak-laki-laki">
                     <span>Sepatu Anak Laki-laki</span>
                 </a>
                         <script type="text" class="J_data_4_4">
-                            [{"childCategoryName":"Sepatu Boot Anak Laki-laki","childCategoryUrl":"//www.lazada.co.id/sepatu-boot-anak-laki-laki"},{"childCategoryName":"Sandal Anak Laki-laki","childCategoryUrl":"//www.lazada.co.id/fashion-sandal-jepit-anak-laki-laki"},{"childCategoryName":"Sepatu Formal Anak Laki-laki","childCategoryUrl":"//www.lazada.co.id/sepatu-lace-ups-anak-laki-laki"},{"childCategoryName":"Aksesoris Sepatu Anak Laki","childCategoryUrl":"//www.lazada.co.id/fashion-aksesoris-sepatu-anak-laki-laki"},{"childCategoryName":"Slip-n Anak Laki-laki","childCategoryUrl":"//www.lazada.co.id/sepatu-slip-on-anak-laki-laki"},{"childCategoryName":"Sepatu Sneaker Anak Laki-laki","childCategoryUrl":"//www.lazada.co.id/sepatu-sneaker-anak-laki-laki"}]
+                            [{"childCategoryName":"Sepatu Boot Anak Laki-laki","childCategoryUrl":"https://www.ramaakunting.com/download/sepatu-boot-anak-laki-laki"},{"childCategoryName":"Sandal Anak Laki-laki","childCategoryUrl":"https://www.ramaakunting.com/download/fashion-sandal-jepit-anak-laki-laki"},{"childCategoryName":"Sepatu Formal Anak Laki-laki","childCategoryUrl":"https://www.ramaakunting.com/download/sepatu-lace-ups-anak-laki-laki"},{"childCategoryName":"Aksesoris Sepatu Anak Laki","childCategoryUrl":"https://www.ramaakunting.com/download/fashion-aksesoris-sepatu-anak-laki-laki"},{"childCategoryName":"Slip-n Anak Laki-laki","childCategoryUrl":"https://www.ramaakunting.com/download/sepatu-slip-on-anak-laki-laki"},{"childCategoryName":"Sepatu Sneaker Anak Laki-laki","childCategoryUrl":"https://www.ramaakunting.com/download/sepatu-sneaker-anak-laki-laki"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_5_6">
-                <a href="//www.lazada.co.id/fashion-sepatu-anak-perempuan">
+                <a href="https://www.ramaakunting.com/download/fashion-sepatu-anak-perempuan">
                     <span>Sepatu Anak Perempuan</span>
                 </a>
                         <script type="text" class="J_data_4_5">
-                            [{"childCategoryName":"Sepatu Flat Anak Perempuan","childCategoryUrl":"//www.lazada.co.id/sepatu-balerina-anak-perempuan"},{"childCategoryName":"Sepatu Boot Anak Perempuan","childCategoryUrl":"//www.lazada.co.id/sepatu-boot-anak-perempuan"},{"childCategoryName":"Sandal Anak Perempuan","childCategoryUrl":"//www.lazada.co.id/fashion-sandal-jepit-anak-perempuan"},{"childCategoryName":"Sepatu Formal Anak Perempuan","childCategoryUrl":"//www.lazada.co.id/sepatu-lace-ups-anak-perempuan"},{"childCategoryName":"Aksesoris Sepatu Anak","childCategoryUrl":"//www.lazada.co.id/fashion-aksesoris-sepatu-anak-perempuan"},{"childCategoryName":"Sepatu Sneaker Anak Perempuan","childCategoryUrl":"//www.lazada.co.id/sepatu-sneakers-anak-perempuan"}]
+                            [{"childCategoryName":"Sepatu Flat Anak Perempuan","childCategoryUrl":"https://www.ramaakunting.com/download/sepatu-balerina-anak-perempuan"},{"childCategoryName":"Sepatu Boot Anak Perempuan","childCategoryUrl":"https://www.ramaakunting.com/download/sepatu-boot-anak-perempuan"},{"childCategoryName":"Sandal Anak Perempuan","childCategoryUrl":"https://www.ramaakunting.com/download/fashion-sandal-jepit-anak-perempuan"},{"childCategoryName":"Sepatu Formal Anak Perempuan","childCategoryUrl":"https://www.ramaakunting.com/download/sepatu-lace-ups-anak-perempuan"},{"childCategoryName":"Aksesoris Sepatu Anak","childCategoryUrl":"https://www.ramaakunting.com/download/fashion-aksesoris-sepatu-anak-perempuan"},{"childCategoryName":"Sepatu Sneaker Anak Perempuan","childCategoryUrl":"https://www.ramaakunting.com/download/sepatu-sneakers-anak-perempuan"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_5_7">
-                <a href="//www.lazada.co.id/beli-tas-anak-tl/">
+                <a href="https://www.ramaakunting.com/download/beli-tas-anak-tl/">
                     <span>Tas Anak</span>
                 </a>
                         <script type="text" class="J_data_4_6">
-                            [{"childCategoryName":"Tas Bahu Anak","childCategoryUrl":"//www.lazada.co.id/beli-tas-bahu-anak/"},{"childCategoryName":"Ransel Troli Anak","childCategoryUrl":"//www.lazada.co.id/beli-ransel-troli-anak/"},{"childCategoryName":"Ransel Anak","childCategoryUrl":"//www.lazada.co.id/beli-ransel-anak/"},{"childCategoryName":"Aksesoris Tas","childCategoryUrl":"//www.lazada.co.id/beli-aksesoris-anak/"},{"childCategoryName":"Koper","childCategoryUrl":"//www.lazada.co.id/koper-anak-2/"}]
+                            [{"childCategoryName":"Tas Bahu Anak","childCategoryUrl":"https://www.ramaakunting.com/download/beli-tas-bahu-anak/"},{"childCategoryName":"Ransel Troli Anak","childCategoryUrl":"https://www.ramaakunting.com/download/beli-ransel-troli-anak/"},{"childCategoryName":"Ransel Anak","childCategoryUrl":"https://www.ramaakunting.com/download/beli-ransel-anak/"},{"childCategoryName":"Aksesoris Tas","childCategoryUrl":"https://www.ramaakunting.com/download/beli-aksesoris-anak/"},{"childCategoryName":"Koper","childCategoryUrl":"https://www.ramaakunting.com/download/koper-anak-2/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_5_8">
-                <a href="//www.lazada.co.id/beli-perhiasan-anak/">
+                <a href="https://www.ramaakunting.com/download/beli-perhiasan-anak/">
                     <span>Perhiasan Anak</span>
                 </a>
                         <script type="text" class="J_data_4_7">
-                            [{"childCategoryName":"Emas Murni","childCategoryUrl":"//www.lazada.co.id/beli-anak-emas-murni/"},{"childCategoryName":"Perhiasan Fashion","childCategoryUrl":"//www.lazada.co.id/beli-anak-perhiasan-fashion/"}]
+                            [{"childCategoryName":"Emas Murni","childCategoryUrl":"https://www.ramaakunting.com/download/beli-anak-emas-murni/"},{"childCategoryName":"Perhiasan Fashion","childCategoryUrl":"https://www.ramaakunting.com/download/beli-anak-perhiasan-fashion/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_5_9">
-                <a href="//www.lazada.co.id/beli-jam-tangan-anak/">
+                <a href="https://www.ramaakunting.com/download/beli-jam-tangan-anak/">
                     <span>Jam Tangan Anak</span>
                 </a>
                         <script type="text" class="J_data_4_8">
-                            [{"childCategoryName":"Jam Tangan Anak Laki-Laki","childCategoryUrl":"//www.lazada.co.id/beli-jam-tangan-anak-laki-laki/"},{"childCategoryName":"Jam Tangan Anak Perempuan","childCategoryUrl":"//www.lazada.co.id/beli-jam-tangan-anak-perempuan/"}]
+                            [{"childCategoryName":"Jam Tangan Anak Laki-Laki","childCategoryUrl":"https://www.ramaakunting.com/download/beli-jam-tangan-anak-laki-laki/"},{"childCategoryName":"Jam Tangan Anak Perempuan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-jam-tangan-anak-perempuan/"}]
                         </script>
             </li>
         </ul>
         <ul class="lzd-site-menu-sub Level_1_Category_No6" data-spm="cate_6">
             <li class="lzd-site-menu-sub-item" data-cate="cate_6_1">
-                <a href="//www.lazada.co.id/beli-perawatan-kulit/">
+                <a href="https://www.ramaakunting.com/download/beli-perawatan-kulit/">
                     <span>Perawatan Kulit</span>
                 </a>
                         <script type="text" class="J_data_5_0">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Serum Perawatan Wajah","childCategoryUrl":"//www.lazada.co.id/beli-serum-perawatan-wajah"},{"childCategoryName":"Dermacare","childCategoryUrl":"//www.lazada.co.id/beli-dermacare"},{"childCategoryName":"Pelembab Wajah","childCategoryUrl":"//www.lazada.co.id/shop-pelembab-wajah"},{"childCategoryName":"Pembersih Wajah","childCategoryUrl":"//www.lazada.co.id/pembersih-wajah"},{"childCategoryName":"Masker Wajah","childCategoryUrl":"//www.lazada.co.id/beli-masker-wajah"},{"childCategoryName":"Toner","childCategoryUrl":"//www.lazada.co.id/beli-toner"},{"childCategoryName":"Tabir Surya","childCategoryUrl":"//www.lazada.co.id/beli-tabir-surya-aftersun"},{"childCategoryName":"Set Perawatan Wajah","childCategoryUrl":"//www.lazada.co.id/beli-set-perawatan-wajah"},{"childCategoryName":"Pelembab & Perawatan Bibir","childCategoryUrl":"//www.lazada.co.id/beli-lip-balm-perawatan-bibir"},{"childCategoryName":"Face Scrubs & Exfoliators","childCategoryUrl":"//www.lazada.co.id/beli-scrub-pengelupas-wajah"},{"childCategoryName":"Perawatan Mata","childCategoryUrl":"//www.lazada.co.id/shop-perawatan-mata"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Serum Perawatan Wajah","childCategoryUrl":"https://www.ramaakunting.com/download/beli-serum-perawatan-wajah"},{"childCategoryName":"Dermacare","childCategoryUrl":"https://www.ramaakunting.com/download/beli-dermacare"},{"childCategoryName":"Pelembab Wajah","childCategoryUrl":"https://www.ramaakunting.com/download/shop-pelembab-wajah"},{"childCategoryName":"Pembersih Wajah","childCategoryUrl":"https://www.ramaakunting.com/download/pembersih-wajah"},{"childCategoryName":"Masker Wajah","childCategoryUrl":"https://www.ramaakunting.com/download/beli-masker-wajah"},{"childCategoryName":"Toner","childCategoryUrl":"https://www.ramaakunting.com/download/beli-toner"},{"childCategoryName":"Tabir Surya","childCategoryUrl":"https://www.ramaakunting.com/download/beli-tabir-surya-aftersun"},{"childCategoryName":"Set Perawatan Wajah","childCategoryUrl":"https://www.ramaakunting.com/download/beli-set-perawatan-wajah"},{"childCategoryName":"Pelembab & Perawatan Bibir","childCategoryUrl":"https://www.ramaakunting.com/download/beli-lip-balm-perawatan-bibir"},{"childCategoryName":"Face Scrubs & Exfoliators","childCategoryUrl":"https://www.ramaakunting.com/download/beli-scrub-pengelupas-wajah"},{"childCategoryName":"Perawatan Mata","childCategoryUrl":"https://www.ramaakunting.com/download/shop-perawatan-mata"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_6_2">
-                <a href="//www.lazada.co.id/beli-makeup/">
+                <a href="https://www.ramaakunting.com/download/beli-makeup/">
                     <span>Makeup</span>
                 </a>
                         <script type="text" class="J_data_5_1">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Makeup Bibir","childCategoryUrl":"//www.lazada.co.id/beli-make-up-bibir"},{"childCategoryName":"Lipstik","childCategoryUrl":"//www.lazada.co.id/beli-lipstik"},{"childCategoryName":"Makeup Wajah","childCategoryUrl":"//www.lazada.co.id/makeup-wajah"},{"childCategoryName":"Foundation","childCategoryUrl":"//www.lazada.co.id/beli-foundation"},{"childCategoryName":"Makeup Mata","childCategoryUrl":"//www.lazada.co.id/beli-mata"},{"childCategoryName":"Maskara","childCategoryUrl":"//www.lazada.co.id/beli-maskara"},{"childCategoryName":"Aksesoris Makeup","childCategoryUrl":"//www.lazada.co.id/beli-aksesoris-makeup"},{"childCategoryName":"Set Kuas & Kuas Makeup","childCategoryUrl":"//www.lazada.co.id/beli-kuas-aplikator"},{"childCategoryName":"Perawatan Kuku","childCategoryUrl":"//www.lazada.co.id/beli-perawatan-kuku"},{"childCategoryName":"Set Makeup & Palet","childCategoryUrl":"//www.lazada.co.id/shop-palet-set-makeup"},{"childCategoryName":"Pembersih Makeup","childCategoryUrl":"//www.lazada.co.id/beli-pembersih-makeup"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Makeup Bibir","childCategoryUrl":"https://www.ramaakunting.com/download/beli-make-up-bibir"},{"childCategoryName":"Lipstik","childCategoryUrl":"https://www.ramaakunting.com/download/beli-lipstik"},{"childCategoryName":"Makeup Wajah","childCategoryUrl":"https://www.ramaakunting.com/download/makeup-wajah"},{"childCategoryName":"Foundation","childCategoryUrl":"https://www.ramaakunting.com/download/beli-foundation"},{"childCategoryName":"Makeup Mata","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mata"},{"childCategoryName":"Maskara","childCategoryUrl":"https://www.ramaakunting.com/download/beli-maskara"},{"childCategoryName":"Aksesoris Makeup","childCategoryUrl":"https://www.ramaakunting.com/download/beli-aksesoris-makeup"},{"childCategoryName":"Set Kuas & Kuas Makeup","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kuas-aplikator"},{"childCategoryName":"Perawatan Kuku","childCategoryUrl":"https://www.ramaakunting.com/download/beli-perawatan-kuku"},{"childCategoryName":"Set Makeup & Palet","childCategoryUrl":"https://www.ramaakunting.com/download/shop-palet-set-makeup"},{"childCategoryName":"Pembersih Makeup","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pembersih-makeup"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_6_3">
-                <a href="//www.lazada.co.id/beli-perawatan-rambut/">
+                <a href="https://www.ramaakunting.com/download/beli-perawatan-rambut/">
                     <span>Perawatan Rambut</span>
                 </a>
                         <script type="text" class="J_data_5_2">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Shampo","childCategoryUrl":"//www.lazada.co.id/beli-sampo"},{"childCategoryName":"Perawatan Rambut","childCategoryUrl":"//www.lazada.co.id/perawatan-intensif"},{"childCategoryName":"Aksesoris Rambut","childCategoryUrl":"//www.lazada.co.id/aksesoris-perawatan-rambut"},{"childCategoryName":"Styling Rambut","childCategoryUrl":"//www.lazada.co.id/beli-styling-rambut"},{"childCategoryName":"Pewarna Rambut","childCategoryUrl":"//www.lazada.co.id/beli-cat-rambut"},{"childCategoryName":"Kondisioner","childCategoryUrl":"//www.lazada.co.id/beli-kondisioner"},{"childCategoryName":"Paket Hadiah","childCategoryUrl":"//www.lazada.co.id/beli-paket-hadiah-bingkisan-perawatan-rambut"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Shampo","childCategoryUrl":"https://www.ramaakunting.com/download/beli-sampo"},{"childCategoryName":"Perawatan Rambut","childCategoryUrl":"https://www.ramaakunting.com/download/perawatan-intensif"},{"childCategoryName":"Aksesoris Rambut","childCategoryUrl":"https://www.ramaakunting.com/download/aksesoris-perawatan-rambut"},{"childCategoryName":"Styling Rambut","childCategoryUrl":"https://www.ramaakunting.com/download/beli-styling-rambut"},{"childCategoryName":"Pewarna Rambut","childCategoryUrl":"https://www.ramaakunting.com/download/beli-cat-rambut"},{"childCategoryName":"Kondisioner","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kondisioner"},{"childCategoryName":"Paket Hadiah","childCategoryUrl":"https://www.ramaakunting.com/download/beli-paket-hadiah-bingkisan-perawatan-rambut"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_6_4">
-                <a href="//www.lazada.co.id/beli-perlengkapan-mandi-tubuh/">
+                <a href="https://www.ramaakunting.com/download/beli-perlengkapan-mandi-tubuh/">
                     <span>Perawatan Tubuh</span>
                 </a>
                         <script type="text" class="J_data_5_3">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Losion Tubuh","childCategoryUrl":"//www.lazada.co.id/beli-losion-krim-tubuh"},{"childCategoryName":"Sabun Cair","childCategoryUrl":"//www.lazada.co.id/shop-Sabun-Cair"},{"childCategoryName":"Scrub Tubuh","childCategoryUrl":"//www.lazada.co.id/beli-scrub-tubuh"},{"childCategoryName":"Perawatan Payudara","childCategoryUrl":"//www.lazada.co.id/perawatan-payudara"},{"childCategoryName":"Perawatan Tubuh","childCategoryUrl":"//www.lazada.co.id/shop-Perawatan-Tubuh"},{"childCategoryName":"Perawatan Kaki","childCategoryUrl":"//www.lazada.co.id/beli-perawatan-kaki"},{"childCategoryName":"Sabun Batang","childCategoryUrl":"//www.lazada.co.id/shop-Sabun-Batang"},{"childCategoryName":"Aksesoris Tubuh","childCategoryUrl":"//www.lazada.co.id/beli-aksesoris-perlengkapan-mandi-tubuh"},{"childCategoryName":"Paket Hadiah","childCategoryUrl":"//www.lazada.co.id/beli-paket-hadiah-bingkisan-alat-mandi-tubuh"},{"childCategoryName":"Penghilang Bulu","childCategoryUrl":"//www.lazada.co.id/beli-perontok-rambut"},{"childCategoryName":"Sabun Tangan","childCategoryUrl":"//www.lazada.co.id/beli-sabun-pembersih-tangan"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Losion Tubuh","childCategoryUrl":"https://www.ramaakunting.com/download/beli-losion-krim-tubuh"},{"childCategoryName":"Sabun Cair","childCategoryUrl":"https://www.ramaakunting.com/download/shop-Sabun-Cair"},{"childCategoryName":"Scrub Tubuh","childCategoryUrl":"https://www.ramaakunting.com/download/beli-scrub-tubuh"},{"childCategoryName":"Perawatan Payudara","childCategoryUrl":"https://www.ramaakunting.com/download/perawatan-payudara"},{"childCategoryName":"Perawatan Tubuh","childCategoryUrl":"https://www.ramaakunting.com/download/shop-Perawatan-Tubuh"},{"childCategoryName":"Perawatan Kaki","childCategoryUrl":"https://www.ramaakunting.com/download/beli-perawatan-kaki"},{"childCategoryName":"Sabun Batang","childCategoryUrl":"https://www.ramaakunting.com/download/shop-Sabun-Batang"},{"childCategoryName":"Aksesoris Tubuh","childCategoryUrl":"https://www.ramaakunting.com/download/beli-aksesoris-perlengkapan-mandi-tubuh"},{"childCategoryName":"Paket Hadiah","childCategoryUrl":"https://www.ramaakunting.com/download/beli-paket-hadiah-bingkisan-alat-mandi-tubuh"},{"childCategoryName":"Penghilang Bulu","childCategoryUrl":"https://www.ramaakunting.com/download/beli-perontok-rambut"},{"childCategoryName":"Sabun Tangan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-sabun-pembersih-tangan"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_6_5">
-                <a href="//www.lazada.co.id/beli-perawatan-kesehatan-pribadi/">
+                <a href="https://www.ramaakunting.com/download/beli-perawatan-kesehatan-pribadi/">
                     <span>Perawatan Diri</span>
                 </a>
                         <script type="text" class="J_data_5_4">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Perawatan Mulut","childCategoryUrl":"//www.lazada.co.id/perawatan-mulut"},{"childCategoryName":"Pembersih Wanita","childCategoryUrl":"//www.lazada.co.id/beli-pembersih-wanita"},{"childCategoryName":"Keamanan Diri","childCategoryUrl":"//www.lazada.co.id/beli-keamanan-diri"},{"childCategoryName":"Beli Deodoran","childCategoryUrl":"//www.lazada.co.id/beli-deodoran"},{"childCategoryName":"Perawatan Mata","childCategoryUrl":"//www.lazada.co.id/shop-perawatan-optik-pribadi"},{"childCategoryName":"Obat Anti Serangga","childCategoryUrl":"//www.lazada.co.id/shop-Obat-Anti-Serangga"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Perawatan Mulut","childCategoryUrl":"https://www.ramaakunting.com/download/perawatan-mulut"},{"childCategoryName":"Pembersih Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pembersih-wanita"},{"childCategoryName":"Keamanan Diri","childCategoryUrl":"https://www.ramaakunting.com/download/beli-keamanan-diri"},{"childCategoryName":"Beli Deodoran","childCategoryUrl":"https://www.ramaakunting.com/download/beli-deodoran"},{"childCategoryName":"Perawatan Mata","childCategoryUrl":"https://www.ramaakunting.com/download/shop-perawatan-optik-pribadi"},{"childCategoryName":"Obat Anti Serangga","childCategoryUrl":"https://www.ramaakunting.com/download/shop-Obat-Anti-Serangga"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_6_6">
-                <a href="//www.lazada.co.id/beli-parfum/">
+                <a href="https://www.ramaakunting.com/download/beli-parfum/">
                     <span>Parfum</span>
                 </a>
                         <script type="text" class="J_data_5_5">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Pria","childCategoryUrl":"//www.lazada.co.id/beli-parfum-pria"},{"childCategoryName":"Wanita","childCategoryUrl":"//www.lazada.co.id/beli-parfum-wanita"},{"childCategoryName":"Unisex","childCategoryUrl":"//www.lazada.co.id/beli-parfum-unisex"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Pria","childCategoryUrl":"https://www.ramaakunting.com/download/beli-parfum-pria"},{"childCategoryName":"Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/beli-parfum-wanita"},{"childCategoryName":"Unisex","childCategoryUrl":"https://www.ramaakunting.com/download/beli-parfum-unisex"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_6_7">
-                <a href="//www.lazada.co.id/beli-alat-kesehatan-kecantikan/">
+                <a href="https://www.ramaakunting.com/download/beli-alat-kesehatan-kecantikan/">
                     <span>Alat Kecantikan</span>
                 </a>
                         <script type="text" class="J_data_5_6">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Alat Pelangsing & Pijat","childCategoryUrl":"//www.lazada.co.id/alat-pelangsing-dan-pemijat-elektrik"},{"childCategoryName":"Sauna Portabel","childCategoryUrl":"//www.lazada.co.id/beli-sauna-portabel"},{"childCategoryName":"Foot Relief","childCategoryUrl":"//www.lazada.co.id/beli-foot-relief"},{"childCategoryName":"Alat Cukur & Trimmer","childCategoryUrl":"//www.lazada.co.id/aksesoris-alat-cukur-dan-trimmer"},{"childCategoryName":"Alat Perawatan Wajah","childCategoryUrl":"//www.lazada.co.id/shop-alat-perawatan-kulit-wajah"},{"childCategoryName":"Alat Perawatan Tubuh","childCategoryUrl":"//www.lazada.co.id/shop-alat-perawatan-kulit-tubuh"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Alat Pelangsing & Pijat","childCategoryUrl":"https://www.ramaakunting.com/download/alat-pelangsing-dan-pemijat-elektrik"},{"childCategoryName":"Sauna Portabel","childCategoryUrl":"https://www.ramaakunting.com/download/beli-sauna-portabel"},{"childCategoryName":"Foot Relief","childCategoryUrl":"https://www.ramaakunting.com/download/beli-foot-relief"},{"childCategoryName":"Alat Cukur & Trimmer","childCategoryUrl":"https://www.ramaakunting.com/download/aksesoris-alat-cukur-dan-trimmer"},{"childCategoryName":"Alat Perawatan Wajah","childCategoryUrl":"https://www.ramaakunting.com/download/shop-alat-perawatan-kulit-wajah"},{"childCategoryName":"Alat Perawatan Tubuh","childCategoryUrl":"https://www.ramaakunting.com/download/shop-alat-perawatan-kulit-tubuh"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_6_8">
-                <a href="//www.lazada.co.id/beli-suplemen-makanan/">
+                <a href="https://www.ramaakunting.com/download/beli-suplemen-makanan/">
                     <span>Suplemen Makanan</span>
                 </a>
                         <script type="text" class="J_data_5_7">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Pengatur Berat Badan","childCategoryUrl":"//www.lazada.co.id/beli-pengatur-berat-badan"},{"childCategoryName":"Pembakar Lemak","childCategoryUrl":"//www.lazada.co.id/beli-pembakar-lemak"},{"childCategoryName":"Minuman Pelangsing","childCategoryUrl":"//www.lazada.co.id/beli-minuman-pelangsing"},{"childCategoryName":"Suplemen Kecantikan","childCategoryUrl":"//www.lazada.co.id/beli-suplemen-kecantikan"},{"childCategoryName":"Suplemen Pemutih","childCategoryUrl":"//www.lazada.co.id/beli-suplemen-pemutih"},{"childCategoryName":"Multivitamin","childCategoryUrl":"//www.lazada.co.id/multivitamin/"},{"childCategoryName":"Obat Tradisional","childCategoryUrl":"//www.lazada.co.id/beli-obat-obatan-tradisional"},{"childCategoryName":"Sistem Imun","childCategoryUrl":"//www.lazada.co.id/beli-sistem-imun"},{"childCategoryName":"Nutrisi Olahraga","childCategoryUrl":"//www.lazada.co.id/beli-nutrisi-olahraga"},{"childCategoryName":"Penambah Berat Badan","childCategoryUrl":"//www.lazada.co.id/beli-suplemen-penambah-berat-badan"},{"childCategoryName":"Protein","childCategoryUrl":"//www.lazada.co.id/beli-protein"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Pengatur Berat Badan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pengatur-berat-badan"},{"childCategoryName":"Pembakar Lemak","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pembakar-lemak"},{"childCategoryName":"Minuman Pelangsing","childCategoryUrl":"https://www.ramaakunting.com/download/beli-minuman-pelangsing"},{"childCategoryName":"Suplemen Kecantikan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-suplemen-kecantikan"},{"childCategoryName":"Suplemen Pemutih","childCategoryUrl":"https://www.ramaakunting.com/download/beli-suplemen-pemutih"},{"childCategoryName":"Multivitamin","childCategoryUrl":"https://www.ramaakunting.com/download/multivitamin/"},{"childCategoryName":"Obat Tradisional","childCategoryUrl":"https://www.ramaakunting.com/download/beli-obat-obatan-tradisional"},{"childCategoryName":"Sistem Imun","childCategoryUrl":"https://www.ramaakunting.com/download/beli-sistem-imun"},{"childCategoryName":"Nutrisi Olahraga","childCategoryUrl":"https://www.ramaakunting.com/download/beli-nutrisi-olahraga"},{"childCategoryName":"Penambah Berat Badan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-suplemen-penambah-berat-badan"},{"childCategoryName":"Protein","childCategoryUrl":"https://www.ramaakunting.com/download/beli-protein"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_6_9">
-                <a href="//www.lazada.co.id/beli-alat-medis/">
+                <a href="https://www.ramaakunting.com/download/beli-alat-medis/">
                     <span>Alat Medis</span>
                 </a>
                         <script type="text" class="J_data_5_8">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Aksesoris Kesehatan","childCategoryUrl":"//www.lazada.co.id/aksesoris-kesehatan"},{"childCategoryName":"Alat Tes Kesehatan","childCategoryUrl":"//www.lazada.co.id/beli-alat-tes-kesehatan"},{"childCategoryName":"Obat-Obatan","childCategoryUrl":"//www.lazada.co.id/shop-over-the-counter-medicine/"},{"childCategoryName":"Perban & Perlengkapan Cedera","childCategoryUrl":"//www.lazada.co.id/perban-alat-terapi-cedera"},{"childCategoryName":"Timbangan & Alat Kadar Lemak","childCategoryUrl":"//www.lazada.co.id/beli-timbangan-alat-ukur-kadar-lemak"},{"childCategoryName":"P3K","childCategoryUrl":"//www.lazada.co.id/beli-p3k"},{"childCategoryName":"Kursi Roda","childCategoryUrl":"//www.lazada.co.id/beli-kursi-roda"},{"childCategoryName":"Salep & Krim","childCategoryUrl":"//www.lazada.co.id/shop-salep-dan-krim"},{"childCategoryName":"Alat Inhalasi & Nebulizer","childCategoryUrl":"//www.lazada.co.id/beli-alat-inhalasi-nebulizer"},{"childCategoryName":"Alat Tes Medis","childCategoryUrl":"//www.lazada.co.id/tes-medis"},{"childCategoryName":"Stetoskop","childCategoryUrl":"//www.lazada.co.id/beli-stetoskop"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Aksesoris Kesehatan","childCategoryUrl":"https://www.ramaakunting.com/download/aksesoris-kesehatan"},{"childCategoryName":"Alat Tes Kesehatan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-alat-tes-kesehatan"},{"childCategoryName":"Obat-Obatan","childCategoryUrl":"https://www.ramaakunting.com/download/shop-over-the-counter-medicine/"},{"childCategoryName":"Perban & Perlengkapan Cedera","childCategoryUrl":"https://www.ramaakunting.com/download/perban-alat-terapi-cedera"},{"childCategoryName":"Timbangan & Alat Kadar Lemak","childCategoryUrl":"https://www.ramaakunting.com/download/beli-timbangan-alat-ukur-kadar-lemak"},{"childCategoryName":"P3K","childCategoryUrl":"https://www.ramaakunting.com/download/beli-p3k"},{"childCategoryName":"Kursi Roda","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kursi-roda"},{"childCategoryName":"Salep & Krim","childCategoryUrl":"https://www.ramaakunting.com/download/shop-salep-dan-krim"},{"childCategoryName":"Alat Inhalasi & Nebulizer","childCategoryUrl":"https://www.ramaakunting.com/download/beli-alat-inhalasi-nebulizer"},{"childCategoryName":"Alat Tes Medis","childCategoryUrl":"https://www.ramaakunting.com/download/tes-medis"},{"childCategoryName":"Stetoskop","childCategoryUrl":"https://www.ramaakunting.com/download/beli-stetoskop"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_6_10">
-                <a href="//www.lazada.co.id/jual-perlengkapan-kesehatan-seksual/">
+                <a href="https://www.ramaakunting.com/download/jual-perlengkapan-kesehatan-seksual/">
                     <span>Sexual Wellness</span>
                 </a>
                         <script type="text" class="J_data_5_9">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Kondom","childCategoryUrl":"//www.lazada.co.id/beli-kondom"},{"childCategoryName":"Pelumas","childCategoryUrl":"//www.lazada.co.id/beli-pelumas"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Kondom","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kondom"},{"childCategoryName":"Pelumas","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pelumas"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_6_11">
-                <a href="//www.lazada.co.id/beli-perawatan-tubuh-kesehatan-pria/">
+                <a href="https://www.ramaakunting.com/download/beli-perawatan-tubuh-kesehatan-pria/">
                     <span>Perawatan Pria</span>
                 </a>
                         <script type="text" class="J_data_5_10">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Perawatan Rambut","childCategoryUrl":"//www.lazada.co.id/beli-perawatan-rambut-pria"},{"childCategoryName":"Perawatan Wajah","childCategoryUrl":"//www.lazada.co.id/beli-perawatan-kulit-pria"},{"childCategoryName":"Alat Cukur Pria","childCategoryUrl":"//www.lazada.co.id/beli-alat-cukur-pria"},{"childCategoryName":"Perawatan Tubuh","childCategoryUrl":"//www.lazada.co.id/perawatan-tubuh"},{"childCategoryName":"Deodoran Pria","childCategoryUrl":"//www.lazada.co.id/beli-deodoran-pria"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Perawatan Rambut","childCategoryUrl":"https://www.ramaakunting.com/download/beli-perawatan-rambut-pria"},{"childCategoryName":"Perawatan Wajah","childCategoryUrl":"https://www.ramaakunting.com/download/beli-perawatan-kulit-pria"},{"childCategoryName":"Alat Cukur Pria","childCategoryUrl":"https://www.ramaakunting.com/download/beli-alat-cukur-pria"},{"childCategoryName":"Perawatan Tubuh","childCategoryUrl":"https://www.ramaakunting.com/download/perawatan-tubuh"},{"childCategoryName":"Deodoran Pria","childCategoryUrl":"https://www.ramaakunting.com/download/beli-deodoran-pria"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_6_12">
-                <a href="//www.lazada.co.id/kesehatan-manula/">
+                <a href="https://www.ramaakunting.com/download/kesehatan-manula/">
                     <span>Popok Dewasa</span>
                 </a>
                         <script type="text" class="J_data_5_11">
-                            [{"childCategoryName":"Popok Dewasa","childCategoryUrl":"//www.lazada.co.id/kesehatan-manula/"}]
+                            [{"childCategoryName":"Popok Dewasa","childCategoryUrl":"https://www.ramaakunting.com/download/kesehatan-manula/"}]
                         </script>
             </li>
         </ul>
         <ul class="lzd-site-menu-sub Level_1_Category_No7" data-spm="cate_7">
             <li class="lzd-site-menu-sub-item" data-cate="cate_7_1">
-                <a href="//www.lazada.co.id/jual-perlengkapan-bayi-balita/">
+                <a href="https://www.ramaakunting.com/download/jual-perlengkapan-bayi-balita/">
                     <span>Ibu &amp; Anak</span>
                 </a>
                         <script type="text" class="J_data_6_0">
-                            [{"childCategoryName":"Popok Sekali Pakai","childCategoryUrl":"//www.lazada.co.id/beli-popok-sekali-pakai/"},{"childCategoryName":"Bayi (0 - 6 bulan)","childCategoryUrl":"//www.lazada.co.id/beli-susu-bayi-0-6-bulan/"},{"childCategoryName":"Bayi (6 - 12 bulan)","childCategoryUrl":"//www.lazada.co.id/beli-susu-bayi-6-12-bulan/"},{"childCategoryName":"Susu Batita (1- dibawah 3 tahun)","childCategoryUrl":"//www.lazada.co.id/jual-susu-batita-1-3-tahun/"},{"childCategoryName":"Susu Pertumbuhan (>3Tahun)","childCategoryUrl":"//www.lazada.co.id/beli-susu-pertumbuhan-1-3-tahun/"},{"childCategoryName":"Pakaian Bayi Perempuan","childCategoryUrl":"//www.lazada.co.id/beli-pakaian-bayi-perempuan/"},{"childCategoryName":"Pakaian Bayi Laki-Laki","childCategoryUrl":"//www.lazada.co.id/beli-pakaian-bayi-laki-laki/"},{"childCategoryName":"Botol Bayi","childCategoryUrl":"//www.lazada.co.id/beli-botol-bayi/"},{"childCategoryName":"Stroller","childCategoryUrl":"//www.lazada.co.id/beli-kereta-dorong-bayi/"},{"childCategoryName":"Soft Carrier","childCategoryUrl":"//www.lazada.co.id/beli-soft-carrier/"},{"childCategoryName":"Sampo & Kondisioner","childCategoryUrl":"//www.lazada.co.id/beli-sampo-kondisioner-bb/"},{"childCategoryName":"Perawatan Kulit Bayi","childCategoryUrl":"//www.lazada.co.id/beli-perawatan-kulit-pria/"}]
+                            [{"childCategoryName":"Popok Sekali Pakai","childCategoryUrl":"https://www.ramaakunting.com/download/beli-popok-sekali-pakai/"},{"childCategoryName":"Bayi (0 - 6 bulan)","childCategoryUrl":"https://www.ramaakunting.com/download/beli-susu-bayi-0-6-bulan/"},{"childCategoryName":"Bayi (6 - 12 bulan)","childCategoryUrl":"https://www.ramaakunting.com/download/beli-susu-bayi-6-12-bulan/"},{"childCategoryName":"Susu Batita (1- dibawah 3 tahun)","childCategoryUrl":"https://www.ramaakunting.com/download/jual-susu-batita-1-3-tahun/"},{"childCategoryName":"Susu Pertumbuhan (>3Tahun)","childCategoryUrl":"https://www.ramaakunting.com/download/beli-susu-pertumbuhan-1-3-tahun/"},{"childCategoryName":"Pakaian Bayi Perempuan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pakaian-bayi-perempuan/"},{"childCategoryName":"Pakaian Bayi Laki-Laki","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pakaian-bayi-laki-laki/"},{"childCategoryName":"Botol Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-botol-bayi/"},{"childCategoryName":"Stroller","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kereta-dorong-bayi/"},{"childCategoryName":"Soft Carrier","childCategoryUrl":"https://www.ramaakunting.com/download/beli-soft-carrier/"},{"childCategoryName":"Sampo & Kondisioner","childCategoryUrl":"https://www.ramaakunting.com/download/beli-sampo-kondisioner-bb/"},{"childCategoryName":"Perawatan Kulit Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-perawatan-kulit-pria/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_7_2">
-                <a href="//www.lazada.co.id/beli-popok-pispot-bb/">
+                <a href="https://www.ramaakunting.com/download/beli-popok-pispot-bb/">
                     <span>Popok Sekali Pakai</span>
                 </a>
                         <script type="text" class="J_data_6_1">
-                            [{"childCategoryName":"Popok Sekali Pakai","childCategoryUrl":"//www.lazada.co.id/beli-popok-sekali-pakai/"},{"childCategoryName":"Popok Kain & Aksesori","childCategoryUrl":"//www.lazada.co.id/beli-popok-kain/"},{"childCategoryName":"Lap Bayi & Penyangga","childCategoryUrl":"//www.lazada.co.id/beli-lap-bayi-penyangga/"},{"childCategoryName":"Perawatan Popok","childCategoryUrl":"//www.lazada.co.id/beli-perawatan-popok/"},{"childCategoryName":"Krim & Salep Bayi","childCategoryUrl":"//www.lazada.co.id/beli-krim-salep-bayi/"},{"childCategoryName":"Tas Perlengkapan Popok","childCategoryUrl":"//www.lazada.co.id/beli-tas-popok-tb/"},{"childCategoryName":"Meja Ganti Popok","childCategoryUrl":"//www.lazada.co.id/beli-meja-ganti/"},{"childCategoryName":"Cover Popok Kain","childCategoryUrl":"//www.lazada.co.id/beli-bantalan/"},{"childCategoryName":"Lapisan Penyerap & Liner Popok Kain","childCategoryUrl":"//www.lazada.co.id/beli-lapisan-penyerap-liner-popok-kain/"},{"childCategoryName":"Potty Training","childCategoryUrl":"//www.lazada.co.id/beli-potty-training/"},{"childCategoryName":"Bangku Langkah","childCategoryUrl":"//www.lazada.co.id/beli-bangku-langkah/"},{"childCategoryName":"Detergent Laundry","childCategoryUrl":"//www.lazada.co.id/beli-detergen-popok-kain/"}]
+                            [{"childCategoryName":"Popok Sekali Pakai","childCategoryUrl":"https://www.ramaakunting.com/download/beli-popok-sekali-pakai/"},{"childCategoryName":"Popok Kain & Aksesori","childCategoryUrl":"https://www.ramaakunting.com/download/beli-popok-kain/"},{"childCategoryName":"Lap Bayi & Penyangga","childCategoryUrl":"https://www.ramaakunting.com/download/beli-lap-bayi-penyangga/"},{"childCategoryName":"Perawatan Popok","childCategoryUrl":"https://www.ramaakunting.com/download/beli-perawatan-popok/"},{"childCategoryName":"Krim & Salep Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-krim-salep-bayi/"},{"childCategoryName":"Tas Perlengkapan Popok","childCategoryUrl":"https://www.ramaakunting.com/download/beli-tas-popok-tb/"},{"childCategoryName":"Meja Ganti Popok","childCategoryUrl":"https://www.ramaakunting.com/download/beli-meja-ganti/"},{"childCategoryName":"Cover Popok Kain","childCategoryUrl":"https://www.ramaakunting.com/download/beli-bantalan/"},{"childCategoryName":"Lapisan Penyerap & Liner Popok Kain","childCategoryUrl":"https://www.ramaakunting.com/download/beli-lapisan-penyerap-liner-popok-kain/"},{"childCategoryName":"Potty Training","childCategoryUrl":"https://www.ramaakunting.com/download/beli-potty-training/"},{"childCategoryName":"Bangku Langkah","childCategoryUrl":"https://www.ramaakunting.com/download/beli-bangku-langkah/"},{"childCategoryName":"Detergent Laundry","childCategoryUrl":"https://www.ramaakunting.com/download/beli-detergen-popok-kain/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_7_3">
-                <a href="//www.lazada.co.id/beli-susu-formula/">
+                <a href="https://www.ramaakunting.com/download/beli-susu-formula/">
                     <span>Makanan Bayi &amp; Balita</span>
                 </a>
                         <script type="text" class="J_data_6_2">
-                            [{"childCategoryName":"Bayi (0 - 6 bulan)","childCategoryUrl":"//www.lazada.co.id/beli-susu-bayi-0-6-bulan/"},{"childCategoryName":"Bayi (6 - 12 bulan)","childCategoryUrl":"//www.lazada.co.id/beli-susu-bayi-6-12-bulan/"},{"childCategoryName":"Susu Batita (1- dibawah 3 tahun)","childCategoryUrl":"//www.lazada.co.id/jual-susu-batita-1-3-tahun/"},{"childCategoryName":"Susu Pertumbuhan (>3Tahun)","childCategoryUrl":"//www.lazada.co.id/beli-susu-pertumbuhan-1-3-tahun/"},{"childCategoryName":"Nutrisi Khusus Anak","childCategoryUrl":"//www.lazada.co.id/beli-nutrisi-khusus-anak/"},{"childCategoryName":"Minuman","childCategoryUrl":"//www.lazada.co.id/beli-minuman-bayi-balita/"},{"childCategoryName":"Sereal","childCategoryUrl":"//www.lazada.co.id/beli-sereal-bayi-balita/"},{"childCategoryName":"Cracker & Biskuit","childCategoryUrl":"//www.lazada.co.id/beli-cracker-biskuit-bayi-balita/"},{"childCategoryName":"Makanan Ringan","childCategoryUrl":"//www.lazada.co.id/beli-makanan-ringan-bayi-balita/"},{"childCategoryName":"Makanan puree bayi","childCategoryUrl":"//www.lazada.co.id/beli-puree-bayi/"},{"childCategoryName":"Susu Ibu Hamil","childCategoryUrl":"//www.lazada.co.id/beli-susu-maternal/"}]
+                            [{"childCategoryName":"Bayi (0 - 6 bulan)","childCategoryUrl":"https://www.ramaakunting.com/download/beli-susu-bayi-0-6-bulan/"},{"childCategoryName":"Bayi (6 - 12 bulan)","childCategoryUrl":"https://www.ramaakunting.com/download/beli-susu-bayi-6-12-bulan/"},{"childCategoryName":"Susu Batita (1- dibawah 3 tahun)","childCategoryUrl":"https://www.ramaakunting.com/download/jual-susu-batita-1-3-tahun/"},{"childCategoryName":"Susu Pertumbuhan (>3Tahun)","childCategoryUrl":"https://www.ramaakunting.com/download/beli-susu-pertumbuhan-1-3-tahun/"},{"childCategoryName":"Nutrisi Khusus Anak","childCategoryUrl":"https://www.ramaakunting.com/download/beli-nutrisi-khusus-anak/"},{"childCategoryName":"Minuman","childCategoryUrl":"https://www.ramaakunting.com/download/beli-minuman-bayi-balita/"},{"childCategoryName":"Sereal","childCategoryUrl":"https://www.ramaakunting.com/download/beli-sereal-bayi-balita/"},{"childCategoryName":"Cracker & Biskuit","childCategoryUrl":"https://www.ramaakunting.com/download/beli-cracker-biskuit-bayi-balita/"},{"childCategoryName":"Makanan Ringan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-makanan-ringan-bayi-balita/"},{"childCategoryName":"Makanan puree bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-puree-bayi/"},{"childCategoryName":"Susu Ibu Hamil","childCategoryUrl":"https://www.ramaakunting.com/download/beli-susu-maternal/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_7_4">
-                <a href="//www.lazada.co.id/jual-baju-aksesoris-anak/">
+                <a href="https://www.ramaakunting.com/download/jual-baju-aksesoris-anak/">
                     <span>Pakaian &amp; Aksesoris</span>
                 </a>
                         <script type="text" class="J_data_6_3">
-                            [{"childCategoryName":"(0--6 bulan) Set Pakaian","childCategoryUrl":"//www.lazada.co.id/beli-set-pakaian-bayi/"},{"childCategoryName":"(0--6 bulan) Body Suits","childCategoryUrl":"//www.lazada.co.id/beli-bodysuit-one-piece-bayi/"},{"childCategoryName":"(0--6 bulan) Aksesoris","childCategoryUrl":"//www.lazada.co.id/beli-aksesoris-pakaian-anak/"},{"childCategoryName":"Pakaian Bayi Perempuan","childCategoryUrl":"//www.lazada.co.id/beli-pakaian-bayi-perempuan/"},{"childCategoryName":"Dress Bayi Perempuan","childCategoryUrl":"//www.lazada.co.id/beli-dress-bayi-perempuan/"},{"childCategoryName":"Sepatu Bayi Perempuan","childCategoryUrl":"//www.lazada.co.id/beli-sepatu-bayi-perempuan/"},{"childCategoryName":"Aksesoris Bayi Perempuan","childCategoryUrl":"//www.lazada.co.id/beli-aksesoris-bayi-perempuan/"},{"childCategoryName":"Baju Renang Bayi Perempuan","childCategoryUrl":"//www.lazada.co.id/beli-baju-renang-bayi-perempuan/"},{"childCategoryName":"Pakaian Bayi Laki-Laki","childCategoryUrl":"//www.lazada.co.id/beli-pakaian-bayi-laki-laki/"},{"childCategoryName":"Sepatu Bayi Laki-Laki","childCategoryUrl":"//www.lazada.co.id/beli-sepatu-bayi-laki-laki/"},{"childCategoryName":"Aksesoris Bayi Laki-Laki","childCategoryUrl":"//www.lazada.co.id/beli-aksesori-bayi-laki-laki/"},{"childCategoryName":"Baju Renang Bayi Laki-Laki","childCategoryUrl":"//www.lazada.co.id/beli-baju-renang-bayi-laki-laki/"}]
+                            [{"childCategoryName":"(0--6 bulan) Set Pakaian","childCategoryUrl":"https://www.ramaakunting.com/download/beli-set-pakaian-bayi/"},{"childCategoryName":"(0--6 bulan) Body Suits","childCategoryUrl":"https://www.ramaakunting.com/download/beli-bodysuit-one-piece-bayi/"},{"childCategoryName":"(0--6 bulan) Aksesoris","childCategoryUrl":"https://www.ramaakunting.com/download/beli-aksesoris-pakaian-anak/"},{"childCategoryName":"Pakaian Bayi Perempuan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pakaian-bayi-perempuan/"},{"childCategoryName":"Dress Bayi Perempuan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-dress-bayi-perempuan/"},{"childCategoryName":"Sepatu Bayi Perempuan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-sepatu-bayi-perempuan/"},{"childCategoryName":"Aksesoris Bayi Perempuan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-aksesoris-bayi-perempuan/"},{"childCategoryName":"Baju Renang Bayi Perempuan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-baju-renang-bayi-perempuan/"},{"childCategoryName":"Pakaian Bayi Laki-Laki","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pakaian-bayi-laki-laki/"},{"childCategoryName":"Sepatu Bayi Laki-Laki","childCategoryUrl":"https://www.ramaakunting.com/download/beli-sepatu-bayi-laki-laki/"},{"childCategoryName":"Aksesoris Bayi Laki-Laki","childCategoryUrl":"https://www.ramaakunting.com/download/beli-aksesori-bayi-laki-laki/"},{"childCategoryName":"Baju Renang Bayi Laki-Laki","childCategoryUrl":"https://www.ramaakunting.com/download/beli-baju-renang-bayi-laki-laki/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_7_5">
-                <a href="//www.lazada.co.id/beli-makanan-bayi/">
+                <a href="https://www.ramaakunting.com/download/beli-makanan-bayi/">
                     <span>Perlengkapan Menyusui</span>
                 </a>
                         <script type="text" class="J_data_6_4">
-                            [{"childCategoryName":"Botol Bayi","childCategoryUrl":"//www.lazada.co.id/beli-botol-bayi/"},{"childCategoryName":"Botol","childCategoryUrl":"//www.lazada.co.id/beli-botol-bayi-balita/"},{"childCategoryName":"Aksesoris Dot Botol","childCategoryUrl":"//www.lazada.co.id/jual-aksesoris-botol-dot-bayi/"},{"childCategoryName":"Penghangat & Sterilizers","childCategoryUrl":"//www.lazada.co.id/beli-penghangat-sterilizer/"},{"childCategoryName":"Pompa Asi","childCategoryUrl":"//www.lazada.co.id/jual-pompa-asi/"},{"childCategoryName":"Aksesesoris Pompa Asi","childCategoryUrl":"//www.lazada.co.id/jual-aksesoris-pompa-asi/"},{"childCategoryName":"Perawatan Payudara","childCategoryUrl":"//www.lazada.co.id/beli-perawatan-puting/"},{"childCategoryName":"Bantal Menyusui","childCategoryUrl":"//www.lazada.co.id/beli-bantal-kursi-bayi/"},{"childCategoryName":"Kursi Bayi","childCategoryUrl":"//www.lazada.co.id/beli-kursi-tinggi-bayi-kursi-booster/"},{"childCategoryName":"Food Blenders","childCategoryUrl":"//www.lazada.co.id/beli-blender-makanan-bayi/"},{"childCategoryName":"Peralatan Makan Bayi","childCategoryUrl":"//www.lazada.co.id/beli-perlengkapan-makan-bayi-bb/"},{"childCategoryName":"Set Peralatan Makan Bayi","childCategoryUrl":"//www.lazada.co.id/jual-piring-mangkok-bayi/"}]
+                            [{"childCategoryName":"Botol Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-botol-bayi/"},{"childCategoryName":"Botol","childCategoryUrl":"https://www.ramaakunting.com/download/beli-botol-bayi-balita/"},{"childCategoryName":"Aksesoris Dot Botol","childCategoryUrl":"https://www.ramaakunting.com/download/jual-aksesoris-botol-dot-bayi/"},{"childCategoryName":"Penghangat & Sterilizers","childCategoryUrl":"https://www.ramaakunting.com/download/beli-penghangat-sterilizer/"},{"childCategoryName":"Pompa Asi","childCategoryUrl":"https://www.ramaakunting.com/download/jual-pompa-asi/"},{"childCategoryName":"Aksesesoris Pompa Asi","childCategoryUrl":"https://www.ramaakunting.com/download/jual-aksesoris-pompa-asi/"},{"childCategoryName":"Perawatan Payudara","childCategoryUrl":"https://www.ramaakunting.com/download/beli-perawatan-puting/"},{"childCategoryName":"Bantal Menyusui","childCategoryUrl":"https://www.ramaakunting.com/download/beli-bantal-kursi-bayi/"},{"childCategoryName":"Kursi Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kursi-tinggi-bayi-kursi-booster/"},{"childCategoryName":"Food Blenders","childCategoryUrl":"https://www.ramaakunting.com/download/beli-blender-makanan-bayi/"},{"childCategoryName":"Peralatan Makan Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-perlengkapan-makan-bayi-bb/"},{"childCategoryName":"Set Peralatan Makan Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/jual-piring-mangkok-bayi/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_7_6">
-                <a href="//www.lazada.co.id/beli-perlengkapan-berkendara-bayi/">
+                <a href="https://www.ramaakunting.com/download/beli-perlengkapan-berkendara-bayi/">
                     <span>Perlengkapan Bayi</span>
                 </a>
                         <script type="text" class="J_data_6_5">
-                            [{"childCategoryName":"Sling Bayi","childCategoryUrl":"//www.lazada.co.id/beli-sling-bayi/"},{"childCategoryName":"Soft Carrier","childCategoryUrl":"//www.lazada.co.id/beli-soft-carrier/"},{"childCategoryName":"Stroller","childCategoryUrl":"//www.lazada.co.id/beli-kereta-dorong-bayi/"},{"childCategoryName":"Car Seat","childCategoryUrl":"//www.lazada.co.id/beli-car-seat-bb/"},{"childCategoryName":"Playard","childCategoryUrl":"//www.lazada.co.id/beli-playard/"},{"childCategoryName":"Ayunan, Jumper & Bouncer Bayi","childCategoryUrl":"//www.lazada.co.id/beli-ayunan-jumper-bouncer-bayi/"},{"childCategoryName":"Walker","childCategoryUrl":"//www.lazada.co.id/beli-walker/"},{"childCategoryName":"Tempat Duduk & Trailer Sepeda","childCategoryUrl":"//www.lazada.co.id/beli-tempat-duduk-trailer-sepeda/"},{"childCategoryName":"Tas Anak","childCategoryUrl":"//www.lazada.co.id/beli-tas-anak/"},{"childCategoryName":"Koper Anak","childCategoryUrl":"//www.lazada.co.id/beli-koper-anak/"},{"childCategoryName":"Tali & Harness Bayi","childCategoryUrl":"//www.lazada.co.id/beli-tali-harness-bayi/"}]
+                            [{"childCategoryName":"Sling Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-sling-bayi/"},{"childCategoryName":"Soft Carrier","childCategoryUrl":"https://www.ramaakunting.com/download/beli-soft-carrier/"},{"childCategoryName":"Stroller","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kereta-dorong-bayi/"},{"childCategoryName":"Car Seat","childCategoryUrl":"https://www.ramaakunting.com/download/beli-car-seat-bb/"},{"childCategoryName":"Playard","childCategoryUrl":"https://www.ramaakunting.com/download/beli-playard/"},{"childCategoryName":"Ayunan, Jumper & Bouncer Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-ayunan-jumper-bouncer-bayi/"},{"childCategoryName":"Walker","childCategoryUrl":"https://www.ramaakunting.com/download/beli-walker/"},{"childCategoryName":"Tempat Duduk & Trailer Sepeda","childCategoryUrl":"https://www.ramaakunting.com/download/beli-tempat-duduk-trailer-sepeda/"},{"childCategoryName":"Tas Anak","childCategoryUrl":"https://www.ramaakunting.com/download/beli-tas-anak/"},{"childCategoryName":"Koper Anak","childCategoryUrl":"https://www.ramaakunting.com/download/beli-koper-anak/"},{"childCategoryName":"Tali & Harness Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-tali-harness-bayi/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_7_7">
-                <a href="//www.lazada.co.id/jual-perlengkapan-kamar-bayi/">
+                <a href="https://www.ramaakunting.com/download/jual-perlengkapan-kamar-bayi/">
                     <span>Kamar Bayi</span>
                 </a>
                         <script type="text" class="J_data_6_6">
-                            [{"childCategoryName":"Matras Bayi","childCategoryUrl":"//www.lazada.co.id/beli-kasur-seprai-bayi/"},{"childCategoryName":"Selimut Bayi","childCategoryUrl":"//www.lazada.co.id/beli-selimut-bayi/"},{"childCategoryName":"Seprai Keranjang Bayi","childCategoryUrl":"//www.lazada.co.id/beli-seprai-keranjang-bayi/"},{"childCategoryName":"Kelengkapan Alat Tidur Balita","childCategoryUrl":"//www.lazada.co.id/beli-kelengkapan-alat-tidur-balita/"},{"childCategoryName":"Selimut Tebal & Bed Cover Bayi","childCategoryUrl":"//www.lazada.co.id/beli-selimut-tebal-bed-cover-bayi/"},{"childCategoryName":"Bantal, Pelindung & Sarung Bantal Bayi","childCategoryUrl":"//www.lazada.co.id/beli-bantal-pelindung-sarung-bantal-bayi/"},{"childCategoryName":"Furnitur Bayi","childCategoryUrl":"//www.lazada.co.id/beli-furnitur-bayi/"},{"childCategoryName":"Ranjang Bayi","childCategoryUrl":"//www.lazada.co.id/jual-ranjang-bayi/"},{"childCategoryName":"Keranjang Bayi Cradle","childCategoryUrl":"//www.lazada.co.id/beli-keranjang-bayi-cradle/"},{"childCategoryName":"Laci & Lemari Pakaian Bayi","childCategoryUrl":"//www.lazada.co.id/beli-laci-lemari-pakaian-bayi/"},{"childCategoryName":"Penyimpanan","childCategoryUrl":"//www.lazada.co.id/beli-tempat-pengatur-penyimpanan/"},{"childCategoryName":"Dekorasi Kamar Anak","childCategoryUrl":"//www.lazada.co.id/beli-dekorasi-kamar-anak/"}]
+                            [{"childCategoryName":"Matras Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kasur-seprai-bayi/"},{"childCategoryName":"Selimut Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-selimut-bayi/"},{"childCategoryName":"Seprai Keranjang Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-seprai-keranjang-bayi/"},{"childCategoryName":"Kelengkapan Alat Tidur Balita","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kelengkapan-alat-tidur-balita/"},{"childCategoryName":"Selimut Tebal & Bed Cover Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-selimut-tebal-bed-cover-bayi/"},{"childCategoryName":"Bantal, Pelindung & Sarung Bantal Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-bantal-pelindung-sarung-bantal-bayi/"},{"childCategoryName":"Furnitur Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-furnitur-bayi/"},{"childCategoryName":"Ranjang Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/jual-ranjang-bayi/"},{"childCategoryName":"Keranjang Bayi Cradle","childCategoryUrl":"https://www.ramaakunting.com/download/beli-keranjang-bayi-cradle/"},{"childCategoryName":"Laci & Lemari Pakaian Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-laci-lemari-pakaian-bayi/"},{"childCategoryName":"Penyimpanan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-tempat-pengatur-penyimpanan/"},{"childCategoryName":"Dekorasi Kamar Anak","childCategoryUrl":"https://www.ramaakunting.com/download/beli-dekorasi-kamar-anak/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_7_8">
-                <a href="//www.lazada.co.id/beli-perlengkapan-mandi-perawatan-kulit-anak/">
+                <a href="https://www.ramaakunting.com/download/beli-perlengkapan-mandi-perawatan-kulit-anak/">
                     <span>Perawatan Bayi</span>
                 </a>
                         <script type="text" class="J_data_6_7">
-                            [{"childCategoryName":"Perawatan Kulit Bayi","childCategoryUrl":"//www.lazada.co.id/beli-perawatan-kulit-bayi/"},{"childCategoryName":"Sampo & Kondisioner","childCategoryUrl":"//www.lazada.co.id/beli-sampo-kondisioner-bb/"},{"childCategoryName":"Sabun & Pembersih Bayi","childCategoryUrl":"//www.lazada.co.id/beli-sabun-pembersih-bayi/"},{"childCategoryName":"Perawatan Mulut Bayi","childCategoryUrl":"//www.lazada.co.id/beli-sikat-gigi-pasta-gigi-bayi/"},{"childCategoryName":"Sikat Gigi & Pasta Gigi","childCategoryUrl":"//www.lazada.co.id/beli-sikat-gigi-pasta-gigi-bayi/"},{"childCategoryName":"Tempat Duduk & Bak Mandi Bayi","childCategoryUrl":"//www.lazada.co.id/beli-tempat-duduk-bak-mandi-bayi/"},{"childCategoryName":"Lap Mandi & Handuk Bayi","childCategoryUrl":"//www.lazada.co.id/jual-handuk-bayi/"},{"childCategoryName":"Pelindung Matahari Bayi","childCategoryUrl":"//www.lazada.co.id/beli-pelindung-matahari-bayi/"},{"childCategoryName":"Aromaterapi Bayi","childCategoryUrl":"//www.lazada.co.id/beli-aromaterapi-bayi/"},{"childCategoryName":"Perlengkapan Mandi Bayi","childCategoryUrl":"//www.lazada.co.id/beli-perlengkapan-mandi-bayi-bb/"},{"childCategoryName":"Alas Mandi Bayi Anti Slip","childCategoryUrl":"//www.lazada.co.id/beli-alas-mandi-bayi-anti-slip/"}]
+                            [{"childCategoryName":"Perawatan Kulit Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-perawatan-kulit-bayi/"},{"childCategoryName":"Sampo & Kondisioner","childCategoryUrl":"https://www.ramaakunting.com/download/beli-sampo-kondisioner-bb/"},{"childCategoryName":"Sabun & Pembersih Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-sabun-pembersih-bayi/"},{"childCategoryName":"Perawatan Mulut Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-sikat-gigi-pasta-gigi-bayi/"},{"childCategoryName":"Sikat Gigi & Pasta Gigi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-sikat-gigi-pasta-gigi-bayi/"},{"childCategoryName":"Tempat Duduk & Bak Mandi Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-tempat-duduk-bak-mandi-bayi/"},{"childCategoryName":"Lap Mandi & Handuk Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/jual-handuk-bayi/"},{"childCategoryName":"Pelindung Matahari Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pelindung-matahari-bayi/"},{"childCategoryName":"Aromaterapi Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-aromaterapi-bayi/"},{"childCategoryName":"Perlengkapan Mandi Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-perlengkapan-mandi-bayi-bb/"},{"childCategoryName":"Alas Mandi Bayi Anti Slip","childCategoryUrl":"https://www.ramaakunting.com/download/beli-alas-mandi-bayi-anti-slip/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_7_9">
-                <a href="//www.lazada.co.id/beli-mainan-anak/">
+                <a href="https://www.ramaakunting.com/download/beli-mainan-anak/">
                     <span>Mainan</span>
                 </a>
                         <script type="text" class="J_data_6_8">
-                            [{"childCategoryName":"Action Figure & Mainan Koleksi","childCategoryUrl":"//www.lazada.co.id/jual-koleksi-mainan-action-figure/"},{"childCategoryName":"Mainan Koleksi","childCategoryUrl":"//www.lazada.co.id/beli-mainan-koleksi-tg/"},{"childCategoryName":"Mini Figur","childCategoryUrl":"//www.lazada.co.id/beli-mini-figure-tg/"},{"childCategoryName":"Kerajinan Tangan","childCategoryUrl":"//www.lazada.co.id/beli-kerajinan-tangan-kesenian-anak/"},{"childCategoryName":"Mainan Blok","childCategoryUrl":"//www.lazada.co.id/beli-mainan-balok-bangunan/"},{"childCategoryName":"Boneka & Aksesoris","childCategoryUrl":"//www.lazada.co.id/beli-boneka-aksesori/"},{"childCategoryName":"Kostum Pesta","childCategoryUrl":"//www.lazada.co.id/beli-mainan-dress-up/"},{"childCategoryName":"Mainan Edukasi","childCategoryUrl":"//www.lazada.co.id/beli-mainan-pembelajaran-edukasi/"},{"childCategoryName":"Puzzle & Games","childCategoryUrl":"//www.lazada.co.id/beli-permainan-tradisional/"},{"childCategoryName":"Hobi & Hiburan","childCategoryUrl":"//www.lazada.co.id/Shop-Hobbies-Entertainment/"},{"childCategoryName":"Perlengkapan Pesta","childCategoryUrl":"//www.lazada.co.id/beli-perlengkapan-pesta/"}]
+                            [{"childCategoryName":"Action Figure & Mainan Koleksi","childCategoryUrl":"https://www.ramaakunting.com/download/jual-koleksi-mainan-action-figure/"},{"childCategoryName":"Mainan Koleksi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mainan-koleksi-tg/"},{"childCategoryName":"Mini Figur","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mini-figure-tg/"},{"childCategoryName":"Kerajinan Tangan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kerajinan-tangan-kesenian-anak/"},{"childCategoryName":"Mainan Blok","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mainan-balok-bangunan/"},{"childCategoryName":"Boneka & Aksesoris","childCategoryUrl":"https://www.ramaakunting.com/download/beli-boneka-aksesori/"},{"childCategoryName":"Kostum Pesta","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mainan-dress-up/"},{"childCategoryName":"Mainan Edukasi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mainan-pembelajaran-edukasi/"},{"childCategoryName":"Puzzle & Games","childCategoryUrl":"https://www.ramaakunting.com/download/beli-permainan-tradisional/"},{"childCategoryName":"Hobi & Hiburan","childCategoryUrl":"https://www.ramaakunting.com/download/Shop-Hobbies-Entertainment/"},{"childCategoryName":"Perlengkapan Pesta","childCategoryUrl":"https://www.ramaakunting.com/download/beli-perlengkapan-pesta/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_7_10">
-                <a href="//www.lazada.co.id/beli-remote-control-mainan-kendaraan/">
+                <a href="https://www.ramaakunting.com/download/beli-remote-control-mainan-kendaraan/">
                     <span>Mainan Elektronik &amp; RC</span>
                 </a>
                         <script type="text" class="J_data_6_9">
-                            [{"childCategoryName":"Mobil Remote Control","childCategoryUrl":"//www.lazada.co.id/beli-kendaraan-rc-baterai/"},{"childCategoryName":"Robot Remote Control","childCategoryUrl":"//www.lazada.co.id/beli-rc-figure-robot/"},{"childCategoryName":"Mobil Die Cast","childCategoryUrl":"//www.lazada.co.id/beli-kendaraan-die-cast/"},{"childCategoryName":"Mainan Mobil","childCategoryUrl":"//www.lazada.co.id/beli-mainan-kendaraan-tg/"},{"childCategoryName":"Mainan Kereta Api & Rel","childCategoryUrl":"//www.lazada.co.id/beli-set-mainan-kereta/"},{"childCategoryName":"Drone Mainan","childCategoryUrl":"//www.lazada.co.id/beli-drones-quadcopters/"},{"childCategoryName":"Helikopter","childCategoryUrl":"//www.lazada.co.id/beli-mainan-helikopter/"},{"childCategoryName":"Video Games & Hiburan","childCategoryUrl":"//www.lazada.co.id/shop-hiburan-video-game/"},{"childCategoryName":"Walkie Talkies","childCategoryUrl":"//www.lazada.co.id/beli-mainan-walkie-talkie/"}]
+                            [{"childCategoryName":"Mobil Remote Control","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kendaraan-rc-baterai/"},{"childCategoryName":"Robot Remote Control","childCategoryUrl":"https://www.ramaakunting.com/download/beli-rc-figure-robot/"},{"childCategoryName":"Mobil Die Cast","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kendaraan-die-cast/"},{"childCategoryName":"Mainan Mobil","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mainan-kendaraan-tg/"},{"childCategoryName":"Mainan Kereta Api & Rel","childCategoryUrl":"https://www.ramaakunting.com/download/beli-set-mainan-kereta/"},{"childCategoryName":"Drone Mainan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-drones-quadcopters/"},{"childCategoryName":"Helikopter","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mainan-helikopter/"},{"childCategoryName":"Video Games & Hiburan","childCategoryUrl":"https://www.ramaakunting.com/download/shop-hiburan-video-game/"},{"childCategoryName":"Walkie Talkies","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mainan-walkie-talkie/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_7_11">
-                <a href="//www.lazada.co.id/beli-olahraga-permainan-luar-ruangan/">
+                <a href="https://www.ramaakunting.com/download/beli-olahraga-permainan-luar-ruangan/">
                     <span>Mainan Olahraga &amp; Luar Ruangan</span>
                 </a>
                         <script type="text" class="J_data_6_10">
-                            [{"childCategoryName":"Kolam Renang & Mainan Air","childCategoryUrl":"//www.lazada.co.id/beli-mainan-air-kolam-renang/"},{"childCategoryName":"Mainan Olahraga","childCategoryUrl":"//www.lazada.co.id/shop-mainan-baseball-softball/"},{"childCategoryName":"Mainan Luar Ruangan","childCategoryUrl":"//www.lazada.co.id/beli-aktivitas-dan-olahraga-luar-ruangan/"},{"childCategoryName":"Mainan Blaster","childCategoryUrl":"//www.lazada.co.id/beli-mainan-blaster/"},{"childCategoryName":"Kolam Bola & Aksesoris","childCategoryUrl":"//www.lazada.co.id/beli-bola-pit-aksesori/"},{"childCategoryName":"Mainan Terbang","childCategoryUrl":"//www.lazada.co.id/beli-mainan-terbang/"},{"childCategoryName":"Layangan & Kincir Angin","childCategoryUrl":"//www.lazada.co.id/beli-mainan-layang-layang/"},{"childCategoryName":"Istana Balon","childCategoryUrl":"//www.lazada.co.id/beli-balon-loncat-istana-balon/"},{"childCategoryName":"Yoyo & Kendama","childCategoryUrl":"//www.lazada.co.id/beli-yo-yo-kendama/"},{"childCategoryName":"Set Mainan Taman Bermain","childCategoryUrl":"//www.lazada.co.id/beli-set-peralatan-permainan-playground/"},{"childCategoryName":"Kemah & Terowongan Mainan","childCategoryUrl":"//www.lazada.co.id/beli-mainan-tenda-terowongan/"},{"childCategoryName":"Mainan Rumah-rumahan","childCategoryUrl":"//www.lazada.co.id/beli-playhouses/"}]
+                            [{"childCategoryName":"Kolam Renang & Mainan Air","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mainan-air-kolam-renang/"},{"childCategoryName":"Mainan Olahraga","childCategoryUrl":"https://www.ramaakunting.com/download/shop-mainan-baseball-softball/"},{"childCategoryName":"Mainan Luar Ruangan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-aktivitas-dan-olahraga-luar-ruangan/"},{"childCategoryName":"Mainan Blaster","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mainan-blaster/"},{"childCategoryName":"Kolam Bola & Aksesoris","childCategoryUrl":"https://www.ramaakunting.com/download/beli-bola-pit-aksesori/"},{"childCategoryName":"Mainan Terbang","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mainan-terbang/"},{"childCategoryName":"Layangan & Kincir Angin","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mainan-layang-layang/"},{"childCategoryName":"Istana Balon","childCategoryUrl":"https://www.ramaakunting.com/download/beli-balon-loncat-istana-balon/"},{"childCategoryName":"Yoyo & Kendama","childCategoryUrl":"https://www.ramaakunting.com/download/beli-yo-yo-kendama/"},{"childCategoryName":"Set Mainan Taman Bermain","childCategoryUrl":"https://www.ramaakunting.com/download/beli-set-peralatan-permainan-playground/"},{"childCategoryName":"Kemah & Terowongan Mainan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mainan-tenda-terowongan/"},{"childCategoryName":"Mainan Rumah-rumahan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-playhouses/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_7_12">
-                <a href="//www.lazada.co.id/baby-toddler-toys/">
+                <a href="https://www.ramaakunting.com/download/baby-toddler-toys/">
                     <span>Mainan Bayi &amp; Balita</span>
                 </a>
                         <script type="text" class="J_data_6_11">
-                            [{"childCategoryName":"Playgym & Playmat","childCategoryUrl":"//www.lazada.co.id/jual-mainan-gym-anak/"},{"childCategoryName":"Mainan Blok","childCategoryUrl":"//www.lazada.co.id/beli-mainan-balok-bangunan/"},{"childCategoryName":"Mainan Mandi","childCategoryUrl":"//www.lazada.co.id/beli-mainan-mandi-anak-tg/"},{"childCategoryName":"Mainan Tidur Bayi","childCategoryUrl":"//www.lazada.co.id/beli-mainan-keranjang-bayi-perlengkapannya-tg/"},{"childCategoryName":"Mainan Balita","childCategoryUrl":"//www.lazada.co.id/beli-mainan-edukatif-anak-tg/"},{"childCategoryName":"Mainan Musik & Suara","childCategoryUrl":"//www.lazada.co.id/beli-musik-suara-tg/"},{"childCategoryName":"Mainan Tarik Ulur","childCategoryUrl":"//www.lazada.co.id/beli-mainan-dorong-tarik-tg/"},{"childCategoryName":"Mainan Shape Sorting","childCategoryUrl":"//www.lazada.co.id/beli-mainan-shape-sorting-tg/"},{"childCategoryName":"Indoor Climbers & Play Structures","childCategoryUrl":"//www.lazada.co.id/beli-indoor-climbers-play-structure-tg/"},{"childCategoryName":"Rocking & Spring Ride-Ons","childCategoryUrl":"//www.lazada.co.id/beli-rocking-spring-ride-on-tg/"}]
+                            [{"childCategoryName":"Playgym & Playmat","childCategoryUrl":"https://www.ramaakunting.com/download/jual-mainan-gym-anak/"},{"childCategoryName":"Mainan Blok","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mainan-balok-bangunan/"},{"childCategoryName":"Mainan Mandi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mainan-mandi-anak-tg/"},{"childCategoryName":"Mainan Tidur Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mainan-keranjang-bayi-perlengkapannya-tg/"},{"childCategoryName":"Mainan Balita","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mainan-edukatif-anak-tg/"},{"childCategoryName":"Mainan Musik & Suara","childCategoryUrl":"https://www.ramaakunting.com/download/beli-musik-suara-tg/"},{"childCategoryName":"Mainan Tarik Ulur","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mainan-dorong-tarik-tg/"},{"childCategoryName":"Mainan Shape Sorting","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mainan-shape-sorting-tg/"},{"childCategoryName":"Indoor Climbers & Play Structures","childCategoryUrl":"https://www.ramaakunting.com/download/beli-indoor-climbers-play-structure-tg/"},{"childCategoryName":"Rocking & Spring Ride-Ons","childCategoryUrl":"https://www.ramaakunting.com/download/beli-rocking-spring-ride-on-tg/"}]
                         </script>
             </li>
         </ul>
         <ul class="lzd-site-menu-sub Level_1_Category_No8" data-spm="cate_8">
             <li class="lzd-site-menu-sub-item" data-cate="cate_8_1">
-                <a href="//www.lazada.co.id/beli-tv-audio-video-permainan-dan-gadget/">
+                <a href="https://www.ramaakunting.com/download/beli-tv-audio-video-permainan-dan-gadget/">
                     <span>TV &amp; Perangkat Video</span>
                 </a>
                         <script type="text" class="J_data_7_0">
-                            [{"childCategoryName":""},{"childCategoryName":"TV LED","childCategoryUrl":"//www.lazada.co.id/shop-televisi-digital/"},{"childCategoryName":"TV Smart","childCategoryUrl":"//www.lazada.co.id/beli-smart-tv/"},{"childCategoryName":"Blu-Ray/DVD Player","childCategoryUrl":"//www.lazada.co.id/beli-blu-ray-player/"},{"childCategoryName":"Media Player","childCategoryUrl":"//www.lazada.co.id/shop-media-player/"},{"childCategoryName":"Proyektor","childCategoryUrl":"//www.lazada.co.id/beli-proyektor-3/"}]
+                            [{"childCategoryName":""},{"childCategoryName":"TV LED","childCategoryUrl":"https://www.ramaakunting.com/download/shop-televisi-digital/"},{"childCategoryName":"TV Smart","childCategoryUrl":"https://www.ramaakunting.com/download/beli-smart-tv/"},{"childCategoryName":"Blu-Ray/DVD Player","childCategoryUrl":"https://www.ramaakunting.com/download/beli-blu-ray-player/"},{"childCategoryName":"Media Player","childCategoryUrl":"https://www.ramaakunting.com/download/shop-media-player/"},{"childCategoryName":"Proyektor","childCategoryUrl":"https://www.ramaakunting.com/download/beli-proyektor-3/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_8_2">
-                <a href="//www.lazada.co.id/beli-perlengkapan-dapur/">
+                <a href="https://www.ramaakunting.com/download/beli-perlengkapan-dapur/">
                     <span>Peralatan Dapur Kecil</span>
                 </a>
                         <script type="text" class="J_data_7_1">
-                            [{"childCategoryName":""},{"childCategoryName":"Rice Cooker","childCategoryUrl":"//www.lazada.co.id/beli-rice-cooker/"},{"childCategoryName":"Blender, Mixer & Grinder","childCategoryUrl":"//www.lazada.co.id/beli-blender-mixer-juicer/"},{"childCategoryName":"Kompor Gas","childCategoryUrl":"//www.lazada.co.id/beli-kompor-gas/"},{"childCategoryName":"Teko Listrik","childCategoryUrl":"//www.lazada.co.id/beli-ketel-elektrik-2/"},{"childCategoryName":"Juicer","childCategoryUrl":"//www.lazada.co.id/beli-juicer-pengekstrak-buah/"},{"childCategoryName":"Mesin Kopi","childCategoryUrl":"//www.lazada.co.id/beli-mesin-kopi/"},{"childCategoryName":"Air Fryer","childCategoryUrl":"//www.lazada.co.id/beli-air-fryers/"},{"childCategoryName":"Peralatan Dapur Lainnya","childCategoryUrl":"//www.lazada.co.id/shop-ska-lainnya/"}]
+                            [{"childCategoryName":""},{"childCategoryName":"Rice Cooker","childCategoryUrl":"https://www.ramaakunting.com/download/beli-rice-cooker/"},{"childCategoryName":"Blender, Mixer & Grinder","childCategoryUrl":"https://www.ramaakunting.com/download/beli-blender-mixer-juicer/"},{"childCategoryName":"Kompor Gas","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kompor-gas/"},{"childCategoryName":"Teko Listrik","childCategoryUrl":"https://www.ramaakunting.com/download/beli-ketel-elektrik-2/"},{"childCategoryName":"Juicer","childCategoryUrl":"https://www.ramaakunting.com/download/beli-juicer-pengekstrak-buah/"},{"childCategoryName":"Mesin Kopi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mesin-kopi/"},{"childCategoryName":"Air Fryer","childCategoryUrl":"https://www.ramaakunting.com/download/beli-air-fryers/"},{"childCategoryName":"Peralatan Dapur Lainnya","childCategoryUrl":"https://www.ramaakunting.com/download/shop-ska-lainnya/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_8_3">
-                <a href="//www.lazada.co.id/shop-perlatan-besar/">
+                <a href="https://www.ramaakunting.com/download/shop-perlatan-besar/">
                     <span>Elektronik Rumah Besar</span>
                 </a>
                         <script type="text" class="J_data_7_2">
-                            [{"childCategoryName":""},{"childCategoryName":"Mesin Cuci","childCategoryUrl":"//www.lazada.co.id/beli-mesin-cuci/"},{"childCategoryName":"Kulkas","childCategoryUrl":"//www.lazada.co.id/beli-lemari-es/"},{"childCategoryName":"Microwave","childCategoryUrl":"//www.lazada.co.id/beli-microwave/"},{"childCategoryName":"Oven","childCategoryUrl":"//www.lazada.co.id/beli-ovens/"},{"childCategoryName":"Dispenser Air Minum","childCategoryUrl":"//www.lazada.co.id/beli-dispenser-air/"},{"childCategoryName":"AC","childCategoryUrl":"//www.lazada.co.id/beli-ac/"},{"childCategoryName":"Pemanas Air","childCategoryUrl":"//www.lazada.co.id/beli-pemanas-air/"}]
+                            [{"childCategoryName":""},{"childCategoryName":"Mesin Cuci","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mesin-cuci/"},{"childCategoryName":"Kulkas","childCategoryUrl":"https://www.ramaakunting.com/download/beli-lemari-es/"},{"childCategoryName":"Microwave","childCategoryUrl":"https://www.ramaakunting.com/download/beli-microwave/"},{"childCategoryName":"Oven","childCategoryUrl":"https://www.ramaakunting.com/download/beli-ovens/"},{"childCategoryName":"Dispenser Air Minum","childCategoryUrl":"https://www.ramaakunting.com/download/beli-dispenser-air/"},{"childCategoryName":"AC","childCategoryUrl":"https://www.ramaakunting.com/download/beli-ac/"},{"childCategoryName":"Pemanas Air","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pemanas-air/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_8_4">
-                <a href="//www.lazada.co.id/shop-pendingin-pembersih-udara-mini/">
+                <a href="https://www.ramaakunting.com/download/shop-pendingin-pembersih-udara-mini/">
                     <span>Penyejuk dan Pembersih Udara</span>
                 </a>
                         <script type="text" class="J_data_7_3">
-                            [{"childCategoryName":""},{"childCategoryName":"Kipas Angin","childCategoryUrl":"//www.lazada.co.id/shop-kipas/"},{"childCategoryName":"Air Cooler","childCategoryUrl":"//www.lazada.co.id/beli-pendingin-udara-2/"},{"childCategoryName":"Air Purifier","childCategoryUrl":"//www.lazada.co.id/beli-penjernih-udara-2/"},{"childCategoryName":"Humidifier","childCategoryUrl":"//www.lazada.co.id/beli-humidifier/"},{"childCategoryName":"Dehumidifier","childCategoryUrl":"//www.lazada.co.id/beli-dehumidifier/"}]
+                            [{"childCategoryName":""},{"childCategoryName":"Kipas Angin","childCategoryUrl":"https://www.ramaakunting.com/download/shop-kipas/"},{"childCategoryName":"Air Cooler","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pendingin-udara-2/"},{"childCategoryName":"Air Purifier","childCategoryUrl":"https://www.ramaakunting.com/download/beli-penjernih-udara-2/"},{"childCategoryName":"Humidifier","childCategoryUrl":"https://www.ramaakunting.com/download/beli-humidifier/"},{"childCategoryName":"Dehumidifier","childCategoryUrl":"https://www.ramaakunting.com/download/beli-dehumidifier/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_8_5">
-                <a href="//www.lazada.co.id/beli-perawatan-lantai/">
+                <a href="https://www.ramaakunting.com/download/beli-perawatan-lantai/">
                     <span>Penghisap Debu &amp; Perawatan Lantai</span>
                 </a>
                         <script type="text" class="J_data_7_4">
-                            [{"childCategoryName":""},{"childCategoryName":"Penghisap Debu","childCategoryUrl":"//www.lazada.co.id/shop-penyedot-debu/"},{"childCategoryName":"Penghisap Debu Robotik","childCategoryUrl":"//www.lazada.co.id/shop-penyedot-debu-robot/"},{"childCategoryName":"Penghisap Debu dengan Tongkat","childCategoryUrl":"//www.lazada.co.id/shop-penyedot-debu-tongkat/"}]
+                            [{"childCategoryName":""},{"childCategoryName":"Penghisap Debu","childCategoryUrl":"https://www.ramaakunting.com/download/shop-penyedot-debu/"},{"childCategoryName":"Penghisap Debu Robotik","childCategoryUrl":"https://www.ramaakunting.com/download/shop-penyedot-debu-robot/"},{"childCategoryName":"Penghisap Debu dengan Tongkat","childCategoryUrl":"https://www.ramaakunting.com/download/shop-penyedot-debu-tongkat/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_8_6">
-                <a href="//www.lazada.co.id/shop-peralatan-perawatan-personal/">
+                <a href="https://www.ramaakunting.com/download/shop-peralatan-perawatan-personal/">
                     <span>Alat Perawatan Diri</span>
                 </a>
                         <script type="text" class="J_data_7_5">
-                            [{"childCategoryName":""},{"childCategoryName":"Hair Dryer","childCategoryUrl":"//www.lazada.co.id/beli-pengering-rambut/"},{"childCategoryName":"Alat Penata Rambut","childCategoryUrl":"//www.lazada.co.id/beli-perlengkapan-styling-rambut/"},{"childCategoryName":"Shaver & Pencukur Kumis Jenggot","childCategoryUrl":"//www.lazada.co.id/beli-shaver/"},{"childCategoryName":"Sikat Gigi Elektrik","childCategoryUrl":"//www.lazada.co.id/beli-sikat-gigi-elektrik/"}]
+                            [{"childCategoryName":""},{"childCategoryName":"Hair Dryer","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pengering-rambut/"},{"childCategoryName":"Alat Penata Rambut","childCategoryUrl":"https://www.ramaakunting.com/download/beli-perlengkapan-styling-rambut/"},{"childCategoryName":"Shaver & Pencukur Kumis Jenggot","childCategoryUrl":"https://www.ramaakunting.com/download/beli-shaver/"},{"childCategoryName":"Sikat Gigi Elektrik","childCategoryUrl":"https://www.ramaakunting.com/download/beli-sikat-gigi-elektrik/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_8_7">
-                <a href="//www.lazada.co.id/jual-aksesoris-elektronik-rumah-tangga/">
+                <a href="https://www.ramaakunting.com/download/jual-aksesoris-elektronik-rumah-tangga/">
                     <span>Aksesoris &amp; Suku Cadang</span>
                 </a>
                         <script type="text" class="J_data_7_6">
-                            [{"childCategoryName":""},{"childCategoryName":"Suku Cadang & Aksesoris Peralatan Dapur Kecil","childCategoryUrl":"//www.lazada.co.id/beli-aksesoris-blender-dan-mixer/"},{"childCategoryName":"Suku Cadang & Aksesoris AC","childCategoryUrl":"//www.lazada.co.id/beli-suku-cadang-aksesoris-ac/"},{"childCategoryName":"Suku Cadang & Aksesoris Mesin Cuci","childCategoryUrl":"//www.lazada.co.id/beli-aksesoris-mesin-cuci-dan-pengering-pakaian/"},{"childCategoryName":"Suku Cadang & Filter Pengganti","childCategoryUrl":"//www.lazada.co.id/beli-filter-air/"},{"childCategoryName":"Suku Cadang & Filter Penghisap Debu","childCategoryUrl":"//www.lazada.co.id/beli-suku-kadang-aksesoris-vacuum-cleaner/"}]
+                            [{"childCategoryName":""},{"childCategoryName":"Suku Cadang & Aksesoris Peralatan Dapur Kecil","childCategoryUrl":"https://www.ramaakunting.com/download/beli-aksesoris-blender-dan-mixer/"},{"childCategoryName":"Suku Cadang & Aksesoris AC","childCategoryUrl":"https://www.ramaakunting.com/download/beli-suku-cadang-aksesoris-ac/"},{"childCategoryName":"Suku Cadang & Aksesoris Mesin Cuci","childCategoryUrl":"https://www.ramaakunting.com/download/beli-aksesoris-mesin-cuci-dan-pengering-pakaian/"},{"childCategoryName":"Suku Cadang & Filter Pengganti","childCategoryUrl":"https://www.ramaakunting.com/download/beli-filter-air/"},{"childCategoryName":"Suku Cadang & Filter Penghisap Debu","childCategoryUrl":"https://www.ramaakunting.com/download/beli-suku-kadang-aksesoris-vacuum-cleaner/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_8_8">
-                <a href="//www.lazada.co.id/jual-aksesoris-televisi/">
+                <a href="https://www.ramaakunting.com/download/jual-aksesoris-televisi/">
                     <span>Aksesoris Televisi</span>
                 </a>
                         <script type="text" class="J_data_7_7">
-                            [{"childCategoryName":""},{"childCategoryName":"TV Box","childCategoryUrl":"//www.lazada.co.id/jual-tv-receiver/"},{"childCategoryName":"Antena TV","childCategoryUrl":"//www.lazada.co.id/jual-antena-tv/"},{"childCategoryName":"Bracket Dinding TV & Pelindung","childCategoryUrl":"//www.lazada.co.id/jual-bracket-dinding-tv/"},{"childCategoryName":"Remote Control TV","childCategoryUrl":"//www.lazada.co.id/jual-remote-control-tv/"},{"childCategoryName":"Kabel TV","childCategoryUrl":"//www.lazada.co.id/jual-kabel-tv/"},{"childCategoryName":"Adaptor TV","childCategoryUrl":"//www.lazada.co.id/jual-adaptor-tv/"},{"childCategoryName":"Kacamata 3D TV","childCategoryUrl":"//www.lazada.co.id/jual-kacamata-3d-tv/"}]
+                            [{"childCategoryName":""},{"childCategoryName":"TV Box","childCategoryUrl":"https://www.ramaakunting.com/download/jual-tv-receiver/"},{"childCategoryName":"Antena TV","childCategoryUrl":"https://www.ramaakunting.com/download/jual-antena-tv/"},{"childCategoryName":"Bracket Dinding TV & Pelindung","childCategoryUrl":"https://www.ramaakunting.com/download/jual-bracket-dinding-tv/"},{"childCategoryName":"Remote Control TV","childCategoryUrl":"https://www.ramaakunting.com/download/jual-remote-control-tv/"},{"childCategoryName":"Kabel TV","childCategoryUrl":"https://www.ramaakunting.com/download/jual-kabel-tv/"},{"childCategoryName":"Adaptor TV","childCategoryUrl":"https://www.ramaakunting.com/download/jual-adaptor-tv/"},{"childCategoryName":"Kacamata 3D TV","childCategoryUrl":"https://www.ramaakunting.com/download/jual-kacamata-3d-tv/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_8_9">
-                <a href="//www.lazada.co.id/jual-home-entertainment/">
+                <a href="https://www.ramaakunting.com/download/jual-home-entertainment/">
                     <span>Home Entertainment</span>
                 </a>
                         <script type="text" class="J_data_7_8">
-                            [{"childCategoryName":""},{"childCategoryName":"Soundbar","childCategoryUrl":"//www.lazada.co.id/jual-soundbar/"},{"childCategoryName":"Sistem Karaoke","childCategoryUrl":"//www.lazada.co.id/jual-sistem-karaoke/"},{"childCategoryName":"Sistem Hi-Fi","childCategoryUrl":"//www.lazada.co.id/jual-sistem-hi-fi/"},{"childCategoryName":"Sound System Panggung","childCategoryUrl":"//www.lazada.co.id/sound-system-panggung/"},{"childCategoryName":"Player Portabel","childCategoryUrl":"//www.lazada.co.id/beli-audio-player/"}]
+                            [{"childCategoryName":""},{"childCategoryName":"Soundbar","childCategoryUrl":"https://www.ramaakunting.com/download/jual-soundbar/"},{"childCategoryName":"Sistem Karaoke","childCategoryUrl":"https://www.ramaakunting.com/download/jual-sistem-karaoke/"},{"childCategoryName":"Sistem Hi-Fi","childCategoryUrl":"https://www.ramaakunting.com/download/jual-sistem-hi-fi/"},{"childCategoryName":"Sound System Panggung","childCategoryUrl":"https://www.ramaakunting.com/download/sound-system-panggung/"},{"childCategoryName":"Player Portabel","childCategoryUrl":"https://www.ramaakunting.com/download/beli-audio-player/"}]
                         </script>
             </li>
         </ul>
         <ul class="lzd-site-menu-sub Level_1_Category_No9" data-spm="cate_9">
             <li class="lzd-site-menu-sub-item" data-cate="cate_9_1">
-                <a href="//www.lazada.co.id/beli-dekorasi-rumah/">
+                <a href="https://www.ramaakunting.com/download/beli-dekorasi-rumah/">
                     <span>Dekorasi Rumah</span>
                 </a>
                         <script type="text" class="J_data_8_0">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Stiker Dinding","childCategoryUrl":"//www.lazada.co.id/beli-stiker-dinding/"},{"childCategoryName":"Gorden","childCategoryUrl":"//www.lazada.co.id/gorden-dan-kerai/"},{"childCategoryName":"Tikar & Karpet","childCategoryUrl":"//www.lazada.co.id/beli-tikar-karpet/"},{"childCategoryName":"Hiasan Dinding","childCategoryUrl":"//www.lazada.co.id/beli-hiasan-dinding/"},{"childCategoryName":"Dekorasi Aksen","childCategoryUrl":"//www.lazada.co.id/shop-aksesoris-dekor/"},{"childCategoryName":"Bunga & Tanaman Artifisial","childCategoryUrl":"//www.lazada.co.id/beli-bunga-tanaman-artifisial/"},{"childCategoryName":"Jam","childCategoryUrl":"//www.lazada.co.id/beli-jam/"},{"childCategoryName":"Dalaman & Sarung Bantal","childCategoryUrl":"//www.lazada.co.id/shop-dalaman-sarung-bantal/"},{"childCategoryName":"Bingkai","childCategoryUrl":"//www.lazada.co.id/beli-bingkai/"},{"childCategoryName":"Wewangian Rumah","childCategoryUrl":"//www.lazada.co.id/beli-wewangian-rumah/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Stiker Dinding","childCategoryUrl":"https://www.ramaakunting.com/download/beli-stiker-dinding/"},{"childCategoryName":"Gorden","childCategoryUrl":"https://www.ramaakunting.com/download/gorden-dan-kerai/"},{"childCategoryName":"Tikar & Karpet","childCategoryUrl":"https://www.ramaakunting.com/download/beli-tikar-karpet/"},{"childCategoryName":"Hiasan Dinding","childCategoryUrl":"https://www.ramaakunting.com/download/beli-hiasan-dinding/"},{"childCategoryName":"Dekorasi Aksen","childCategoryUrl":"https://www.ramaakunting.com/download/shop-aksesoris-dekor/"},{"childCategoryName":"Bunga & Tanaman Artifisial","childCategoryUrl":"https://www.ramaakunting.com/download/beli-bunga-tanaman-artifisial/"},{"childCategoryName":"Jam","childCategoryUrl":"https://www.ramaakunting.com/download/beli-jam/"},{"childCategoryName":"Dalaman & Sarung Bantal","childCategoryUrl":"https://www.ramaakunting.com/download/shop-dalaman-sarung-bantal/"},{"childCategoryName":"Bingkai","childCategoryUrl":"https://www.ramaakunting.com/download/beli-bingkai/"},{"childCategoryName":"Wewangian Rumah","childCategoryUrl":"https://www.ramaakunting.com/download/beli-wewangian-rumah/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_9_2">
-                <a href="//www.lazada.co.id/beli-furnitur/">
+                <a href="https://www.ramaakunting.com/download/beli-furnitur/">
                     <span>Furnitur</span>
                 </a>
                         <script type="text" class="J_data_8_1">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Tempat Penyimpanan","childCategoryUrl":"//www.lazada.co.id/beli-tempat-penyimpanan/"},{"childCategoryName":"Lemari Pakaian","childCategoryUrl":"//www.lazada.co.id/beli-lemari-pakaian/"},{"childCategoryName":"Kasur","childCategoryUrl":"//www.lazada.co.id/beli-kasur/"},{"childCategoryName":"Kamar Tidur","childCategoryUrl":"//www.lazada.co.id/beli-furnitur-kamar-tidur/"},{"childCategoryName":"Rak","childCategoryUrl":"//www.lazada.co.id/rak/"},{"childCategoryName":"Rak TV dan Media","childCategoryUrl":"//www.lazada.co.id/tempat-penyimpanan-media-dan-tv/"},{"childCategoryName":"Sofa","childCategoryUrl":"//www.lazada.co.id/beli-sofa/"},{"childCategoryName":"Ruang Tamu","childCategoryUrl":"//www.lazada.co.id/beli-furnitur-ruang-tamu/"},{"childCategoryName":"Ruang Kerja Rumah","childCategoryUrl":"//www.lazada.co.id/beli-furnitur-ruang-kerja-rumah/"},{"childCategoryName":"Dapur & Ruang Makan","childCategoryUrl":"//www.lazada.co.id/beli-furnitur-dapur-ruang-makan/"},{"childCategoryName":"Ruang Bayi","childCategoryUrl":"//www.lazada.co.id/beli-furnitur-ruang-bayi/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Tempat Penyimpanan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-tempat-penyimpanan/"},{"childCategoryName":"Lemari Pakaian","childCategoryUrl":"https://www.ramaakunting.com/download/beli-lemari-pakaian/"},{"childCategoryName":"Kasur","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kasur/"},{"childCategoryName":"Kamar Tidur","childCategoryUrl":"https://www.ramaakunting.com/download/beli-furnitur-kamar-tidur/"},{"childCategoryName":"Rak","childCategoryUrl":"https://www.ramaakunting.com/download/rak/"},{"childCategoryName":"Rak TV dan Media","childCategoryUrl":"https://www.ramaakunting.com/download/tempat-penyimpanan-media-dan-tv/"},{"childCategoryName":"Sofa","childCategoryUrl":"https://www.ramaakunting.com/download/beli-sofa/"},{"childCategoryName":"Ruang Tamu","childCategoryUrl":"https://www.ramaakunting.com/download/beli-furnitur-ruang-tamu/"},{"childCategoryName":"Ruang Kerja Rumah","childCategoryUrl":"https://www.ramaakunting.com/download/beli-furnitur-ruang-kerja-rumah/"},{"childCategoryName":"Dapur & Ruang Makan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-furnitur-dapur-ruang-makan/"},{"childCategoryName":"Ruang Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-furnitur-ruang-bayi/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_9_3">
-                <a href="//www.lazada.co.id/beli-peralatan-ranjang/">
+                <a href="https://www.ramaakunting.com/download/beli-peralatan-ranjang/">
                     <span>Kelengkapan Tempat Tidur</span>
                 </a>
                         <script type="text" class="J_data_8_2">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Seprai","childCategoryUrl":"//www.lazada.co.id/seprei-ranjang/"},{"childCategoryName":"Seprai Set","childCategoryUrl":"//www.lazada.co.id/perangkat-seprei/"},{"childCategoryName":"Selimut","childCategoryUrl":"//www.lazada.co.id/selimut-dan-selimut-panjang/"},{"childCategoryName":"Bantal","childCategoryUrl":"//www.lazada.co.id/beli-bantal/"},{"childCategoryName":"Aksesoris Tempat Tidur","childCategoryUrl":"//www.lazada.co.id/beli-aksesoris-ranjang/"},{"childCategoryName":"Sarung Bantal","childCategoryUrl":"//www.lazada.co.id/beli-sarung-bantal/"},{"childCategoryName":"Selimut Tebal","childCategoryUrl":"//www.lazada.co.id/seprei-dan-selimut-tebal/"},{"childCategoryName":"Pelindung Kasur","childCategoryUrl":"//www.lazada.co.id/kasur-pelindung/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Seprai","childCategoryUrl":"https://www.ramaakunting.com/download/seprei-ranjang/"},{"childCategoryName":"Seprai Set","childCategoryUrl":"https://www.ramaakunting.com/download/perangkat-seprei/"},{"childCategoryName":"Selimut","childCategoryUrl":"https://www.ramaakunting.com/download/selimut-dan-selimut-panjang/"},{"childCategoryName":"Bantal","childCategoryUrl":"https://www.ramaakunting.com/download/beli-bantal/"},{"childCategoryName":"Aksesoris Tempat Tidur","childCategoryUrl":"https://www.ramaakunting.com/download/beli-aksesoris-ranjang/"},{"childCategoryName":"Sarung Bantal","childCategoryUrl":"https://www.ramaakunting.com/download/beli-sarung-bantal/"},{"childCategoryName":"Selimut Tebal","childCategoryUrl":"https://www.ramaakunting.com/download/seprei-dan-selimut-tebal/"},{"childCategoryName":"Pelindung Kasur","childCategoryUrl":"https://www.ramaakunting.com/download/kasur-pelindung/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_9_4">
-                <a href="//www.lazada.co.id/penerangan/">
+                <a href="https://www.ramaakunting.com/download/penerangan/">
                     <span>Penerangan</span>
                 </a>
                         <script type="text" class="J_data_8_3">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Bohlam Lampu","childCategoryUrl":"//www.lazada.co.id/shop-bohlam-lampu/"},{"childCategoryName":"Lampu Khusus","childCategoryUrl":"//www.lazada.co.id/beli-lampu-khusus/"},{"childCategoryName":"Lampu Langit-langit","childCategoryUrl":"//www.lazada.co.id/beli-lampu-langit-langit-hias/"},{"childCategoryName":"Penerangan Outdoor","childCategoryUrl":"//www.lazada.co.id/beli-penerangan-outdoor/"},{"childCategoryName":"Lampu Dinding & Tempel","childCategoryUrl":"//www.lazada.co.id/beli-lampu-dinding-tempel/"},{"childCategoryName":"Lampu Meja","childCategoryUrl":"//www.lazada.co.id/beli-lampu-meja/"},{"childCategoryName":"Komponen Lampu","childCategoryUrl":"//www.lazada.co.id/beli-lampu-komponen/"},{"childCategoryName":"Kap Lampu","childCategoryUrl":"//www.lazada.co.id/kap-lampu/"},{"childCategoryName":"Lampu Lantai","childCategoryUrl":"//www.lazada.co.id/beli-lampu-lantai/"},{"childCategoryName":"Lampu Rechargeable & Senter","childCategoryUrl":"//www.lazada.co.id/beli-senter/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Bohlam Lampu","childCategoryUrl":"https://www.ramaakunting.com/download/shop-bohlam-lampu/"},{"childCategoryName":"Lampu Khusus","childCategoryUrl":"https://www.ramaakunting.com/download/beli-lampu-khusus/"},{"childCategoryName":"Lampu Langit-langit","childCategoryUrl":"https://www.ramaakunting.com/download/beli-lampu-langit-langit-hias/"},{"childCategoryName":"Penerangan Outdoor","childCategoryUrl":"https://www.ramaakunting.com/download/beli-penerangan-outdoor/"},{"childCategoryName":"Lampu Dinding & Tempel","childCategoryUrl":"https://www.ramaakunting.com/download/beli-lampu-dinding-tempel/"},{"childCategoryName":"Lampu Meja","childCategoryUrl":"https://www.ramaakunting.com/download/beli-lampu-meja/"},{"childCategoryName":"Komponen Lampu","childCategoryUrl":"https://www.ramaakunting.com/download/beli-lampu-komponen/"},{"childCategoryName":"Kap Lampu","childCategoryUrl":"https://www.ramaakunting.com/download/kap-lampu/"},{"childCategoryName":"Lampu Lantai","childCategoryUrl":"https://www.ramaakunting.com/download/beli-lampu-lantai/"},{"childCategoryName":"Lampu Rechargeable & Senter","childCategoryUrl":"https://www.ramaakunting.com/download/beli-senter/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_9_5">
-                <a href="//www.lazada.co.id/beli-peralatan-mandi/">
+                <a href="https://www.ramaakunting.com/download/beli-peralatan-mandi/">
                     <span>Peralatan Mandi</span>
                 </a>
                         <script type="text" class="J_data_8_4">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Handuk Mandi","childCategoryUrl":"//www.lazada.co.id/beli-handuk-mandi/"},{"childCategoryName":"Timbangan Kamar Mandi","childCategoryUrl":"//www.lazada.co.id/beli-timbangan-kamar-mandi/"},{"childCategoryName":"Wadah Penyimpanan Kamar Mandi","childCategoryUrl":"//www.lazada.co.id/beli-tempat-penyimpan-kamar-mandi/"},{"childCategoryName":"Rak Kamar Mandi","childCategoryUrl":"//www.lazada.co.id/jual-laci-kamar-mandi/"},{"childCategoryName":"Gantungan Handuk & Penghangat","childCategoryUrl":"//www.lazada.co.id/gantungan-handuk-dan-penghangat/"},{"childCategoryName":"Tempat & Gantungan Shower","childCategoryUrl":"//www.lazada.co.id/tempat-dan-gantungan-shower/"},{"childCategoryName":"Keset Kamar Mandi","childCategoryUrl":"//www.lazada.co.id/beli-alas-mandi/"},{"childCategoryName":"Jubah & Kimono Mandi","childCategoryUrl":"//www.lazada.co.id/beli-jubah-mandi/"},{"childCategoryName":"Tirai Shower","childCategoryUrl":"//www.lazada.co.id/shop-tirai-mandi-aksesoris/"},{"childCategoryName":"Cermin Kamar Mandi","childCategoryUrl":"//www.lazada.co.id/beli-cermin-kamar-mandi/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Handuk Mandi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-handuk-mandi/"},{"childCategoryName":"Timbangan Kamar Mandi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-timbangan-kamar-mandi/"},{"childCategoryName":"Wadah Penyimpanan Kamar Mandi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-tempat-penyimpan-kamar-mandi/"},{"childCategoryName":"Rak Kamar Mandi","childCategoryUrl":"https://www.ramaakunting.com/download/jual-laci-kamar-mandi/"},{"childCategoryName":"Gantungan Handuk & Penghangat","childCategoryUrl":"https://www.ramaakunting.com/download/gantungan-handuk-dan-penghangat/"},{"childCategoryName":"Tempat & Gantungan Shower","childCategoryUrl":"https://www.ramaakunting.com/download/tempat-dan-gantungan-shower/"},{"childCategoryName":"Keset Kamar Mandi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-alas-mandi/"},{"childCategoryName":"Jubah & Kimono Mandi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-jubah-mandi/"},{"childCategoryName":"Tirai Shower","childCategoryUrl":"https://www.ramaakunting.com/download/shop-tirai-mandi-aksesoris/"},{"childCategoryName":"Cermin Kamar Mandi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-cermin-kamar-mandi/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_9_6">
-                <a href="//www.lazada.co.id/beli-perlengkapan-dapur-makan/">
+                <a href="https://www.ramaakunting.com/download/beli-perlengkapan-dapur-makan/">
                     <span>Alat Dapur</span>
                 </a>
                         <script type="text" class="J_data_8_5">
-                            [{"childCategoryName":"Botol minum","childCategoryUrl":"//www.lazada.co.id/botol-minum/"},{"childCategoryName":"Tempat Penyimpanan Makanan","childCategoryUrl":"//www.lazada.co.id/beli-wadah-penyimpan-makanan/"},{"childCategoryName":"Alas Meja & Aksesoris Dapur","childCategoryUrl":"//www.lazada.co.id/beli-alas-meja-aksesoris-dapur/"},{"childCategoryName":"Kopi & Teh","childCategoryUrl":"//www.lazada.co.id/beli-kopi-dan-teh/"},{"childCategoryName":"Rak Piring & Aksesoris Wastafel","childCategoryUrl":"//www.lazada.co.id/beli-rak-piring-aksesoris-bak/"},{"childCategoryName":"Panci & Wajan","childCategoryUrl":"//www.lazada.co.id/beli-peralatan-masak/"},{"childCategoryName":"Perangkat Minum","childCategoryUrl":"//www.lazada.co.id/beli-perangkat-minum-gelas/"},{"childCategoryName":"Perangkat Makan","childCategoryUrl":"//www.lazada.co.id/beli-peralatan-penyajian-makanan/"},{"childCategoryName":"Perangkat Pemanggang","childCategoryUrl":"//www.lazada.co.id/beli-perangkat-pemanggang/"},{"childCategoryName":"Perangkat Penyajian","childCategoryUrl":"//www.lazada.co.id/beli-perangkat-penyaji/"},{"childCategoryName":"Pisau & Aksesoris","childCategoryUrl":"//www.lazada.co.id/beli-pisau-dan-aksesoris/"},{"childCategoryName":"Alat Dapur Lainnya","childCategoryUrl":"//www.lazada.co.id/beli-peralatan-dapur/"}]
+                            [{"childCategoryName":"Botol minum","childCategoryUrl":"https://www.ramaakunting.com/download/botol-minum/"},{"childCategoryName":"Tempat Penyimpanan Makanan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-wadah-penyimpan-makanan/"},{"childCategoryName":"Alas Meja & Aksesoris Dapur","childCategoryUrl":"https://www.ramaakunting.com/download/beli-alas-meja-aksesoris-dapur/"},{"childCategoryName":"Kopi & Teh","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kopi-dan-teh/"},{"childCategoryName":"Rak Piring & Aksesoris Wastafel","childCategoryUrl":"https://www.ramaakunting.com/download/beli-rak-piring-aksesoris-bak/"},{"childCategoryName":"Panci & Wajan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-peralatan-masak/"},{"childCategoryName":"Perangkat Minum","childCategoryUrl":"https://www.ramaakunting.com/download/beli-perangkat-minum-gelas/"},{"childCategoryName":"Perangkat Makan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-peralatan-penyajian-makanan/"},{"childCategoryName":"Perangkat Pemanggang","childCategoryUrl":"https://www.ramaakunting.com/download/beli-perangkat-pemanggang/"},{"childCategoryName":"Perangkat Penyajian","childCategoryUrl":"https://www.ramaakunting.com/download/beli-perangkat-penyaji/"},{"childCategoryName":"Pisau & Aksesoris","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pisau-dan-aksesoris/"},{"childCategoryName":"Alat Dapur Lainnya","childCategoryUrl":"https://www.ramaakunting.com/download/beli-peralatan-dapur/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_9_7">
-                <a href="//www.lazada.co.id/beli-binatu-kebersihan/">
+                <a href="https://www.ramaakunting.com/download/beli-binatu-kebersihan/">
                     <span>Binatu &amp; Alat Kebersihan</span>
                 </a>
                         <script type="text" class="J_data_8_6">
-                            [{"childCategoryName":"Gantungan Baju","childCategoryUrl":"//www.lazada.co.id/gantungan-baju/"},{"childCategoryName":"Keranjang Baju","childCategoryUrl":"//www.lazada.co.id/keranjang-cucian/"},{"childCategoryName":"Jemuran Pakaian","childCategoryUrl":"//www.lazada.co.id/rak-pengering/"},{"childCategoryName":"Alat Binatu & Setrika","childCategoryUrl":"//www.lazada.co.id/beli-alat-binatu-setrika/"},{"childCategoryName":"Meja Setrika","childCategoryUrl":"//www.lazada.co.id/papan-setrika/"},{"childCategoryName":"Produk Kebersihan","childCategoryUrl":"//www.lazada.co.id/beli-makanan-minuman-pembersihan/"},{"childCategoryName":"Sapu & Alat Pel","childCategoryUrl":"//www.lazada.co.id/beli-sapu-pel/"},{"childCategoryName":"Lap Kain Penghilang Debu","childCategoryUrl":"//www.lazada.co.id/shop-Sapu-Sikat-Kemoceng/"},{"childCategoryName":"Sikat Pembersih","childCategoryUrl":"//www.lazada.co.id/beli-makanan-minuman-aksesoris-pembersih/"},{"childCategoryName":"Tempat Sampah","childCategoryUrl":"//www.lazada.co.id/tempat-sampah/"}]
+                            [{"childCategoryName":"Gantungan Baju","childCategoryUrl":"https://www.ramaakunting.com/download/gantungan-baju/"},{"childCategoryName":"Keranjang Baju","childCategoryUrl":"https://www.ramaakunting.com/download/keranjang-cucian/"},{"childCategoryName":"Jemuran Pakaian","childCategoryUrl":"https://www.ramaakunting.com/download/rak-pengering/"},{"childCategoryName":"Alat Binatu & Setrika","childCategoryUrl":"https://www.ramaakunting.com/download/beli-alat-binatu-setrika/"},{"childCategoryName":"Meja Setrika","childCategoryUrl":"https://www.ramaakunting.com/download/papan-setrika/"},{"childCategoryName":"Produk Kebersihan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-makanan-minuman-pembersihan/"},{"childCategoryName":"Sapu & Alat Pel","childCategoryUrl":"https://www.ramaakunting.com/download/beli-sapu-pel/"},{"childCategoryName":"Lap Kain Penghilang Debu","childCategoryUrl":"https://www.ramaakunting.com/download/shop-Sapu-Sikat-Kemoceng/"},{"childCategoryName":"Sikat Pembersih","childCategoryUrl":"https://www.ramaakunting.com/download/beli-makanan-minuman-aksesoris-pembersih/"},{"childCategoryName":"Tempat Sampah","childCategoryUrl":"https://www.ramaakunting.com/download/tempat-sampah/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_9_8">
-                <a href="//www.lazada.co.id/beli-perawatan-rumah/">
+                <a href="https://www.ramaakunting.com/download/beli-perawatan-rumah/">
                     <span>Perkakas &amp; Perbaikan Rumah</span>
                 </a>
                         <script type="text" class="J_data_8_7">
-                            [{"childCategoryName":"Alat Penyimpanan & Rak","childCategoryUrl":"//www.lazada.co.id/beli-garasi-penyimpanan-alat-alat/"},{"childCategoryName":"Kabel & Perlengkapan Elektrik","childCategoryUrl":"//www.lazada.co.id/beli-peralatan-elektrik/"},{"childCategoryName":"Pengecatan & Dekorasi","childCategoryUrl":"//www.lazada.co.id/beli-pengecatan-dekorasi/"},{"childCategoryName":"Perkakas","childCategoryUrl":"//www.lazada.co.id/beli-perkakas/"},{"childCategoryName":"Perkakas Listrik","childCategoryUrl":"//www.lazada.co.id/jual-perkakas-listrik/"},{"childCategoryName":"Perkakas Portabel","childCategoryUrl":"//www.lazada.co.id/beli-peralatan-genggam/"},{"childCategoryName":"Pipa Saluran Air & Kelengkapan","childCategoryUrl":"//www.lazada.co.id/beli-ledeng/"},{"childCategoryName":"Senter","childCategoryUrl":"//www.lazada.co.id/beli-senter"},{"childCategoryName":"Tangga & Kursi Peninggi","childCategoryUrl":"//www.lazada.co.id/beli-tangga-kursi-peninggi/"},{"childCategoryName":"perlengkapan keamanan","childCategoryUrl":"//www.lazada.co.id/lampu-penerangan-tempat-kerja/"}]
+                            [{"childCategoryName":"Alat Penyimpanan & Rak","childCategoryUrl":"https://www.ramaakunting.com/download/beli-garasi-penyimpanan-alat-alat/"},{"childCategoryName":"Kabel & Perlengkapan Elektrik","childCategoryUrl":"https://www.ramaakunting.com/download/beli-peralatan-elektrik/"},{"childCategoryName":"Pengecatan & Dekorasi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pengecatan-dekorasi/"},{"childCategoryName":"Perkakas","childCategoryUrl":"https://www.ramaakunting.com/download/beli-perkakas/"},{"childCategoryName":"Perkakas Listrik","childCategoryUrl":"https://www.ramaakunting.com/download/jual-perkakas-listrik/"},{"childCategoryName":"Perkakas Portabel","childCategoryUrl":"https://www.ramaakunting.com/download/beli-peralatan-genggam/"},{"childCategoryName":"Pipa Saluran Air & Kelengkapan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-ledeng/"},{"childCategoryName":"Senter","childCategoryUrl":"https://www.ramaakunting.com/download/beli-senter"},{"childCategoryName":"Tangga & Kursi Peninggi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-tangga-kursi-peninggi/"},{"childCategoryName":"perlengkapan keamanan","childCategoryUrl":"https://www.ramaakunting.com/download/lampu-penerangan-tempat-kerja/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_9_9">
-                <a href="//www.lazada.co.id/Kebun &amp; Luar Ruangan/">
+                <a href="https://www.ramaakunting.com/download/Kebun &amp; Luar Ruangan/">
                     <span>Kebun &amp; Luar Ruangan</span>
                 </a>
                         <script type="text" class="J_data_8_8">
-                            [{"childCategoryName":"Peralatan Listrik Taman & Kebun","childCategoryUrl":"//www.lazada.co.id/beli-peralatan-listrik-taman-luar-ruangan/"},{"childCategoryName":"Peralatan Kebun","childCategoryUrl":"//www.lazada.co.id/beli-peralatan-kebun/"},{"childCategoryName":"Sistem Pengairan","childCategoryUrl":"//www.lazada.co.id/beli-sistem-pengairan/"},{"childCategoryName":"Bibit & Biji Bijian","childCategoryUrl":"//www.lazada.co.id/beli-tumbuhan-biji-bijian/"},{"childCategoryName":"Pembasmi Hama","childCategoryUrl":"//www.lazada.co.id/beli-pembasmi-rumput-liar-hama/"},{"childCategoryName":"Aksesoris Genset","childCategoryUrl":"//www.lazada.co.id/beli-aksesoris-peralatan-listrik-luar-ruangan/"},{"childCategoryName":"Genset","childCategoryUrl":"//www.lazada.co.id/shop-generator/"},{"childCategoryName":"Pemanggang","childCategoryUrl":"//www.lazada.co.id/pemanggang-dan-penyajian-masakan-outdoor/"},{"childCategoryName":"Alat Pembunuh Serangga","childCategoryUrl":"//www.lazada.co.id/alat-pembunuh-serangga/"},{"childCategoryName":"Aksesoris Luar Ruangan","childCategoryUrl":"//www.lazada.co.id/beli-luar-ruangan/"},{"childCategoryName":"Taman & Kebun","childCategoryUrl":"//www.lazada.co.id/perlengkapan-taman-dan-kebun/"},{"childCategoryName":"","childCategoryUrl":""}]
+                            [{"childCategoryName":"Peralatan Listrik Taman & Kebun","childCategoryUrl":"https://www.ramaakunting.com/download/beli-peralatan-listrik-taman-luar-ruangan/"},{"childCategoryName":"Peralatan Kebun","childCategoryUrl":"https://www.ramaakunting.com/download/beli-peralatan-kebun/"},{"childCategoryName":"Sistem Pengairan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-sistem-pengairan/"},{"childCategoryName":"Bibit & Biji Bijian","childCategoryUrl":"https://www.ramaakunting.com/download/beli-tumbuhan-biji-bijian/"},{"childCategoryName":"Pembasmi Hama","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pembasmi-rumput-liar-hama/"},{"childCategoryName":"Aksesoris Genset","childCategoryUrl":"https://www.ramaakunting.com/download/beli-aksesoris-peralatan-listrik-luar-ruangan/"},{"childCategoryName":"Genset","childCategoryUrl":"https://www.ramaakunting.com/download/shop-generator/"},{"childCategoryName":"Pemanggang","childCategoryUrl":"https://www.ramaakunting.com/download/pemanggang-dan-penyajian-masakan-outdoor/"},{"childCategoryName":"Alat Pembunuh Serangga","childCategoryUrl":"https://www.ramaakunting.com/download/alat-pembunuh-serangga/"},{"childCategoryName":"Aksesoris Luar Ruangan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-luar-ruangan/"},{"childCategoryName":"Taman & Kebun","childCategoryUrl":"https://www.ramaakunting.com/download/perlengkapan-taman-dan-kebun/"},{"childCategoryName":"","childCategoryUrl":""}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_9_10">
-                <a href="//www.lazada.co.id/beli-alat-tulis-kerajinan/">
+                <a href="https://www.ramaakunting.com/download/beli-alat-tulis-kerajinan/">
                     <span>Alat Tulis &amp; Kerajinan</span>
                 </a>
                         <script type="text" class="J_data_8_9">
-                            [{"childCategoryName":"Peralatan Kesenian dan Kerajinan","childCategoryUrl":"//www.lazada.co.id/beli-peralatan-seni/"},{"childCategoryName":"Peralatan Mewarnai dan Copic","childCategoryUrl":"//www.lazada.co.id/beli-alat-mewarnai-copic/"},{"childCategoryName":"Kerajinan Umum","childCategoryUrl":"//www.lazada.co.id/beli-alat-kerajinan-umum/"},{"childCategoryName":"Pernak Pernik Hadiah dan Kado","childCategoryUrl":"//www.lazada.co.id/beli-pernak-pernik-hadiah/"},{"childCategoryName":"Tas Belanja","childCategoryUrl":"//www.lazada.co.id/beli-tas-belanjaan/"},{"childCategoryName":"Buku Catatan","childCategoryUrl":"//www.lazada.co.id/buku-catatan/"},{"childCategoryName":"Kertas Komputer","childCategoryUrl":"//www.lazada.co.id/beli-kertas-komputer/"},{"childCategoryName":"Perlengkapan Sekolah","childCategoryUrl":"//www.lazada.co.id/beli-perlengkapan-sekolah/"},{"childCategoryName":"Perlengkapan Meja Kerja","childCategoryUrl":"//www.lazada.co.id/beli-wadah-alat-alat-kantor/"},{"childCategoryName":"Perlengkapan Jahit","childCategoryUrl":"//www.lazada.co.id/beli-bahan-bahan-kerajinan-tangan/"},{"childCategoryName":"Pulpen","childCategoryUrl":"//www.lazada.co.id/beli-pulpen/"},{"childCategoryName":"Pensil","childCategoryUrl":"//www.lazada.co.id/beli-pensil-2/"}]
+                            [{"childCategoryName":"Peralatan Kesenian dan Kerajinan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-peralatan-seni/"},{"childCategoryName":"Peralatan Mewarnai dan Copic","childCategoryUrl":"https://www.ramaakunting.com/download/beli-alat-mewarnai-copic/"},{"childCategoryName":"Kerajinan Umum","childCategoryUrl":"https://www.ramaakunting.com/download/beli-alat-kerajinan-umum/"},{"childCategoryName":"Pernak Pernik Hadiah dan Kado","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pernak-pernik-hadiah/"},{"childCategoryName":"Tas Belanja","childCategoryUrl":"https://www.ramaakunting.com/download/beli-tas-belanjaan/"},{"childCategoryName":"Buku Catatan","childCategoryUrl":"https://www.ramaakunting.com/download/buku-catatan/"},{"childCategoryName":"Kertas Komputer","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kertas-komputer/"},{"childCategoryName":"Perlengkapan Sekolah","childCategoryUrl":"https://www.ramaakunting.com/download/beli-perlengkapan-sekolah/"},{"childCategoryName":"Perlengkapan Meja Kerja","childCategoryUrl":"https://www.ramaakunting.com/download/beli-wadah-alat-alat-kantor/"},{"childCategoryName":"Perlengkapan Jahit","childCategoryUrl":"https://www.ramaakunting.com/download/beli-bahan-bahan-kerajinan-tangan/"},{"childCategoryName":"Pulpen","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pulpen/"},{"childCategoryName":"Pensil","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pensil-2/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_9_11">
-                <a href="//www.lazada.co.id/beli-media-musik-dan-buku/">
+                <a href="https://www.ramaakunting.com/download/beli-media-musik-dan-buku/">
                     <span>Media, Musik &amp; Buku</span>
                 </a>
                         <script type="text" class="J_data_8_10">
-                            [{"childCategoryName":"Instrumen Musik","childCategoryUrl":"//www.lazada.co.id/instrumen-musik/"},{"childCategoryName":"Buku","childCategoryUrl":"//www.lazada.co.id/buku/"},{"childCategoryName":"Musik","childCategoryUrl":"//www.lazada.co.id/lagu/"},{"childCategoryName":"Majalah","childCategoryUrl":"//www.lazada.co.id/majalah/"},{"childCategoryName":"Film","childCategoryUrl":"//www.lazada.co.id/film/"}]
+                            [{"childCategoryName":"Instrumen Musik","childCategoryUrl":"https://www.ramaakunting.com/download/instrumen-musik/"},{"childCategoryName":"Buku","childCategoryUrl":"https://www.ramaakunting.com/download/buku/"},{"childCategoryName":"Musik","childCategoryUrl":"https://www.ramaakunting.com/download/lagu/"},{"childCategoryName":"Majalah","childCategoryUrl":"https://www.ramaakunting.com/download/majalah/"},{"childCategoryName":"Film","childCategoryUrl":"https://www.ramaakunting.com/download/film/"}]
                         </script>
             </li>
         </ul>
         <ul class="lzd-site-menu-sub Level_1_Category_No10" data-spm="cate_10">
             <li class="lzd-site-menu-sub-item" data-cate="cate_10_1">
-                <a href="//www.lazada.co.id/beli-minuman/">
+                <a href="https://www.ramaakunting.com/download/beli-minuman/">
                     <span>Minuman</span>
                 </a>
                         <script type="text" class="J_data_9_0">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"UHT, Susu & Susu Bubuk","childCategoryUrl":"//www.lazada.co.id/beli-makanan-minuman-uht-milk-milk-powder/"},{"childCategoryName":"Kopi","childCategoryUrl":"//www.lazada.co.id/beli-kopi/"},{"childCategoryName":"Minuman Serbuk","childCategoryUrl":"//www.lazada.co.id/beli-minuman-serbuk/"},{"childCategoryName":"Minuman Berenergi","childCategoryUrl":"//www.lazada.co.id/shop-Minuman-Olahraga-Energi/"},{"childCategoryName":"Teh","childCategoryUrl":"//www.lazada.co.id/beli-teh/"},{"childCategoryName":"Chocolate, Malt & Hot Cereals","childCategoryUrl":"//www.lazada.co.id/coklat-panas/"},{"childCategoryName":"Air Mineral","childCategoryUrl":"//www.lazada.co.id/beli-makanan-minuman-air/"},{"childCategoryName":"Minuman Berkarbonasi","childCategoryUrl":"//www.lazada.co.id/beli-makanan-minuman-minuman-ringan/"},{"childCategoryName":"Jus","childCategoryUrl":"//www.lazada.co.id/beli-makanan-minuman-jus/"},{"childCategoryName":"Sirup","childCategoryUrl":"//www.lazada.co.id/beli-sirup/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"UHT, Susu & Susu Bubuk","childCategoryUrl":"https://www.ramaakunting.com/download/beli-makanan-minuman-uht-milk-milk-powder/"},{"childCategoryName":"Kopi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kopi/"},{"childCategoryName":"Minuman Serbuk","childCategoryUrl":"https://www.ramaakunting.com/download/beli-minuman-serbuk/"},{"childCategoryName":"Minuman Berenergi","childCategoryUrl":"https://www.ramaakunting.com/download/shop-Minuman-Olahraga-Energi/"},{"childCategoryName":"Teh","childCategoryUrl":"https://www.ramaakunting.com/download/beli-teh/"},{"childCategoryName":"Chocolate, Malt & Hot Cereals","childCategoryUrl":"https://www.ramaakunting.com/download/coklat-panas/"},{"childCategoryName":"Air Mineral","childCategoryUrl":"https://www.ramaakunting.com/download/beli-makanan-minuman-air/"},{"childCategoryName":"Minuman Berkarbonasi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-makanan-minuman-minuman-ringan/"},{"childCategoryName":"Jus","childCategoryUrl":"https://www.ramaakunting.com/download/beli-makanan-minuman-jus/"},{"childCategoryName":"Sirup","childCategoryUrl":"https://www.ramaakunting.com/download/beli-sirup/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_10_2">
-                <a href="//www.lazada.co.id/shop-Bahan-Utama-Pelengkap-Masakan">
+                <a href="https://www.ramaakunting.com/download/shop-Bahan-Utama-Pelengkap-Masakan">
                     <span>Bahan &amp; Bumbu Masakan</span>
                 </a>
                         <script type="text" class="J_data_9_1">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Makanan Instant & Siap santap","childCategoryUrl":"//www.lazada.co.id/shop-Makanan-Instan-Siap-Santap/"},{"childCategoryName":"Bahan Pembuat Kue","childCategoryUrl":"//www.lazada.co.id/shop-Bahan-Pembuat-Kue/"},{"childCategoryName":"Beras","childCategoryUrl":"//www.lazada.co.id/shop-Beras/"},{"childCategoryName":"Garam & Bumbu Dapur","childCategoryUrl":"//www.lazada.co.id/shop-Bumbu-Dapur/"},{"childCategoryName":"Mie & Bihun","childCategoryUrl":"//www.lazada.co.id/shop-Mi-Bihun/"},{"childCategoryName":"Makanan Kering","childCategoryUrl":"//www.lazada.co.id/shop-Makanan-Kering/"},{"childCategoryName":"Minyak","childCategoryUrl":"//www.lazada.co.id/shop-Minyak/"},{"childCategoryName":"Makanan Kaleng","childCategoryUrl":"//www.lazada.co.id/shop-Makanan-Kaleng/"},{"childCategoryName":"Pasta","childCategoryUrl":"//www.lazada.co.id/shop-Pasta/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Makanan Instant & Siap santap","childCategoryUrl":"https://www.ramaakunting.com/download/shop-Makanan-Instan-Siap-Santap/"},{"childCategoryName":"Bahan Pembuat Kue","childCategoryUrl":"https://www.ramaakunting.com/download/shop-Bahan-Pembuat-Kue/"},{"childCategoryName":"Beras","childCategoryUrl":"https://www.ramaakunting.com/download/shop-Beras/"},{"childCategoryName":"Garam & Bumbu Dapur","childCategoryUrl":"https://www.ramaakunting.com/download/shop-Bumbu-Dapur/"},{"childCategoryName":"Mie & Bihun","childCategoryUrl":"https://www.ramaakunting.com/download/shop-Mi-Bihun/"},{"childCategoryName":"Makanan Kering","childCategoryUrl":"https://www.ramaakunting.com/download/shop-Makanan-Kering/"},{"childCategoryName":"Minyak","childCategoryUrl":"https://www.ramaakunting.com/download/shop-Minyak/"},{"childCategoryName":"Makanan Kaleng","childCategoryUrl":"https://www.ramaakunting.com/download/shop-Makanan-Kaleng/"},{"childCategoryName":"Pasta","childCategoryUrl":"https://www.ramaakunting.com/download/shop-Pasta/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_10_3">
-                <a href="//www.lazada.co.id/shop-Cokelat-Camilan-Permen/">
+                <a href="https://www.ramaakunting.com/download/shop-Cokelat-Camilan-Permen/">
                     <span>Cokelat, Camilan &amp; Permen</span>
                 </a>
                         <script type="text" class="J_data_9_2">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Camilan","childCategoryUrl":"//www.lazada.co.id/shop-Camilan/"},{"childCategoryName":"Cokelat","childCategoryUrl":"//www.lazada.co.id/shop-Cokelat/"},{"childCategoryName":"Biskuit & Kerupuk","childCategoryUrl":"//www.lazada.co.id/shop-Biskuit-Manis/"},{"childCategoryName":"Permen","childCategoryUrl":"//www.lazada.co.id/shop-Manisan/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Camilan","childCategoryUrl":"https://www.ramaakunting.com/download/shop-Camilan/"},{"childCategoryName":"Cokelat","childCategoryUrl":"https://www.ramaakunting.com/download/shop-Cokelat/"},{"childCategoryName":"Biskuit & Kerupuk","childCategoryUrl":"https://www.ramaakunting.com/download/shop-Biskuit-Manis/"},{"childCategoryName":"Permen","childCategoryUrl":"https://www.ramaakunting.com/download/shop-Manisan/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_10_4">
-                <a href="//www.lazada.co.id/beli-makanan-sarapan">
+                <a href="https://www.ramaakunting.com/download/beli-makanan-sarapan">
                     <span>Makanan Sarapan, Sereal &amp; Selai</span>
                 </a>
                         <script type="text" class="J_data_9_3">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Selai & Madu","childCategoryUrl":"//www.lazada.co.id/beli-makanan-minuman-selai-madu-spread/"},{"childCategoryName":"Oatmeal","childCategoryUrl":"//www.lazada.co.id/beli-oatmeal/"},{"childCategoryName":"Sereal Sarapan","childCategoryUrl":"//www.lazada.co.id/beli-sereal/"},{"childCategoryName":"Tepung Pancake & Waffle","childCategoryUrl":"//www.lazada.co.id/beli-pancake-waffle/"},{"childCategoryName":"Bars","childCategoryUrl":"//www.lazada.co.id/shop-bar/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Selai & Madu","childCategoryUrl":"https://www.ramaakunting.com/download/beli-makanan-minuman-selai-madu-spread/"},{"childCategoryName":"Oatmeal","childCategoryUrl":"https://www.ramaakunting.com/download/beli-oatmeal/"},{"childCategoryName":"Sereal Sarapan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-sereal/"},{"childCategoryName":"Tepung Pancake & Waffle","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pancake-waffle/"},{"childCategoryName":"Bars","childCategoryUrl":"https://www.ramaakunting.com/download/shop-bar/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_10_5">
-                <a href="//www.lazada.co.id/beli-makanan-minuman-hasil-segar">
+                <a href="https://www.ramaakunting.com/download/beli-makanan-minuman-hasil-segar">
                     <span>Buah &amp; Sayur</span>
                 </a>
                         <script type="text" class="J_data_9_4">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Buah Segar","childCategoryUrl":"//www.lazada.co.id/beli-makanan-minuman-buah/"},{"childCategoryName":"Sayur Segar","childCategoryUrl":"//www.lazada.co.id/beli-makanan-minuman-sayuran-segar/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Buah Segar","childCategoryUrl":"https://www.ramaakunting.com/download/beli-makanan-minuman-buah/"},{"childCategoryName":"Sayur Segar","childCategoryUrl":"https://www.ramaakunting.com/download/beli-makanan-minuman-sayuran-segar/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_10_6">
-                <a href="//www.lazada.co.id/shop-kebutuhan-rumah-tangga">
+                <a href="https://www.ramaakunting.com/download/shop-kebutuhan-rumah-tangga">
                     <span>Kebutuhan Rumah Tangga</span>
                 </a>
                         <script type="text" class="J_data_9_5">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Pengharum Ruangan","childCategoryUrl":"//www.lazada.co.id/shop-perawatan-udara/"},{"childCategoryName":"Kebutuhan Kebersihan","childCategoryUrl":"//www.lazada.co.id/beli-makanan-minuman-pembersihan/"},{"childCategoryName":"Pengendalian Hama","childCategoryUrl":"//www.lazada.co.id/beli-makanan-minuman-pengendalian-hama/"},{"childCategoryName":"Sabun Pencuci Piring","childCategoryUrl":"//www.lazada.co.id/beli-makanan-minuman-mencuci-piring/"},{"childCategoryName":"Kebutuhan Laundry","childCategoryUrl":"//www.lazada.co.id/beli-makanan-minuman-cucian/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Pengharum Ruangan","childCategoryUrl":"https://www.ramaakunting.com/download/shop-perawatan-udara/"},{"childCategoryName":"Kebutuhan Kebersihan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-makanan-minuman-pembersihan/"},{"childCategoryName":"Pengendalian Hama","childCategoryUrl":"https://www.ramaakunting.com/download/beli-makanan-minuman-pengendalian-hama/"},{"childCategoryName":"Sabun Pencuci Piring","childCategoryUrl":"https://www.ramaakunting.com/download/beli-makanan-minuman-mencuci-piring/"},{"childCategoryName":"Kebutuhan Laundry","childCategoryUrl":"https://www.ramaakunting.com/download/beli-makanan-minuman-cucian/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_10_7">
-                <a href="//www.lazada.co.id/shop-makanan-hewan">
+                <a href="https://www.ramaakunting.com/download/shop-makanan-hewan">
                     <span>Makanan Hewan Peliharaan</span>
                 </a>
                         <script type="text" class="J_data_9_6">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Makanan & Camilan Kucing","childCategoryUrl":"//www.lazada.co.id/jual-makanan-kucing/"},{"childCategoryName":"Makanan Burung","childCategoryUrl":"//www.lazada.co.id/beli-makanan-burung/"},{"childCategoryName":"Makanan Ikan","childCategoryUrl":"//www.lazada.co.id/beli-makanan-ikan/"},{"childCategoryName":"Makanan & Camilan Anjing","childCategoryUrl":"//www.lazada.co.id/jual-makanan-anjing/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Makanan & Camilan Kucing","childCategoryUrl":"https://www.ramaakunting.com/download/jual-makanan-kucing/"},{"childCategoryName":"Makanan Burung","childCategoryUrl":"https://www.ramaakunting.com/download/beli-makanan-burung/"},{"childCategoryName":"Makanan Ikan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-makanan-ikan/"},{"childCategoryName":"Makanan & Camilan Anjing","childCategoryUrl":"https://www.ramaakunting.com/download/jual-makanan-anjing/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_10_8">
-                <a href="//www.lazada.co.id/shop-aksesoris-hewan">
+                <a href="https://www.ramaakunting.com/download/shop-aksesoris-hewan">
                     <span>Aksesoris Hewan Peliharaan</span>
                 </a>
                         <script type="text" class="J_data_9_7">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Keperluan Akuarium","childCategoryUrl":"//www.lazada.co.id/shop-keperluan-akuarium/"},{"childCategoryName":"Kandang & Aksesoris","childCategoryUrl":"//www.lazada.co.id/beli-kandang-terbuka-pintu-anjing/"},{"childCategoryName":"Peralatan Grooming","childCategoryUrl":"//www.lazada.co.id/jual-persediaan-grooming-hewan/"},{"childCategoryName":"Rumah,Alas & Tempat tidur","childCategoryUrl":"//www.lazada.co.id/beli-ranjang-alas-tidur-rumah-anjing/"},{"childCategoryName":"Alat Makan Hewan","childCategoryUrl":"//www.lazada.co.id/beli-mangkuk-makan-anjing/"},{"childCategoryName":"Tali dan Kalung Hewan","childCategoryUrl":"//www.lazada.co.id/beli-tali-kalung-moncong-anjing/"},{"childCategoryName":"Kebutuhan Travel Hewan","childCategoryUrl":"//www.lazada.co.id/beli-pengangkut-perjalanan-anjing/"},{"childCategoryName":"Mainan Hewan","childCategoryUrl":"//www.lazada.co.id/shop-mainan/"},{"childCategoryName":"Alat Pelatihan Anjing","childCategoryUrl":"//www.lazada.co.id/beli-alat-latih-olahraga-anjing/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Keperluan Akuarium","childCategoryUrl":"https://www.ramaakunting.com/download/shop-keperluan-akuarium/"},{"childCategoryName":"Kandang & Aksesoris","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kandang-terbuka-pintu-anjing/"},{"childCategoryName":"Peralatan Grooming","childCategoryUrl":"https://www.ramaakunting.com/download/jual-persediaan-grooming-hewan/"},{"childCategoryName":"Rumah,Alas & Tempat tidur","childCategoryUrl":"https://www.ramaakunting.com/download/beli-ranjang-alas-tidur-rumah-anjing/"},{"childCategoryName":"Alat Makan Hewan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mangkuk-makan-anjing/"},{"childCategoryName":"Tali dan Kalung Hewan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-tali-kalung-moncong-anjing/"},{"childCategoryName":"Kebutuhan Travel Hewan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pengangkut-perjalanan-anjing/"},{"childCategoryName":"Mainan Hewan","childCategoryUrl":"https://www.ramaakunting.com/download/shop-mainan/"},{"childCategoryName":"Alat Pelatihan Anjing","childCategoryUrl":"https://www.ramaakunting.com/download/beli-alat-latih-olahraga-anjing/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_10_9">
-                <a href="//www.lazada.co.id/shop-kesehatan-hewan-peliharaan">
+                <a href="https://www.ramaakunting.com/download/shop-kesehatan-hewan-peliharaan">
                     <span>Kesehatan Hewan Peliharaan</span>
                 </a>
                         <script type="text" class="J_data_9_8">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Perawatan Gigi","childCategoryUrl":"//www.lazada.co.id/beli-kesehatan-gigi-anjing/"},{"childCategoryName":"Pembasmi Kutu Hewan","childCategoryUrl":"//www.lazada.co.id/beli-kutu-anjing/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Perawatan Gigi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kesehatan-gigi-anjing/"},{"childCategoryName":"Pembasmi Kutu Hewan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kutu-anjing/"}]
                         </script>
             </li>
         </ul>
         <ul class="lzd-site-menu-sub Level_1_Category_No11" data-spm="cate_11">
             <li class="lzd-site-menu-sub-item" data-cate="cate_11_1">
-                <a href="//www.lazada.co.id/baju-olahraga-pria/">
+                <a href="https://www.ramaakunting.com/download/baju-olahraga-pria/">
                     <span>Baju Olahraga Pria</span>
                 </a>
                         <script type="text" class="J_data_10_0">
-                            [{"childCategoryName":"Celana Olahraga Pria","childCategoryUrl":"//www.lazada.co.id/celana-panjang-dan-pendek-olahraga-pria/"},{"childCategoryName":"Kaos Olahraga Pria","childCategoryUrl":"//www.lazada.co.id/kaos-olahraga-pria/"},{"childCategoryName":"Jaket Olahraga Pria","childCategoryUrl":"//www.lazada.co.id/jaket-dan-parka-olahraga-pria/"},{"childCategoryName":"Pakaian Renang Pria","childCategoryUrl":"//www.lazada.co.id/pakaian-renang-dan-selancar-pria/"},{"childCategoryName":"Jersey Olahraga Pria","childCategoryUrl":"//www.lazada.co.id/jual-jersey-olahraga-pria/"},{"childCategoryName":"Celana Pendek Pria","childCategoryUrl":"//www.lazada.co.id/jual-celana-pendek-olahraga-pria/"},{"childCategoryName":"Hoodies Pria","childCategoryUrl":"//www.lazada.co.id/hoodies-pria/"},{"childCategoryName":"Topi Olahraga Pria","childCategoryUrl":"//www.lazada.co.id/jual-topi-olahraga-pria/"},{"childCategoryName":"Tas Ransel Sport Pria","childCategoryUrl":"//www.lazada.co.id/tas-ransel-sport-pria/"},{"childCategoryName":"Tas Serut Pria","childCategoryUrl":"//www.lazada.co.id/tas-serut-pria/"},{"childCategoryName":"Tas Duffel Pria","childCategoryUrl":"//www.lazada.co.id/tas-duffel-pria/"},{"childCategoryName":"Gym Tote Pria","childCategoryUrl":"//www.lazada.co.id/gym-tote-pria/"}]
+                            [{"childCategoryName":"Celana Olahraga Pria","childCategoryUrl":"https://www.ramaakunting.com/download/celana-panjang-dan-pendek-olahraga-pria/"},{"childCategoryName":"Kaos Olahraga Pria","childCategoryUrl":"https://www.ramaakunting.com/download/kaos-olahraga-pria/"},{"childCategoryName":"Jaket Olahraga Pria","childCategoryUrl":"https://www.ramaakunting.com/download/jaket-dan-parka-olahraga-pria/"},{"childCategoryName":"Pakaian Renang Pria","childCategoryUrl":"https://www.ramaakunting.com/download/pakaian-renang-dan-selancar-pria/"},{"childCategoryName":"Jersey Olahraga Pria","childCategoryUrl":"https://www.ramaakunting.com/download/jual-jersey-olahraga-pria/"},{"childCategoryName":"Celana Pendek Pria","childCategoryUrl":"https://www.ramaakunting.com/download/jual-celana-pendek-olahraga-pria/"},{"childCategoryName":"Hoodies Pria","childCategoryUrl":"https://www.ramaakunting.com/download/hoodies-pria/"},{"childCategoryName":"Topi Olahraga Pria","childCategoryUrl":"https://www.ramaakunting.com/download/jual-topi-olahraga-pria/"},{"childCategoryName":"Tas Ransel Sport Pria","childCategoryUrl":"https://www.ramaakunting.com/download/tas-ransel-sport-pria/"},{"childCategoryName":"Tas Serut Pria","childCategoryUrl":"https://www.ramaakunting.com/download/tas-serut-pria/"},{"childCategoryName":"Tas Duffel Pria","childCategoryUrl":"https://www.ramaakunting.com/download/tas-duffel-pria/"},{"childCategoryName":"Gym Tote Pria","childCategoryUrl":"https://www.ramaakunting.com/download/gym-tote-pria/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_11_2">
-                <a href="//www.lazada.co.id/pakaian-olahraga-wanita/">
+                <a href="https://www.ramaakunting.com/download/pakaian-olahraga-wanita/">
                     <span>Baju Olahraga Wanita</span>
                 </a>
                         <script type="text" class="J_data_10_1">
-                            [{"childCategoryName":"Celana Panjang Wanita","childCategoryUrl":"//www.lazada.co.id/celana-panjang-dan-pendek-olahraga-wanita/"},{"childCategoryName":"Kaos Olahraga Wanita","childCategoryUrl":"//www.lazada.co.id/kaos-dan-atasan-olahraga-wanita/"},{"childCategoryName":"Jaket Olahraga Wanita","childCategoryUrl":"//www.lazada.co.id/jaket-dan-parka-sport-wanita/"},{"childCategoryName":"Sport Bra Wanita","childCategoryUrl":"//www.lazada.co.id/jual-sport-bra-wanita/"},{"childCategoryName":"Celana Pendek Wanita","childCategoryUrl":"//www.lazada.co.id/jual-celana-pendek-olahraga-wanita/"},{"childCategoryName":"Rok Olahraga Wanita","childCategoryUrl":"//www.lazada.co.id/jual-rok-olahraga-wanita/"},{"childCategoryName":"Hoodies Wanita","childCategoryUrl":"//www.lazada.co.id/hoodies-wanita/"},{"childCategoryName":"Pakaian Renang Wanita","childCategoryUrl":"//www.lazada.co.id/pakaian-renang-dan-selancar-wanita/"},{"childCategoryName":"Tas Ransel Sport Wanita","childCategoryUrl":"//www.lazada.co.id/tas-ransel-sport-wanita/"},{"childCategoryName":"Tas Serut Wanita","childCategoryUrl":"//www.lazada.co.id/tas-serut-wanita/"},{"childCategoryName":"Tas Duffel Wanita","childCategoryUrl":"//www.lazada.co.id/tas-duffel-wanita/"},{"childCategoryName":"Gym Tote Wanita","childCategoryUrl":"//www.lazada.co.id/gym-tote-wanita/"}]
+                            [{"childCategoryName":"Celana Panjang Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/celana-panjang-dan-pendek-olahraga-wanita/"},{"childCategoryName":"Kaos Olahraga Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/kaos-dan-atasan-olahraga-wanita/"},{"childCategoryName":"Jaket Olahraga Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/jaket-dan-parka-sport-wanita/"},{"childCategoryName":"Sport Bra Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/jual-sport-bra-wanita/"},{"childCategoryName":"Celana Pendek Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/jual-celana-pendek-olahraga-wanita/"},{"childCategoryName":"Rok Olahraga Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/jual-rok-olahraga-wanita/"},{"childCategoryName":"Hoodies Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/hoodies-wanita/"},{"childCategoryName":"Pakaian Renang Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/pakaian-renang-dan-selancar-wanita/"},{"childCategoryName":"Tas Ransel Sport Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/tas-ransel-sport-wanita/"},{"childCategoryName":"Tas Serut Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/tas-serut-wanita/"},{"childCategoryName":"Tas Duffel Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/tas-duffel-wanita/"},{"childCategoryName":"Gym Tote Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/gym-tote-wanita/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_11_3">
-                <a href="//www.lazada.co.id/sepatu-dan-pakaian-olahraga-pria/">
+                <a href="https://www.ramaakunting.com/download/sepatu-dan-pakaian-olahraga-pria/">
                     <span>Sepatu Olahraga Pria</span>
                 </a>
                         <script type="text" class="J_data_10_2">
-                            [{"childCategoryName":"Sepatu Sepakbola Pria","childCategoryUrl":"//www.lazada.co.id/jual-sepatu-sepakbola-pria/"},{"childCategoryName":"Sepatu Futsal Pria","childCategoryUrl":"//www.lazada.co.id/jual-sepatu-futsal-pria/"},{"childCategoryName":"Sepatu Lari Pria","childCategoryUrl":"//www.lazada.co.id/sepatu-lari-pria/"},{"childCategoryName":"Sepatu Hiking Pria","childCategoryUrl":"//www.lazada.co.id/jual-sepatu-hiking-pria/"},{"childCategoryName":"Sepatu Basket Pria","childCategoryUrl":"//www.lazada.co.id/jual-sepatu-basket-pria/"},{"childCategoryName":"Sepatu Olahraga Air Pria","childCategoryUrl":"//www.lazada.co.id/jual-sepatu-olahraga-air-pria/"},{"childCategoryName":"Sepatu Badminton ria","childCategoryUrl":"//www.lazada.co.id/jual-sepatu-badminton-pria/"},{"childCategoryName":"Sepatu Training Pira","childCategoryUrl":"//www.lazada.co.id/jual-sepatu-fitness-training-pria/"},{"childCategoryName":"Sepatu Skateboard Pria","childCategoryUrl":"//www.lazada.co.id/jual-sepatu-skateboard-pria/"},{"childCategoryName":"Sepatu Sneakers Pria","childCategoryUrl":"//www.lazada.co.id/beli-sepatu-sneakers-pria/"},{"childCategoryName":"Sandal Olahraga Pria","childCategoryUrl":"//www.lazada.co.id/jual-sandal-olahraga-pria/"},{"childCategoryName":"Sepatu Jalan Pria","childCategoryUrl":"//www.lazada.co.id/jual-sepatu-jalan-pria/"}]
+                            [{"childCategoryName":"Sepatu Sepakbola Pria","childCategoryUrl":"https://www.ramaakunting.com/download/jual-sepatu-sepakbola-pria/"},{"childCategoryName":"Sepatu Futsal Pria","childCategoryUrl":"https://www.ramaakunting.com/download/jual-sepatu-futsal-pria/"},{"childCategoryName":"Sepatu Lari Pria","childCategoryUrl":"https://www.ramaakunting.com/download/sepatu-lari-pria/"},{"childCategoryName":"Sepatu Hiking Pria","childCategoryUrl":"https://www.ramaakunting.com/download/jual-sepatu-hiking-pria/"},{"childCategoryName":"Sepatu Basket Pria","childCategoryUrl":"https://www.ramaakunting.com/download/jual-sepatu-basket-pria/"},{"childCategoryName":"Sepatu Olahraga Air Pria","childCategoryUrl":"https://www.ramaakunting.com/download/jual-sepatu-olahraga-air-pria/"},{"childCategoryName":"Sepatu Badminton ria","childCategoryUrl":"https://www.ramaakunting.com/download/jual-sepatu-badminton-pria/"},{"childCategoryName":"Sepatu Training Pira","childCategoryUrl":"https://www.ramaakunting.com/download/jual-sepatu-fitness-training-pria/"},{"childCategoryName":"Sepatu Skateboard Pria","childCategoryUrl":"https://www.ramaakunting.com/download/jual-sepatu-skateboard-pria/"},{"childCategoryName":"Sepatu Sneakers Pria","childCategoryUrl":"https://www.ramaakunting.com/download/beli-sepatu-sneakers-pria/"},{"childCategoryName":"Sandal Olahraga Pria","childCategoryUrl":"https://www.ramaakunting.com/download/jual-sandal-olahraga-pria/"},{"childCategoryName":"Sepatu Jalan Pria","childCategoryUrl":"https://www.ramaakunting.com/download/jual-sepatu-jalan-pria/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_11_4">
-                <a href="//www.lazada.co.id/sepatu-dan-pakaian-olahraga-wanita/">
+                <a href="https://www.ramaakunting.com/download/sepatu-dan-pakaian-olahraga-wanita/">
                     <span>Sepatu Olahraga Wanita</span>
                 </a>
                         <script type="text" class="J_data_10_3">
-                            [{"childCategoryName":"Sepatu Badminton Wanita","childCategoryUrl":"//www.lazada.co.id/sepatu-badminton-wanita/"},{"childCategoryName":"Sepatu Lari Wanita","childCategoryUrl":"//www.lazada.co.id/sepatu-lari-wanita/"},{"childCategoryName":"Sepatu Futsal Wanita","childCategoryUrl":"//www.lazada.co.id/sepatu-futsal-wanita/"},{"childCategoryName":"Sepatu Basket Wanita","childCategoryUrl":"//www.lazada.co.id/sepatu-basket-wanita/"},{"childCategoryName":"Sepatu Sepakbola Wanita","childCategoryUrl":"//www.lazada.co.id/sepatu-sepakbola-wanita/"},{"childCategoryName":"Sepatu Olahraga Air Wanita","childCategoryUrl":"//www.lazada.co.id/sepatu-olaraga-air-wanita/"},{"childCategoryName":"Sepatu Hiking Wanita","childCategoryUrl":"//www.lazada.co.id/sepatu-hiking-wanita/"},{"childCategoryName":"Sepatu Training Wanita","childCategoryUrl":"//www.lazada.co.id/jual-sepatu-fitness-training-wanita/"},{"childCategoryName":"Septu Skateboard Wanita","childCategoryUrl":"//www.lazada.co.id/jual-sepatu-skateboard-wanita/"},{"childCategoryName":"Sepatu Sneakers Wanita","childCategoryUrl":"//www.lazada.co.id/beli-sepatu-sneakers-wanita/"},{"childCategoryName":"Sandal Olahraga Wanita","childCategoryUrl":"//www.lazada.co.id/jual-sandal-olahraga-wanita/"},{"childCategoryName":"Sepatu Jalan Wanita","childCategoryUrl":"//www.lazada.co.id/jual-sepatu-jalan-wanita/"}]
+                            [{"childCategoryName":"Sepatu Badminton Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/sepatu-badminton-wanita/"},{"childCategoryName":"Sepatu Lari Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/sepatu-lari-wanita/"},{"childCategoryName":"Sepatu Futsal Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/sepatu-futsal-wanita/"},{"childCategoryName":"Sepatu Basket Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/sepatu-basket-wanita/"},{"childCategoryName":"Sepatu Sepakbola Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/sepatu-sepakbola-wanita/"},{"childCategoryName":"Sepatu Olahraga Air Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/sepatu-olaraga-air-wanita/"},{"childCategoryName":"Sepatu Hiking Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/sepatu-hiking-wanita/"},{"childCategoryName":"Sepatu Training Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/jual-sepatu-fitness-training-wanita/"},{"childCategoryName":"Septu Skateboard Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/jual-sepatu-skateboard-wanita/"},{"childCategoryName":"Sepatu Sneakers Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/beli-sepatu-sneakers-wanita/"},{"childCategoryName":"Sandal Olahraga Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/jual-sandal-olahraga-wanita/"},{"childCategoryName":"Sepatu Jalan Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/jual-sepatu-jalan-wanita/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_11_5">
-                <a href="//www.lazada.co.id/camping-dan-hiking/">
+                <a href="https://www.ramaakunting.com/download/camping-dan-hiking/">
                     <span>Camping dan Hiking</span>
                 </a>
                         <script type="text" class="J_data_10_4">
-                            [{"childCategoryName":"Tenda dan furniture Camping","childCategoryUrl":"//www.lazada.co.id/tenda-dan-furniture/"},{"childCategoryName":"Perlengkapan Tidur Camping","childCategoryUrl":"//www.lazada.co.id/perlengkapan-tidur-camping/"},{"childCategoryName":"Tas Camping","childCategoryUrl":"//www.lazada.co.id/jual-tas-ransel/"},{"childCategoryName":"Tempat berteduh Camping","childCategoryUrl":"//www.lazada.co.id/jual-tempat-berteduh-dan-kanopi/"},{"childCategoryName":"Perabotan Kemah","childCategoryUrl":"//www.lazada.co.id/jual-perabotan-kemah/"},{"childCategoryName":"Alat Dapur Kemah","childCategoryUrl":"//www.lazada.co.id/jual-dapur-kemah/"},{"childCategoryName":"Alat penerangan Hiking","childCategoryUrl":"//www.lazada.co.id/jual-penerangan/"},{"childCategoryName":"Navigasi Elektroning Hiking","childCategoryUrl":"//www.lazada.co.id/jual-navigasi-elektronik/"},{"childCategoryName":"Tongkat Hiking","childCategoryUrl":"//www.lazada.co.id/jual-tongkat-hiking/"},{"childCategoryName":"Pisau Kemah","childCategoryUrl":"//www.lazada.co.id/jual-pisau-alat-multifungsi/"},{"childCategoryName":"Peralatan Survival Camping","childCategoryUrl":"//www.lazada.co.id/jual-peralatan-survival-dan-keamanan/"},{"childCategoryName":"Perlengkapan Panjat Tebing","childCategoryUrl":"//www.lazada.co.id/panjat-tebing/"}]
+                            [{"childCategoryName":"Tenda dan furniture Camping","childCategoryUrl":"https://www.ramaakunting.com/download/tenda-dan-furniture/"},{"childCategoryName":"Perlengkapan Tidur Camping","childCategoryUrl":"https://www.ramaakunting.com/download/perlengkapan-tidur-camping/"},{"childCategoryName":"Tas Camping","childCategoryUrl":"https://www.ramaakunting.com/download/jual-tas-ransel/"},{"childCategoryName":"Tempat berteduh Camping","childCategoryUrl":"https://www.ramaakunting.com/download/jual-tempat-berteduh-dan-kanopi/"},{"childCategoryName":"Perabotan Kemah","childCategoryUrl":"https://www.ramaakunting.com/download/jual-perabotan-kemah/"},{"childCategoryName":"Alat Dapur Kemah","childCategoryUrl":"https://www.ramaakunting.com/download/jual-dapur-kemah/"},{"childCategoryName":"Alat penerangan Hiking","childCategoryUrl":"https://www.ramaakunting.com/download/jual-penerangan/"},{"childCategoryName":"Navigasi Elektroning Hiking","childCategoryUrl":"https://www.ramaakunting.com/download/jual-navigasi-elektronik/"},{"childCategoryName":"Tongkat Hiking","childCategoryUrl":"https://www.ramaakunting.com/download/jual-tongkat-hiking/"},{"childCategoryName":"Pisau Kemah","childCategoryUrl":"https://www.ramaakunting.com/download/jual-pisau-alat-multifungsi/"},{"childCategoryName":"Peralatan Survival Camping","childCategoryUrl":"https://www.ramaakunting.com/download/jual-peralatan-survival-dan-keamanan/"},{"childCategoryName":"Perlengkapan Panjat Tebing","childCategoryUrl":"https://www.ramaakunting.com/download/panjat-tebing/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_11_6">
-                <a href="//www.lazada.co.id/jual-peralatan-memancing/">
+                <a href="https://www.ramaakunting.com/download/jual-peralatan-memancing/">
                     <span>Peralatan Memancing</span>
                 </a>
                         <script type="text" class="J_data_10_5">
-                            [{"childCategoryName":"Tongkat Pancing","childCategoryUrl":"//www.lazada.co.id/jual-tongkat-pancing/"},{"childCategoryName":"Alat Gulungan Pancing","childCategoryUrl":"//www.lazada.co.id/alat-gulungan-pancing/"},{"childCategoryName":"Set Tongkat dan Gulungan Pancing","childCategoryUrl":"//www.lazada.co.id/set-tongkat-dan-gulungan-pancing/"},{"childCategoryName":"Senar Pancing","childCategoryUrl":"//www.lazada.co.id/jual-senar-pancing/"},{"childCategoryName":"Umpan Pancing","childCategoryUrl":"//www.lazada.co.id/jual-umpan/"},{"childCategoryName":"Peralatan Pancing","childCategoryUrl":"//www.lazada.co.id/jual-peralatan-pancing/"},{"childCategoryName":"GPS alat pencari ikan","childCategoryUrl":"//www.lazada.co.id/jual-gps-alat-pencari-ikan/"},{"childCategoryName":"Jaring Penangkap Ikan","childCategoryUrl":"//www.lazada.co.id/jual-jaring-penangkap-ikan/"},{"childCategoryName":"Aksesoris Memancing","childCategoryUrl":"//www.lazada.co.id/jual-aksesoris-memancing/"}]
+                            [{"childCategoryName":"Tongkat Pancing","childCategoryUrl":"https://www.ramaakunting.com/download/jual-tongkat-pancing/"},{"childCategoryName":"Alat Gulungan Pancing","childCategoryUrl":"https://www.ramaakunting.com/download/alat-gulungan-pancing/"},{"childCategoryName":"Set Tongkat dan Gulungan Pancing","childCategoryUrl":"https://www.ramaakunting.com/download/set-tongkat-dan-gulungan-pancing/"},{"childCategoryName":"Senar Pancing","childCategoryUrl":"https://www.ramaakunting.com/download/jual-senar-pancing/"},{"childCategoryName":"Umpan Pancing","childCategoryUrl":"https://www.ramaakunting.com/download/jual-umpan/"},{"childCategoryName":"Peralatan Pancing","childCategoryUrl":"https://www.ramaakunting.com/download/jual-peralatan-pancing/"},{"childCategoryName":"GPS alat pencari ikan","childCategoryUrl":"https://www.ramaakunting.com/download/jual-gps-alat-pencari-ikan/"},{"childCategoryName":"Jaring Penangkap Ikan","childCategoryUrl":"https://www.ramaakunting.com/download/jual-jaring-penangkap-ikan/"},{"childCategoryName":"Aksesoris Memancing","childCategoryUrl":"https://www.ramaakunting.com/download/jual-aksesoris-memancing/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_11_7">
-                <a href="//www.lazada.co.id/olahraga-sepeda/">
+                <a href="https://www.ramaakunting.com/download/olahraga-sepeda/">
                     <span>Olahraga Sepeda</span>
                 </a>
                         <script type="text" class="J_data_10_6">
-                            [{"childCategoryName":"Komponen Part Sepeda","childCategoryUrl":"//www.lazada.co.id/komponen-dan-parts-sepeda/"},{"childCategoryName":"Aksesoris Sepeda","childCategoryUrl":"//www.lazada.co.id/aksesoris-sepeda/"},{"childCategoryName":"Sepeda","childCategoryUrl":"//www.lazada.co.id/sepeda/"},{"childCategoryName":"Kaos Sepeda","childCategoryUrl":"//www.lazada.co.id/jual-baju-kaos-sepeda/"},{"childCategoryName":"Sepatu Sepeda Pria","childCategoryUrl":"//www.lazada.co.id/jual-sepatu-sepeda-pria/"},{"childCategoryName":"Sepatu Sepeda Wanita","childCategoryUrl":"//www.lazada.co.id/sepatu-sepeda-wanita/"},{"childCategoryName":"Sepatu Sepeda Perempuan","childCategoryUrl":"//www.lazada.co.id/jual-sepatu-sepeda-anak-perempuan/"},{"childCategoryName":"Sepatu Sepeda Laki-Laki","childCategoryUrl":"//www.lazada.co.id/jual-sepatu-sepeda-anak-laki-laki/"}]
+                            [{"childCategoryName":"Komponen Part Sepeda","childCategoryUrl":"https://www.ramaakunting.com/download/komponen-dan-parts-sepeda/"},{"childCategoryName":"Aksesoris Sepeda","childCategoryUrl":"https://www.ramaakunting.com/download/aksesoris-sepeda/"},{"childCategoryName":"Sepeda","childCategoryUrl":"https://www.ramaakunting.com/download/sepeda/"},{"childCategoryName":"Kaos Sepeda","childCategoryUrl":"https://www.ramaakunting.com/download/jual-baju-kaos-sepeda/"},{"childCategoryName":"Sepatu Sepeda Pria","childCategoryUrl":"https://www.ramaakunting.com/download/jual-sepatu-sepeda-pria/"},{"childCategoryName":"Sepatu Sepeda Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/sepatu-sepeda-wanita/"},{"childCategoryName":"Sepatu Sepeda Perempuan","childCategoryUrl":"https://www.ramaakunting.com/download/jual-sepatu-sepeda-anak-perempuan/"},{"childCategoryName":"Sepatu Sepeda Laki-Laki","childCategoryUrl":"https://www.ramaakunting.com/download/jual-sepatu-sepeda-anak-laki-laki/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_11_8">
-                <a href="//www.lazada.co.id/olahraga-air/">
+                <a href="https://www.ramaakunting.com/download/olahraga-air/">
                     <span>Olahraga Air</span>
                 </a>
                         <script type="text" class="J_data_10_7">
-                            [{"childCategoryName":"Kapal","childCategoryUrl":"//www.lazada.co.id/jual-kapal/"},{"childCategoryName":"Peralatan Menyelam","childCategoryUrl":"//www.lazada.co.id/diving-snorkeling/"},{"childCategoryName":"Peralatan Renang","childCategoryUrl":"//www.lazada.co.id/renang/"},{"childCategoryName":"Papan Renang","childCategoryUrl":"//www.lazada.co.id/jual-olahraga-papan/"},{"childCategoryName":"Tubing dan Towables","childCategoryUrl":"//www.lazada.co.id/jual-tubing-towables/"},{"childCategoryName":"Akesesoris Olahraga Air","childCategoryUrl":"//www.lazada.co.id/jual-aksesoris-olahraga-air/"}]
+                            [{"childCategoryName":"Kapal","childCategoryUrl":"https://www.ramaakunting.com/download/jual-kapal/"},{"childCategoryName":"Peralatan Menyelam","childCategoryUrl":"https://www.ramaakunting.com/download/diving-snorkeling/"},{"childCategoryName":"Peralatan Renang","childCategoryUrl":"https://www.ramaakunting.com/download/renang/"},{"childCategoryName":"Papan Renang","childCategoryUrl":"https://www.ramaakunting.com/download/jual-olahraga-papan/"},{"childCategoryName":"Tubing dan Towables","childCategoryUrl":"https://www.ramaakunting.com/download/jual-tubing-towables/"},{"childCategoryName":"Akesesoris Olahraga Air","childCategoryUrl":"https://www.ramaakunting.com/download/jual-aksesoris-olahraga-air/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_11_9">
-                <a href="//www.lazada.co.id/latihan-dan-fitness/">
+                <a href="https://www.ramaakunting.com/download/latihan-dan-fitness/">
                     <span>Gym, Yoga &amp; Fitness</span>
                 </a>
                         <script type="text" class="J_data_10_8">
-                            [{"childCategoryName":"Peralatan Pelatihan Ketangkasan","childCategoryUrl":"//www.lazada.co.id/shop-pelatihan-kecepatan-ketangkasan/"},{"childCategoryName":"Aksesoris Gym","childCategoryUrl":"//www.lazada.co.id/shop-aksesoris/"},{"childCategoryName":"Pilates Gym","childCategoryUrl":"//www.lazada.co.id/pilates/"},{"childCategoryName":"Alat Latihan Angkat Beban","childCategoryUrl":"//www.lazada.co.id/alat-latihan-angkat-beban/"},{"childCategoryName":"Yoga","childCategoryUrl":"//www.lazada.co.id/yoga/"},{"childCategoryName":"Peralatan Kardio","childCategoryUrl":"//www.lazada.co.id/peralatan-latihan-kardio/"},{"childCategoryName":"Perlengkapan Fitnes","childCategoryUrl":"//www.lazada.co.id/jual-aksesoris-fitness/"},{"childCategoryName":"Perlengkapan Lari","childCategoryUrl":"//www.lazada.co.id/temporary-url-sport-catl3-1/"}]
+                            [{"childCategoryName":"Peralatan Pelatihan Ketangkasan","childCategoryUrl":"https://www.ramaakunting.com/download/shop-pelatihan-kecepatan-ketangkasan/"},{"childCategoryName":"Aksesoris Gym","childCategoryUrl":"https://www.ramaakunting.com/download/shop-aksesoris/"},{"childCategoryName":"Pilates Gym","childCategoryUrl":"https://www.ramaakunting.com/download/pilates/"},{"childCategoryName":"Alat Latihan Angkat Beban","childCategoryUrl":"https://www.ramaakunting.com/download/alat-latihan-angkat-beban/"},{"childCategoryName":"Yoga","childCategoryUrl":"https://www.ramaakunting.com/download/yoga/"},{"childCategoryName":"Peralatan Kardio","childCategoryUrl":"https://www.ramaakunting.com/download/peralatan-latihan-kardio/"},{"childCategoryName":"Perlengkapan Fitnes","childCategoryUrl":"https://www.ramaakunting.com/download/jual-aksesoris-fitness/"},{"childCategoryName":"Perlengkapan Lari","childCategoryUrl":"https://www.ramaakunting.com/download/temporary-url-sport-catl3-1/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_11_10">
-                <a href="//www.lazada.co.id/olahraga-raket/">
+                <a href="https://www.ramaakunting.com/download/olahraga-raket/">
                     <span>Olahraga Raket</span>
                 </a>
                         <script type="text" class="J_data_10_9">
-                            [{"childCategoryName":"Tenis Meja","childCategoryUrl":"//www.lazada.co.id/tenis-meja/"},{"childCategoryName":"Badminton","childCategoryUrl":"//www.lazada.co.id/bulutangkis/"},{"childCategoryName":"Tennis","childCategoryUrl":"//www.lazada.co.id/tenis/"},{"childCategoryName":"Squash","childCategoryUrl":"//www.lazada.co.id/squash/"}]
+                            [{"childCategoryName":"Tenis Meja","childCategoryUrl":"https://www.ramaakunting.com/download/tenis-meja/"},{"childCategoryName":"Badminton","childCategoryUrl":"https://www.ramaakunting.com/download/bulutangkis/"},{"childCategoryName":"Tennis","childCategoryUrl":"https://www.ramaakunting.com/download/tenis/"},{"childCategoryName":"Squash","childCategoryUrl":"https://www.ramaakunting.com/download/squash/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_11_11">
-                <a href="//www.lazada.co.id/shop-perlengkapan-olah-raga/">
+                <a href="https://www.ramaakunting.com/download/shop-perlengkapan-olah-raga/">
                     <span>Perlengkapan Olahraga</span>
                 </a>
                         <script type="text" class="J_data_10_10">
-                            [{"childCategoryName":"Oxrashoan Tinju-Bela Mma","childCategoryUrl":"//www.lazada.co.id/jual-tinju-bela-diri-mma/"},{"childCategoryName":"Golf Gym","childCategoryUrl":"//www.lazada.co.id/golf/"},{"childCategoryName":"Bola Gym","childCategoryUrl":"//www.lazada.co.id/sepak-bola/"},{"childCategoryName":"Basket Gym","childCategoryUrl":"//www.lazada.co.id/basket/"},{"childCategoryName":"Voli Gym","childCategoryUrl":"//www.lazada.co.id/voli/"},{"childCategoryName":"Cricket Gym","childCategoryUrl":"//www.lazada.co.id/cricket/"},{"childCategoryName":"Rugby Gym","childCategoryUrl":"//www.lazada.co.id/rugby/"},{"childCategoryName":"Takraw Gym","childCategoryUrl":"//www.lazada.co.id/sepak-takraw/"},{"childCategoryName":"Baseball Gym","childCategoryUrl":"//www.lazada.co.id/baseball/"},{"childCategoryName":"Perlengkapan Olahraga Senam","childCategoryUrl":"//www.lazada.co.id/jual-olahraga-senam/"},{"childCategoryName":"Hoki Gym","childCategoryUrl":"//www.lazada.co.id/olahraga-hoki/"},{"childCategoryName":"Peralatan Cheerleading","childCategoryUrl":"//www.lazada.co.id/jual-peralatan-cheerleading/"}]
+                            [{"childCategoryName":"Oxrashoan Tinju-Bela Mma","childCategoryUrl":"https://www.ramaakunting.com/download/jual-tinju-bela-diri-mma/"},{"childCategoryName":"Golf Gym","childCategoryUrl":"https://www.ramaakunting.com/download/golf/"},{"childCategoryName":"Bola Gym","childCategoryUrl":"https://www.ramaakunting.com/download/sepak-bola/"},{"childCategoryName":"Basket Gym","childCategoryUrl":"https://www.ramaakunting.com/download/basket/"},{"childCategoryName":"Voli Gym","childCategoryUrl":"https://www.ramaakunting.com/download/voli/"},{"childCategoryName":"Cricket Gym","childCategoryUrl":"https://www.ramaakunting.com/download/cricket/"},{"childCategoryName":"Rugby Gym","childCategoryUrl":"https://www.ramaakunting.com/download/rugby/"},{"childCategoryName":"Takraw Gym","childCategoryUrl":"https://www.ramaakunting.com/download/sepak-takraw/"},{"childCategoryName":"Baseball Gym","childCategoryUrl":"https://www.ramaakunting.com/download/baseball/"},{"childCategoryName":"Perlengkapan Olahraga Senam","childCategoryUrl":"https://www.ramaakunting.com/download/jual-olahraga-senam/"},{"childCategoryName":"Hoki Gym","childCategoryUrl":"https://www.ramaakunting.com/download/olahraga-hoki/"},{"childCategoryName":"Peralatan Cheerleading","childCategoryUrl":"https://www.ramaakunting.com/download/jual-peralatan-cheerleading/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_11_12">
-                <a href="//www.lazada.co.id/sepak-bola/">
+                <a href="https://www.ramaakunting.com/download/sepak-bola/">
                     <span>Perlengkapan Sepak Bola</span>
                 </a>
                         <script type="text" class="J_data_10_11">
-                            [{"childCategoryName":"Sepatu Sepakbola","childCategoryUrl":"//www.lazada.co.id/jual-sepatu-sepakbola-pria/"},{"childCategoryName":"Sepatu Futsal","childCategoryUrl":"//www.lazada.co.id/jual-sepatu-futsal-pria/"},{"childCategoryName":"Jersey Sepakbola","childCategoryUrl":"//www.lazada.co.id/jual-jersey-sepak-bola-pria/"},{"childCategoryName":"Jersey Sepakbola Anak","childCategoryUrl":"//www.lazada.co.id/jual-jersey-sepak-bola-anak-laki-laki/"},{"childCategoryName":"Sepatu Sepakbola Anak","childCategoryUrl":"//www.lazada.co.id/jual-sepatu-sepak-bola/"},{"childCategoryName":"Sepatu Futsal Anak","childCategoryUrl":"//www.lazada.co.id/jual-sepatu-futsal/"},{"childCategoryName":"Bola","childCategoryUrl":"//www.lazada.co.id/bola-sepak-bola/"},{"childCategoryName":"Sarung Tangan Keeper","childCategoryUrl":"//www.lazada.co.id/sarung-tangan-kiper/"},{"childCategoryName":"Pelindung Lutut","childCategoryUrl":"//www.lazada.co.id/beli-pelindung-tulang-kering/"},{"childCategoryName":"Peralatan Latihan","childCategoryUrl":"//www.lazada.co.id/beli-peralatan-berlatih-dan-lapangan/"},{"childCategoryName":"Tas","childCategoryUrl":"//www.lazada.co.id/jual-tas-peralatan/"},{"childCategoryName":"Fan Merchandise Team International","childCategoryUrl":"//www.lazada.co.id/international-football-clubs-fan-merchandise/"}]
+                            [{"childCategoryName":"Sepatu Sepakbola","childCategoryUrl":"https://www.ramaakunting.com/download/jual-sepatu-sepakbola-pria/"},{"childCategoryName":"Sepatu Futsal","childCategoryUrl":"https://www.ramaakunting.com/download/jual-sepatu-futsal-pria/"},{"childCategoryName":"Jersey Sepakbola","childCategoryUrl":"https://www.ramaakunting.com/download/jual-jersey-sepak-bola-pria/"},{"childCategoryName":"Jersey Sepakbola Anak","childCategoryUrl":"https://www.ramaakunting.com/download/jual-jersey-sepak-bola-anak-laki-laki/"},{"childCategoryName":"Sepatu Sepakbola Anak","childCategoryUrl":"https://www.ramaakunting.com/download/jual-sepatu-sepak-bola/"},{"childCategoryName":"Sepatu Futsal Anak","childCategoryUrl":"https://www.ramaakunting.com/download/jual-sepatu-futsal/"},{"childCategoryName":"Bola","childCategoryUrl":"https://www.ramaakunting.com/download/bola-sepak-bola/"},{"childCategoryName":"Sarung Tangan Keeper","childCategoryUrl":"https://www.ramaakunting.com/download/sarung-tangan-kiper/"},{"childCategoryName":"Pelindung Lutut","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pelindung-tulang-kering/"},{"childCategoryName":"Peralatan Latihan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-peralatan-berlatih-dan-lapangan/"},{"childCategoryName":"Tas","childCategoryUrl":"https://www.ramaakunting.com/download/jual-tas-peralatan/"},{"childCategoryName":"Fan Merchandise Team International","childCategoryUrl":"https://www.ramaakunting.com/download/international-football-clubs-fan-merchandise/"}]
                         </script>
             </li>
         </ul>
         <ul class="lzd-site-menu-sub Level_1_Category_No12" data-spm="cate_12">
             <li class="lzd-site-menu-sub-item" data-cate="cate_12_1">
-                <a href="//www.lazada.co.id/shop-auto-parts-spares/">
+                <a href="https://www.ramaakunting.com/download/shop-auto-parts-spares/">
                     <span>Suku Cadang &amp; Peralatan Mobil</span>
                 </a>
                         <script type="text" class="J_data_11_0">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Lampu, Bohlam & LED","childCategoryUrl":"//www.lazada.co.id/shop-bohlam-led-hid/"},{"childCategoryName":"Rem","childCategoryUrl":"//www.lazada.co.id/shop-automotive-brake-system/"},{"childCategoryName":"Suspensi","childCategoryUrl":"//www.lazada.co.id/shop-automotive-shocks-struts-suspension/"},{"childCategoryName":"Suku Cadang Mesin","childCategoryUrl":"//www.lazada.co.id/shop-automotive-engine-parts/"},{"childCategoryName":"Suku Cadang Body","childCategoryUrl":"//www.lazada.co.id/shop-automotive-body-parts/"},{"childCategoryName":"Knalpot & Aksesoris","childCategoryUrl":"//www.lazada.co.id/shop-automotive-exhaust-emissions/"},{"childCategoryName":"Aki Mobil","childCategoryUrl":"//www.lazada.co.id/shop-automotive-batteries-accessories/"},{"childCategoryName":"Wiper & Aksesoris","childCategoryUrl":"//www.lazada.co.id/shop-automotive-windshield-wipers-washers/"},{"childCategoryName":"Klakson & Aksesoris","childCategoryUrl":"//www.lazada.co.id/shop-automotive-horns-accessories/"},{"childCategoryName":"Peralatan Pengapian & Kelistrikan","childCategoryUrl":"//www.lazada.co.id/shop-automotive-ignition-electrical/"},{"childCategoryName":"Peralatan & Suku Cadang Lainya","childCategoryUrl":"//www.lazada.co.id/shop-automotive-trim/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Lampu, Bohlam & LED","childCategoryUrl":"https://www.ramaakunting.com/download/shop-bohlam-led-hid/"},{"childCategoryName":"Rem","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-brake-system/"},{"childCategoryName":"Suspensi","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-shocks-struts-suspension/"},{"childCategoryName":"Suku Cadang Mesin","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-engine-parts/"},{"childCategoryName":"Suku Cadang Body","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-body-parts/"},{"childCategoryName":"Knalpot & Aksesoris","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-exhaust-emissions/"},{"childCategoryName":"Aki Mobil","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-batteries-accessories/"},{"childCategoryName":"Wiper & Aksesoris","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-windshield-wipers-washers/"},{"childCategoryName":"Klakson & Aksesoris","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-horns-accessories/"},{"childCategoryName":"Peralatan Pengapian & Kelistrikan","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-ignition-electrical/"},{"childCategoryName":"Peralatan & Suku Cadang Lainya","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-trim/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_12_2">
-                <a href="//www.lazada.co.id/aksesoris-interior-mobil/">
+                <a href="https://www.ramaakunting.com/download/aksesoris-interior-mobil/">
                     <span>Aksesoris Interior Mobil</span>
                 </a>
                         <script type="text" class="J_data_11_1">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Penyegar & Pewangi Kendaraan","childCategoryUrl":"//www.lazada.co.id/pengharum-mobil/"},{"childCategoryName":"Jok & Trim","childCategoryUrl":"//www.lazada.co.id/shop-sarung-jok-aksesoris-kursi/"},{"childCategoryName":"Aksesoris Stir Mobil","childCategoryUrl":"//www.lazada.co.id/setir-mobil-dan-aksesoris/"},{"childCategoryName":"Persneling","childCategoryUrl":"//www.lazada.co.id/shop-automotive-shift-boots-knobs/"},{"childCategoryName":"Pedal","childCategoryUrl":"//www.lazada.co.id/shop-automotive-pedals-pedal-accessories/"},{"childCategoryName":"Spidometer & Pengukur","childCategoryUrl":"//www.lazada.co.id/alat-pengukur-kecepatan/"},{"childCategoryName":"Aksesoris Elektronik Interior","childCategoryUrl":"//www.lazada.co.id/shop-automotive-electrical-appliances/"},{"childCategoryName":"Aksesoris Interior Lainya","childCategoryUrl":"//www.lazada.co.id/shop-automotive-consoles-organizers/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Penyegar & Pewangi Kendaraan","childCategoryUrl":"https://www.ramaakunting.com/download/pengharum-mobil/"},{"childCategoryName":"Jok & Trim","childCategoryUrl":"https://www.ramaakunting.com/download/shop-sarung-jok-aksesoris-kursi/"},{"childCategoryName":"Aksesoris Stir Mobil","childCategoryUrl":"https://www.ramaakunting.com/download/setir-mobil-dan-aksesoris/"},{"childCategoryName":"Persneling","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-shift-boots-knobs/"},{"childCategoryName":"Pedal","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-pedals-pedal-accessories/"},{"childCategoryName":"Spidometer & Pengukur","childCategoryUrl":"https://www.ramaakunting.com/download/alat-pengukur-kecepatan/"},{"childCategoryName":"Aksesoris Elektronik Interior","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-electrical-appliances/"},{"childCategoryName":"Aksesoris Interior Lainya","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-consoles-organizers/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_12_3">
-                <a href="//www.lazada.co.id/aksesoris-eksterior-mobil/">
+                <a href="https://www.ramaakunting.com/download/aksesoris-eksterior-mobil/">
                     <span>Aksesoris Exterior Mobil</span>
                 </a>
                         <script type="text" class="J_data_11_2">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Sarung Mobil","childCategoryUrl":"//www.lazada.co.id/penutup-mobil/"},{"childCategoryName":"Stiker & Emblems","childCategoryUrl":"//www.lazada.co.id/shop-stiker/"},{"childCategoryName":"Lis & Garnis","childCategoryUrl":"//www.lazada.co.id/shop-automotive-chrome-trim-accessories/"},{"childCategoryName":"Penutup Pelat Nomer","childCategoryUrl":"//www.lazada.co.id/shop-automotive-license-plate-covers-frames/"},{"childCategoryName":"Aksesoris Serbaguna","childCategoryUrl":"//www.lazada.co.id/shop-manajemen-kargo/"},{"childCategoryName":"Kaca Angin, Deflektor & Talang Air","childCategoryUrl":"//www.lazada.co.id/pelindung-dan-talang-air-mobil/"},{"childCategoryName":"Kaca & Aksesoris","childCategoryUrl":"//www.lazada.co.id/shop-automotive-exterior-mirrors/"},{"childCategoryName":"Spoiler, Sayap & Body Kit","childCategoryUrl":"//www.lazada.co.id/shop-automotive-spoilers-wings-styling-kits/"},{"childCategoryName":"Aksesoris Offroad","childCategoryUrl":"//www.lazada.co.id/shop-automotive-body-armor/"},{"childCategoryName":"Aksesoris Exterior Lainya","childCategoryUrl":"//www.lazada.co.id/shop-automotive-trailer-accessories/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Sarung Mobil","childCategoryUrl":"https://www.ramaakunting.com/download/penutup-mobil/"},{"childCategoryName":"Stiker & Emblems","childCategoryUrl":"https://www.ramaakunting.com/download/shop-stiker/"},{"childCategoryName":"Lis & Garnis","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-chrome-trim-accessories/"},{"childCategoryName":"Penutup Pelat Nomer","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-license-plate-covers-frames/"},{"childCategoryName":"Aksesoris Serbaguna","childCategoryUrl":"https://www.ramaakunting.com/download/shop-manajemen-kargo/"},{"childCategoryName":"Kaca Angin, Deflektor & Talang Air","childCategoryUrl":"https://www.ramaakunting.com/download/pelindung-dan-talang-air-mobil/"},{"childCategoryName":"Kaca & Aksesoris","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-exterior-mirrors/"},{"childCategoryName":"Spoiler, Sayap & Body Kit","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-spoilers-wings-styling-kits/"},{"childCategoryName":"Aksesoris Offroad","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-body-armor/"},{"childCategoryName":"Aksesoris Exterior Lainya","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-trailer-accessories/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_12_4">
-                <a href="//www.lazada.co.id/shop-elektronik/">
+                <a href="https://www.ramaakunting.com/download/shop-elektronik/">
                     <span>Kamera Mobil, Audio &amp; Video</span>
                 </a>
                         <script type="text" class="J_data_11_3">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Kamera Mobil & Aksesoris","childCategoryUrl":"//www.lazada.co.id/shop-kamera-mobil/"},{"childCategoryName":"Headunit","childCategoryUrl":"//www.lazada.co.id/shop-car-video-in-dash-navigation/"},{"childCategoryName":"Spiker","childCategoryUrl":"//www.lazada.co.id/shop-car-audio-speakers/"},{"childCategoryName":"Subwoofer","childCategoryUrl":"//www.lazada.co.id/shop-car-audio-subwoofers/"},{"childCategoryName":"Power, amplifier & Kapasitor Bank","childCategoryUrl":"//www.lazada.co.id/shop-car-audio-equalizers/"},{"childCategoryName":"GPS","childCategoryUrl":"//www.lazada.co.id/shop-motors-gps/"},{"childCategoryName":"Video, TV Aksesoris mobil","childCategoryUrl":"//www.lazada.co.id/shop-car-video/"},{"childCategoryName":"Aksesoris Audio & Video Lainya","childCategoryUrl":"//www.lazada.co.id/shop-audio-video-accessories/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Kamera Mobil & Aksesoris","childCategoryUrl":"https://www.ramaakunting.com/download/shop-kamera-mobil/"},{"childCategoryName":"Headunit","childCategoryUrl":"https://www.ramaakunting.com/download/shop-car-video-in-dash-navigation/"},{"childCategoryName":"Spiker","childCategoryUrl":"https://www.ramaakunting.com/download/shop-car-audio-speakers/"},{"childCategoryName":"Subwoofer","childCategoryUrl":"https://www.ramaakunting.com/download/shop-car-audio-subwoofers/"},{"childCategoryName":"Power, amplifier & Kapasitor Bank","childCategoryUrl":"https://www.ramaakunting.com/download/shop-car-audio-equalizers/"},{"childCategoryName":"GPS","childCategoryUrl":"https://www.ramaakunting.com/download/shop-motors-gps/"},{"childCategoryName":"Video, TV Aksesoris mobil","childCategoryUrl":"https://www.ramaakunting.com/download/shop-car-video/"},{"childCategoryName":"Aksesoris Audio & Video Lainya","childCategoryUrl":"https://www.ramaakunting.com/download/shop-audio-video-accessories/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_12_5">
-                <a href="//www.lazada.co.id/shop-perawatan-mobil/">
+                <a href="https://www.ramaakunting.com/download/shop-perawatan-mobil/">
                     <span>Perawatan &amp; Pengkilat Mobil</span>
                 </a>
                         <script type="text" class="J_data_11_4">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Penyegar & Pewangi Kendaraan","childCategoryUrl":"//www.lazada.co.id/pengharum-mobil/"},{"childCategoryName":"Pengkilat & Detailing Bodi","childCategoryUrl":"//www.lazada.co.id/shop-automotive-polishing-waxing-kits/"},{"childCategoryName":"Pelapis & Pembersih Kaca","childCategoryUrl":"//www.lazada.co.id/glass-care/"},{"childCategoryName":"Kompon & Penghilang Baret","childCategoryUrl":"//www.lazada.co.id/shop-automotive-polishing-rubbing-compounds/"},{"childCategoryName":"Cat Mobil","childCategoryUrl":"//www.lazada.co.id/shop-automotive-paints-primers/"},{"childCategoryName":"Perawatan Ban & Velg","childCategoryUrl":"//www.lazada.co.id/shop-automotive-tire-wheel-care/"},{"childCategoryName":"Perawatan Interior","childCategoryUrl":"//www.lazada.co.id/interior-care/"},{"childCategoryName":"Paket Perawatan Mobil","childCategoryUrl":"//www.lazada.co.id/shop-paket-perawatan-mobil/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Penyegar & Pewangi Kendaraan","childCategoryUrl":"https://www.ramaakunting.com/download/pengharum-mobil/"},{"childCategoryName":"Pengkilat & Detailing Bodi","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-polishing-waxing-kits/"},{"childCategoryName":"Pelapis & Pembersih Kaca","childCategoryUrl":"https://www.ramaakunting.com/download/glass-care/"},{"childCategoryName":"Kompon & Penghilang Baret","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-polishing-rubbing-compounds/"},{"childCategoryName":"Cat Mobil","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-paints-primers/"},{"childCategoryName":"Perawatan Ban & Velg","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-tire-wheel-care/"},{"childCategoryName":"Perawatan Interior","childCategoryUrl":"https://www.ramaakunting.com/download/interior-care/"},{"childCategoryName":"Paket Perawatan Mobil","childCategoryUrl":"https://www.ramaakunting.com/download/shop-paket-perawatan-mobil/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_12_6">
-                <a href="//www.lazada.co.id/roda-dan-ban/">
+                <a href="https://www.ramaakunting.com/download/roda-dan-ban/">
                     <span>Ban &amp; Velg Mobil</span>
                 </a>
                         <script type="text" class="J_data_11_5">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Velg","childCategoryUrl":"//www.lazada.co.id/jual-roda/"},{"childCategoryName":"Ban","childCategoryUrl":"//www.lazada.co.id/jual-ban/"},{"childCategoryName":"Aksesoris Velg & Ban","childCategoryUrl":"//www.lazada.co.id/jual-aksesoris-roda-suku-cadang/"},{"childCategoryName":"Peralatan Velg & Ban","childCategoryUrl":"//www.lazada.co.id/shop-tire-parts-air-compressors-inflators/"},{"childCategoryName":"Servis & Pemasangan Velg, Ban","childCategoryUrl":"//www.lazada.co.id/shop-paket-ban-pelek/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Velg","childCategoryUrl":"https://www.ramaakunting.com/download/jual-roda/"},{"childCategoryName":"Ban","childCategoryUrl":"https://www.ramaakunting.com/download/jual-ban/"},{"childCategoryName":"Aksesoris Velg & Ban","childCategoryUrl":"https://www.ramaakunting.com/download/jual-aksesoris-roda-suku-cadang/"},{"childCategoryName":"Peralatan Velg & Ban","childCategoryUrl":"https://www.ramaakunting.com/download/shop-tire-parts-air-compressors-inflators/"},{"childCategoryName":"Servis & Pemasangan Velg, Ban","childCategoryUrl":"https://www.ramaakunting.com/download/shop-paket-ban-pelek/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_12_7">
-                <a href="//www.lazada.co.id/oli-dan-pelumas/">
+                <a href="https://www.ramaakunting.com/download/oli-dan-pelumas/">
                     <span>Oli &amp; Cairan Mobil</span>
                 </a>
                         <script type="text" class="J_data_11_6">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Oli Mesin Mobil","childCategoryUrl":"//www.lazada.co.id/shop-automotive-oils/"},{"childCategoryName":"Aditif & Penguat Bensin","childCategoryUrl":"//www.lazada.co.id/shop-automotive-auto-oils-fluids-additives/"},{"childCategoryName":"Pendingin Mesin","childCategoryUrl":"//www.lazada.co.id/shop-automotive-antifreezes-coolants/"},{"childCategoryName":"Pembersih Mesin","childCategoryUrl":"//www.lazada.co.id/shop-automotive-cleaners/"},{"childCategoryName":"Oli Powersteering","childCategoryUrl":"//www.lazada.co.id/shop-automotive-power-steering-fluids/"},{"childCategoryName":"Cairan & Oli Lainnya","childCategoryUrl":"//www.lazada.co.id/shop-automotive-greases-lubricants/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Oli Mesin Mobil","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-oils/"},{"childCategoryName":"Aditif & Penguat Bensin","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-auto-oils-fluids-additives/"},{"childCategoryName":"Pendingin Mesin","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-antifreezes-coolants/"},{"childCategoryName":"Pembersih Mesin","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-cleaners/"},{"childCategoryName":"Oli Powersteering","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-power-steering-fluids/"},{"childCategoryName":"Cairan & Oli Lainnya","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-greases-lubricants/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_12_8">
-                <a href="//www.lazada.co.id/shop-motorcycle-riding-gear/">
+                <a href="https://www.ramaakunting.com/download/shop-motorcycle-riding-gear/">
                     <span>Perlengkapan Berkendara &amp; Helm</span>
                 </a>
                         <script type="text" class="J_data_11_7">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Helm","childCategoryUrl":"//www.lazada.co.id/helmets-automotive/"},{"childCategoryName":"Jaket & Pelindung","childCategoryUrl":"//www.lazada.co.id/jackets/"},{"childCategoryName":"Sarung Tangan","childCategoryUrl":"//www.lazada.co.id/shop-motorcycle-riding-gear-gloves/"},{"childCategoryName":"Sepatu & Boot","childCategoryUrl":"//www.lazada.co.id/shop-motorcycle-riding-gear-footwear/"},{"childCategoryName":"Masker & Pelindung Wajah","childCategoryUrl":"//www.lazada.co.id/shop-motorcycle-riding-gear-face-masks/"},{"childCategoryName":"Kacamata Angin","childCategoryUrl":"//www.lazada.co.id/shop-motorcycle-riding-gear-eyewear/"},{"childCategoryName":"Peralatan Hujan","childCategoryUrl":"//www.lazada.co.id/shop-pakaian-hujan/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Helm","childCategoryUrl":"https://www.ramaakunting.com/download/helmets-automotive/"},{"childCategoryName":"Jaket & Pelindung","childCategoryUrl":"https://www.ramaakunting.com/download/jackets/"},{"childCategoryName":"Sarung Tangan","childCategoryUrl":"https://www.ramaakunting.com/download/shop-motorcycle-riding-gear-gloves/"},{"childCategoryName":"Sepatu & Boot","childCategoryUrl":"https://www.ramaakunting.com/download/shop-motorcycle-riding-gear-footwear/"},{"childCategoryName":"Masker & Pelindung Wajah","childCategoryUrl":"https://www.ramaakunting.com/download/shop-motorcycle-riding-gear-face-masks/"},{"childCategoryName":"Kacamata Angin","childCategoryUrl":"https://www.ramaakunting.com/download/shop-motorcycle-riding-gear-eyewear/"},{"childCategoryName":"Peralatan Hujan","childCategoryUrl":"https://www.ramaakunting.com/download/shop-pakaian-hujan/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_12_9">
-                <a href="//www.lazada.co.id/shop-motorcycle-parts-spares/">
+                <a href="https://www.ramaakunting.com/download/shop-motorcycle-parts-spares/">
                     <span>Suku Cadang &amp; Peralatan Motor</span>
                 </a>
                         <script type="text" class="J_data_11_8">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Bohlam, LED & Rumah Lampu","childCategoryUrl":"//www.lazada.co.id/shop-penerangan/"},{"childCategoryName":"Rem & Suspensi","childCategoryUrl":"//www.lazada.co.id/shop-motorcycle-brakes-suspension/"},{"childCategoryName":"Knalpot & Aksesoris","childCategoryUrl":"//www.lazada.co.id/moto-knalpot-system-pembuangan/"},{"childCategoryName":"Aki Motor & Aksesoris","childCategoryUrl":"//www.lazada.co.id/shop-moto-batteries-accessories/"},{"childCategoryName":"Kaca / Cermin","childCategoryUrl":"//www.lazada.co.id/shop-motorcycle-mirrors/"},{"childCategoryName":"Filter Motor","childCategoryUrl":"//www.lazada.co.id/shop-saringan-udara/"},{"childCategoryName":"Suku Cadang Bodi & Rangka","childCategoryUrl":"//www.lazada.co.id/shop-motorcycle-body-frame/"},{"childCategoryName":"Suku Cadang Mesin","childCategoryUrl":"//www.lazada.co.id/shop-motorcycle-drivetrain-transmission/"},{"childCategoryName":"Busi","childCategoryUrl":"//www.lazada.co.id/shop-busi-motor/"},{"childCategoryName":"Suku Cadang Motor Lainnya","childCategoryUrl":"//www.lazada.co.id/shop-motorcycle-stands-accessories/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Bohlam, LED & Rumah Lampu","childCategoryUrl":"https://www.ramaakunting.com/download/shop-penerangan/"},{"childCategoryName":"Rem & Suspensi","childCategoryUrl":"https://www.ramaakunting.com/download/shop-motorcycle-brakes-suspension/"},{"childCategoryName":"Knalpot & Aksesoris","childCategoryUrl":"https://www.ramaakunting.com/download/moto-knalpot-system-pembuangan/"},{"childCategoryName":"Aki Motor & Aksesoris","childCategoryUrl":"https://www.ramaakunting.com/download/shop-moto-batteries-accessories/"},{"childCategoryName":"Kaca / Cermin","childCategoryUrl":"https://www.ramaakunting.com/download/shop-motorcycle-mirrors/"},{"childCategoryName":"Filter Motor","childCategoryUrl":"https://www.ramaakunting.com/download/shop-saringan-udara/"},{"childCategoryName":"Suku Cadang Bodi & Rangka","childCategoryUrl":"https://www.ramaakunting.com/download/shop-motorcycle-body-frame/"},{"childCategoryName":"Suku Cadang Mesin","childCategoryUrl":"https://www.ramaakunting.com/download/shop-motorcycle-drivetrain-transmission/"},{"childCategoryName":"Busi","childCategoryUrl":"https://www.ramaakunting.com/download/shop-busi-motor/"},{"childCategoryName":"Suku Cadang Motor Lainnya","childCategoryUrl":"https://www.ramaakunting.com/download/shop-motorcycle-stands-accessories/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_12_10">
-                <a href="//www.lazada.co.id/shop-motorcycle-exterior-accessories/">
+                <a href="https://www.ramaakunting.com/download/shop-motorcycle-exterior-accessories/">
                     <span>Aksesoris &amp; Elektronik Motor</span>
                 </a>
                         <script type="text" class="J_data_11_9">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Sarung Jok","childCategoryUrl":"//www.lazada.co.id/shop-sarung-jok/"},{"childCategoryName":"Stiker & Emblem","childCategoryUrl":"//www.lazada.co.id/shop-stiker-emblem/"},{"childCategoryName":"Pengukur","childCategoryUrl":"//www.lazada.co.id/shop-indikator/"},{"childCategoryName":"Aksesoris Elektronik","childCategoryUrl":"//www.lazada.co.id/shop-motorcycle-electronics/"},{"childCategoryName":"Pelindung Plat Nomor","childCategoryUrl":"//www.lazada.co.id/shop-frame-plat-nomor/"},{"childCategoryName":"Sarung Motor","childCategoryUrl":"//www.lazada.co.id/shop-motorcycle-covers/"},{"childCategoryName":"Windshield & Aksesoris","childCategoryUrl":"//www.lazada.co.id/shop-motorcycle-windshields-accessories/"},{"childCategoryName":"Bagasi Penyimpanan & Bantalan","childCategoryUrl":"//www.lazada.co.id/shop-motorcycle-luggage-saddlebags/"},{"childCategoryName":"Aksesoris & Elektronik Motor Lainny","childCategoryUrl":"//www.lazada.co.id/shop-motorcycle-racks/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Sarung Jok","childCategoryUrl":"https://www.ramaakunting.com/download/shop-sarung-jok/"},{"childCategoryName":"Stiker & Emblem","childCategoryUrl":"https://www.ramaakunting.com/download/shop-stiker-emblem/"},{"childCategoryName":"Pengukur","childCategoryUrl":"https://www.ramaakunting.com/download/shop-indikator/"},{"childCategoryName":"Aksesoris Elektronik","childCategoryUrl":"https://www.ramaakunting.com/download/shop-motorcycle-electronics/"},{"childCategoryName":"Pelindung Plat Nomor","childCategoryUrl":"https://www.ramaakunting.com/download/shop-frame-plat-nomor/"},{"childCategoryName":"Sarung Motor","childCategoryUrl":"https://www.ramaakunting.com/download/shop-motorcycle-covers/"},{"childCategoryName":"Windshield & Aksesoris","childCategoryUrl":"https://www.ramaakunting.com/download/shop-motorcycle-windshields-accessories/"},{"childCategoryName":"Bagasi Penyimpanan & Bantalan","childCategoryUrl":"https://www.ramaakunting.com/download/shop-motorcycle-luggage-saddlebags/"},{"childCategoryName":"Aksesoris & Elektronik Motor Lainny","childCategoryUrl":"https://www.ramaakunting.com/download/shop-motorcycle-racks/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_12_11">
-                <a href="//www.lazada.co.id/shop-motorcycle-oils-fluids/">
+                <a href="https://www.ramaakunting.com/download/shop-motorcycle-oils-fluids/">
                     <span>Ban, Velg, Oli &amp; Cairan Motor</span>
                 </a>
                         <script type="text" class="J_data_11_10">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Oli Mesin Motor","childCategoryUrl":"//www.lazada.co.id/shop-oli-mesin/"},{"childCategoryName":"Oli Rem Motor","childCategoryUrl":"//www.lazada.co.id/shop-motorcycle-brake-fluid/"},{"childCategoryName":"Oli Transmisi Motor","childCategoryUrl":"//www.lazada.co.id/shop-oligirboks/"},{"childCategoryName":"Pendingin Motor","childCategoryUrl":"//www.lazada.co.id/shop-coolant/"},{"childCategoryName":"Aditif & Penguat Bensin Motor","childCategoryUrl":"//www.lazada.co.id/shop-pembersih/"},{"childCategoryName":"Pelumas Motor","childCategoryUrl":"//www.lazada.co.id/shop-pelumas-dan-gemuk/"},{"childCategoryName":"Ban & Velg Motor","childCategoryUrl":"//www.lazada.co.id/jual-roda-ban-motor/"},{"childCategoryName":"Oli & Cairan Motor Lainnya","childCategoryUrl":"//www.lazada.co.id/shop-oli-shock-breaker/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Oli Mesin Motor","childCategoryUrl":"https://www.ramaakunting.com/download/shop-oli-mesin/"},{"childCategoryName":"Oli Rem Motor","childCategoryUrl":"https://www.ramaakunting.com/download/shop-motorcycle-brake-fluid/"},{"childCategoryName":"Oli Transmisi Motor","childCategoryUrl":"https://www.ramaakunting.com/download/shop-oligirboks/"},{"childCategoryName":"Pendingin Motor","childCategoryUrl":"https://www.ramaakunting.com/download/shop-coolant/"},{"childCategoryName":"Aditif & Penguat Bensin Motor","childCategoryUrl":"https://www.ramaakunting.com/download/shop-pembersih/"},{"childCategoryName":"Pelumas Motor","childCategoryUrl":"https://www.ramaakunting.com/download/shop-pelumas-dan-gemuk/"},{"childCategoryName":"Ban & Velg Motor","childCategoryUrl":"https://www.ramaakunting.com/download/jual-roda-ban-motor/"},{"childCategoryName":"Oli & Cairan Motor Lainnya","childCategoryUrl":"https://www.ramaakunting.com/download/shop-oli-shock-breaker/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_12_12">
-                <a href="//www.lazada.co.id/mobil-motor/">
+                <a href="https://www.ramaakunting.com/download/mobil-motor/">
                     <span>Kendaraan</span>
                 </a>
                         <script type="text" class="J_data_11_11">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Mobil","childCategoryUrl":"//www.lazada.co.id/shop-mobil/"},{"childCategoryName":"Motor","childCategoryUrl":"//www.lazada.co.id/shop-sepeda-motor-skuter/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Mobil","childCategoryUrl":"https://www.ramaakunting.com/download/shop-mobil/"},{"childCategoryName":"Motor","childCategoryUrl":"https://www.ramaakunting.com/download/shop-sepeda-motor-skuter/"}]
                         </script>
             </li>
         </ul>
@@ -2033,43 +2046,40 @@
             </div>
         </div>
         <nav class="lzd-menu-labels" data-spm="menu">
-            <a class="lzd-menu-labels-item" href="//pages.lazada.co.id/wow/i/id/LandingPage/lazmall?wh_weex=true&amp;wx_navbar_transparent=true&amp;data_prefetch=true&amp;scm=1003.4.icms-zebra-5000383-2586266.OTHER_6502207795_7692459">
+            <a class="lzd-menu-labels-item" href="https://www.ramaakunting.com/download/">
                 <span class="lzd-site-nav-menu-iconfont lzd-menu-labels-item-icon">
-                    <img alt="LazMall" class="lzd-site-nav-menu-iconfont-img" src="https://laz-img-cdn.alicdn.com/images/ims-web/TB1gNcMWBr0gK0jSZFnXXbRRXXa.png">
+                    <img alt="Situs Toto" class="lzd-site-nav-menu-iconfont-img" src="https://upload.wikimedia.org/wikipedia/commons/9/9c/Logo_cibabat.png">
                 </span>
-                <!--<i class="lzd-site-nav-menu-iconfont lzd-menu-labels-item-icon lazada-ic-channel-LazMall">&#xe629;</i>-->
-                <span class="lzd-menu-labels-item-text">LazMall</span>
+                <!--<i class="lzd-site-nav-menu-iconfont lzd-menu-labels-item-icon lazada-ic-channel-Slot88">&#xe629;</i>-->
+                <span class="lzd-menu-labels-item-text">Situs Toto</span>
             </a>
             <a class="lzd-menu-labels-item" href="//pages.lazada.co.id/wow/i/id/digitalgoods/home?hybrid=1&amp;scm=1003.4.icms-zebra-5000383-2586266.OTHER_6502207798_7692459">
                 <span class="lzd-site-nav-menu-iconfont lzd-menu-labels-item-icon">
-                    <img alt="Pulsa &amp;" class="lzd-site-nav-menu-iconfont-img" src="https://laz-img-cdn.alicdn.com/images/ims-web/TB1Je4vhRr0gK0jSZFnXXbRRXXa.png">
+                    <img alt="Pulsa &amp;" class="lzd-site-nav-menu-iconfont-img" src="https://upload.wikimedia.org/wikipedia/commons/9/9c/Logo_cibabat.png">
                 </span>
                 <!--<i class="lzd-site-nav-menu-iconfont lzd-menu-labels-item-icon lazada-ic-channel-MobileTop1">&#xe768;</i>-->
-                        <span class="lzd-menu-labels-item-text">Pulsa &amp; Tagihan</span>
+                        <span class="lzd-menu-labels-item-text">Toto Togel</span>
             </a>
             <a class="lzd-menu-labels-item" href="//pages.lazada.co.id/wow/gcp/route/lazada/id/upr_1000345_lazada/channel/id/upr-router/id_upr?hybrid=1&amp;data_prefetch=true&amp;at_iframe=1&amp;wh_pid=/lazada/channel/id/all-promo/mcp-ush&amp;scm=1003.4.icms-zebra-5000383-2586266.OTHER_6502207802_7692459&amp;prefetch_replace=1">
                 <span class="lzd-site-nav-menu-iconfont lzd-menu-labels-item-icon">
-                    <img alt="Voucher &amp;" class="lzd-site-nav-menu-iconfont-img" src="https://laz-img-cdn.alicdn.com/images/ims-web/TB1x8lvhHj1gK0jSZFuXXcrHpXa.png">
+                    <img alt="Voucher &amp;" class="lzd-site-nav-menu-iconfont-img" src="https://upload.wikimedia.org/wikipedia/commons/9/9c/Logo_cibabat.png">
                 </span>
                 <!--<i class="lzd-site-nav-menu-iconfont lzd-menu-labels-item-icon lazada-ic-channel-Vouchers">&#xe76a;</i>-->
-                        <span class="lzd-menu-labels-item-text">Voucher &amp; Diskon</span>
+                        <span class="lzd-menu-labels-item-text">Toto Slot</span>
             </a>
-            <a class="lzd-menu-labels-item" href="//www.lazada.co.id/blog/?scm=1003.4.icms-zebra-5000383-2586266.OTHER_6502207806_7692459">
+            <a class="lzd-menu-labels-item" href="https://www.ramaakunting.com/download/blog/?scm=1003.4.icms-zebra-5000383-2586266.OTHER_6502207806_7692459">
                 <span class="lzd-site-nav-menu-iconfont lzd-menu-labels-item-icon">
-                    <img alt="LazBlog" class="lzd-site-nav-menu-iconfont-img" src="https://icms-image.slatic.net/images/ims-web/9174453f-455e-4e30-87d2-bd90239e6994.png">
+                    <img alt="Togel Terpercaya" class="lzd-site-nav-menu-iconfont-img" src="https://upload.wikimedia.org/wikipedia/commons/9/9c/Logo_cibabat.png">
                 </span>
                 <!--<i class="lzd-site-nav-menu-iconfont lzd-menu-labels-item-icon lazada-ic-Categories">&#xe765;</i>-->
-                <span class="lzd-menu-labels-item-text">LazBlog</span>
+                <span class="lzd-menu-labels-item-text">Situs Togel</span>
             </a>
         </nav>
     </div>
 </div>
   </div>
                 </div>
-              <div class="lzd-nav-cart">
-                <a href="//cart.lazada.co.id/cart?scm=1003.4.icms-zebra-5001424-2591709.OTHER_5196131744_2267383" data-spm="dcart"><span class="cart-icon"></span>
-                <span class="cart-num" id="topActionCartNumber"></span></a>
-              </div>
+      
                 <div class="lzd-header-banner" id="topActionLiveUpBanner">
                 </div>
           </div>
@@ -2079,7 +2089,7 @@
 <div class="lzd-site-nav-menu lzd-site-nav-menu-active" data-mod-name="@ali/lzdmod-site-menu-nav-pc/pc/index" data-config="{}">
     <div class="lzd-site-menu-nav-container">
         <div class="lzd-site-menu-nav-category">
-            <a href="https://www.ramaakunting.com/">
+            <a href="https://www.ramaakunting.com/download/">
                 <span class="lzd-site-menu-nav-category-text">Kategori</span>
             </a>
             <div class="lzd-site-menu-nav-menu">
@@ -2148,963 +2158,963 @@
          </li>    
         <ul class="lzd-site-menu-sub Level_1_Category_No1" data-spm="cate_1">
             <li class="sub-item-remove-arrow" data-cate="cate_1_1">
-                <a href="//www.lazada.co.id/beli-handphone">
+                <a href="https://www.ramaakunting.com/download/beli-handphone">
                     <span>Handphone</span>
                 </a>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_1_2">
-                <a href="//www.lazada.co.id/shop-beli-laptop/">
+                <a href="https://www.ramaakunting.com/download/shop-beli-laptop/">
                     <span>Laptop</span>
                 </a>
                         <script type="text" class="J_data_0_1">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Laptop Consumer","childCategoryUrl":"//www.lazada.co.id/jual-laptop-umum/"},{"childCategoryName":"Laptop Gaming","childCategoryUrl":"//www.lazada.co.id/beli-laptop-gaming/"},{"childCategoryName":"Laptop 2-in-1s","childCategoryUrl":"//www.lazada.co.id/beli-laptop-2-in-1/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Laptop Consumer","childCategoryUrl":"https://www.ramaakunting.com/download/jual-laptop-umum/"},{"childCategoryName":"Laptop Gaming","childCategoryUrl":"https://www.ramaakunting.com/download/beli-laptop-gaming/"},{"childCategoryName":"Laptop 2-in-1s","childCategoryUrl":"https://www.ramaakunting.com/download/beli-laptop-2-in-1/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_1_3">
-                <a href="//www.lazada.co.id/beli-komputer/">
+                <a href="https://www.ramaakunting.com/download/beli-komputer/">
                     <span>Desktop</span>
                 </a>
                         <script type="text" class="J_data_0_2">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"PC Gaming","childCategoryUrl":"//www.lazada.co.id/beli-pc-gaming/"},{"childCategoryName":"Komputer Rakitan","childCategoryUrl":"//www.lazada.co.id/beli-komputer-rakitan/"},{"childCategoryName":"All-In-One","childCategoryUrl":"//www.lazada.co.id/beli-pc-all-in-one/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"PC Gaming","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pc-gaming/"},{"childCategoryName":"Komputer Rakitan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-komputer-rakitan/"},{"childCategoryName":"All-In-One","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pc-all-in-one/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_1_4">
-                <a href="//www.lazada.co.id/beli-kamera/">
+                <a href="https://www.ramaakunting.com/download/beli-kamera/">
                     <span>Kamera</span>
                 </a>
                         <script type="text" class="J_data_0_3">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"DSLR","childCategoryUrl":"//www.lazada.co.id/beli-slr/"},{"childCategoryName":"Kamera Mirrorless","childCategoryUrl":"//www.lazada.co.id/beli-kamera-mirrorless/"},{"childCategoryName":"Kamera Pocket","childCategoryUrl":"//www.lazada.co.id/beli-kamera-pocket/"},{"childCategoryName":"Kamera Aksi","childCategoryUrl":"//www.lazada.co.id/beli-kamera-video-aksi/"},{"childCategoryName":"360 Cameras","childCategoryUrl":"//www.lazada.co.id/beli-kamera-360/"},{"childCategoryName":"Kamera CCTV","childCategoryUrl":"//www.lazada.co.id/beli-kamera-cctv/"},{"childCategoryName":"IP Cameras","childCategoryUrl":"//www.lazada.co.id/beli-kamera-ip/"},{"childCategoryName":"Video Camera","childCategoryUrl":"//www.lazada.co.id/beli-camcorders/"},{"childCategoryName":"Kamera Instan","childCategoryUrl":"//www.lazada.co.id/beli-kamera-instan/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"DSLR","childCategoryUrl":"https://www.ramaakunting.com/download/beli-slr/"},{"childCategoryName":"Kamera Mirrorless","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kamera-mirrorless/"},{"childCategoryName":"Kamera Pocket","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kamera-pocket/"},{"childCategoryName":"Kamera Aksi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kamera-video-aksi/"},{"childCategoryName":"360 Cameras","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kamera-360/"},{"childCategoryName":"Kamera CCTV","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kamera-cctv/"},{"childCategoryName":"IP Cameras","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kamera-ip/"},{"childCategoryName":"Video Camera","childCategoryUrl":"https://www.ramaakunting.com/download/beli-camcorders/"},{"childCategoryName":"Kamera Instan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kamera-instan/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_1_5">
-                <a href="//www.lazada.co.id/shop-gaming-konsol/">
+                <a href="https://www.ramaakunting.com/download/shop-gaming-konsol/">
                     <span>Game Console</span>
                 </a>
                         <script type="text" class="J_data_0_4">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Gaming Konsol","childCategoryUrl":"//www.lazada.co.id/shop-permainan-konsol/"},{"childCategoryName":"Permainan Konsol","childCategoryUrl":"//www.lazada.co.id/shop-game-konsol/"},{"childCategoryName":"Pengontrol Game Konsol","childCategoryUrl":"//www.lazada.co.id/shop-pengontrol-game-konsol/"},{"childCategoryName":"Konsol Pelindung Penutup","childCategoryUrl":"//www.lazada.co.id/shop-konsolpelindung-penutup/"},{"childCategoryName":"Aksesoris Game Konsol","childCategoryUrl":"//www.lazada.co.id/shop-aksesoris-game-konsol/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Gaming Konsol","childCategoryUrl":"https://www.ramaakunting.com/download/shop-permainan-konsol/"},{"childCategoryName":"Permainan Konsol","childCategoryUrl":"https://www.ramaakunting.com/download/shop-game-konsol/"},{"childCategoryName":"Pengontrol Game Konsol","childCategoryUrl":"https://www.ramaakunting.com/download/shop-pengontrol-game-konsol/"},{"childCategoryName":"Konsol Pelindung Penutup","childCategoryUrl":"https://www.ramaakunting.com/download/shop-konsolpelindung-penutup/"},{"childCategoryName":"Aksesoris Game Konsol","childCategoryUrl":"https://www.ramaakunting.com/download/shop-aksesoris-game-konsol/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_1_6">
-                <a href="//www.lazada.co.id/beli-gadget/">
+                <a href="https://www.ramaakunting.com/download/beli-gadget/">
                     <span>Gadget</span>
                 </a>
                         <script type="text" class="J_data_0_5">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Rokok Elektrik","childCategoryUrl":"//www.lazada.co.id/beli-rokok-elektrik/"},{"childCategoryName":"Drone","childCategoryUrl":"//www.lazada.co.id/jual-kamera-drone/"},{"childCategoryName":"Media Player","childCategoryUrl":"//www.lazada.co.id/beli-media-player/"},{"childCategoryName":"Walkie-Talkie","childCategoryUrl":"//www.lazada.co.id/jual-walkie-talkie/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Rokok Elektrik","childCategoryUrl":"https://www.ramaakunting.com/download/beli-rokok-elektrik/"},{"childCategoryName":"Drone","childCategoryUrl":"https://www.ramaakunting.com/download/jual-kamera-drone/"},{"childCategoryName":"Media Player","childCategoryUrl":"https://www.ramaakunting.com/download/beli-media-player/"},{"childCategoryName":"Walkie-Talkie","childCategoryUrl":"https://www.ramaakunting.com/download/jual-walkie-talkie/"}]
                         </script>
             </li>
             <li class="sub-item-remove-arrow" data-cate="cate_1_7">
-                <a href="//www.lazada.co.id/beli-tablet-2">
+                <a href="https://www.ramaakunting.com/download/beli-tablet-2">
                     <span>Tablet</span>
                 </a>
             </li>
         </ul>
         <ul class="lzd-site-menu-sub Level_1_Category_No2" data-spm="cate_2">
             <li class="lzd-site-menu-sub-item" data-cate="cate_2_1">
-                <a href="//www.lazada.co.id/beli-aksesori-handphone">
+                <a href="https://www.ramaakunting.com/download/beli-aksesori-handphone">
                     <span>Aksesoris Handphone</span>
                 </a>
                         <script type="text" class="J_data_1_0">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Powerbank","childCategoryUrl":"//www.lazada.co.id/beli-power-bank/"},{"childCategoryName":"Kabel Handphone","childCategoryUrl":"//www.lazada.co.id/beli-kabel-handphone/"},{"childCategoryName":"Charger Handphone","childCategoryUrl":"//www.lazada.co.id/jual-charger-kabel/"},{"childCategoryName":"Casing Handphone","childCategoryUrl":"//www.lazada.co.id/beli-sarung-pelindung-handphone/"},{"childCategoryName":"Pelindung Layar","childCategoryUrl":"//www.lazada.co.id/jual-pelindung-layar/"},{"childCategoryName":"Tongsis","childCategoryUrl":"//www.lazada.co.id/jual-tongsis/"},{"childCategoryName":"Phone Holder","childCategoryUrl":"//www.lazada.co.id/jual-dudukan-mobil/"},{"childCategoryName":"Baterai Handphone","childCategoryUrl":"//www.lazada.co.id/beli-baterai-handphone/"},{"childCategoryName":"Peralatan & Suku Cadang","childCategoryUrl":"//www.lazada.co.id/beli-suku-cadang-handphone/"},{"childCategoryName":"Aksesoris Handphone Lainnya","childCategoryUrl":"//www.lazada.co.id/shop-aksesori-ponsel/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Powerbank","childCategoryUrl":"https://www.ramaakunting.com/download/beli-power-bank/"},{"childCategoryName":"Kabel Handphone","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kabel-handphone/"},{"childCategoryName":"Charger Handphone","childCategoryUrl":"https://www.ramaakunting.com/download/jual-charger-kabel/"},{"childCategoryName":"Casing Handphone","childCategoryUrl":"https://www.ramaakunting.com/download/beli-sarung-pelindung-handphone/"},{"childCategoryName":"Pelindung Layar","childCategoryUrl":"https://www.ramaakunting.com/download/jual-pelindung-layar/"},{"childCategoryName":"Tongsis","childCategoryUrl":"https://www.ramaakunting.com/download/jual-tongsis/"},{"childCategoryName":"Phone Holder","childCategoryUrl":"https://www.ramaakunting.com/download/jual-dudukan-mobil/"},{"childCategoryName":"Baterai Handphone","childCategoryUrl":"https://www.ramaakunting.com/download/beli-baterai-handphone/"},{"childCategoryName":"Peralatan & Suku Cadang","childCategoryUrl":"https://www.ramaakunting.com/download/beli-suku-cadang-handphone/"},{"childCategoryName":"Aksesoris Handphone Lainnya","childCategoryUrl":"https://www.ramaakunting.com/download/shop-aksesori-ponsel/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_2_2">
-                <a href="//www.lazada.co.id/beli-aksesori-komputer/">
+                <a href="https://www.ramaakunting.com/download/beli-aksesori-komputer/">
                     <span>Aksesoris Komputer</span>
                 </a>
                         <script type="text" class="J_data_1_1">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Mouse","childCategoryUrl":"//www.lazada.co.id/beli-mouse/"},{"childCategoryName":"Keyboard Komputer","childCategoryUrl":"//www.lazada.co.id/beli-keyboard/"},{"childCategoryName":"Monitor","childCategoryUrl":"//www.lazada.co.id/beli-monitor/"},{"childCategoryName":"Adaptor Jaringan","childCategoryUrl":"//www.lazada.co.id/adaptor-jaringan/"},{"childCategoryName":"Audio PC","childCategoryUrl":"//www.lazada.co.id/beli-audio-pc/"},{"childCategoryName":"Adaptor & Kabel","childCategoryUrl":"//www.lazada.co.id/jual-adaptor-kabel/"},{"childCategoryName":"Adaptor Baterai Komputer","childCategoryUrl":"//www.lazada.co.id/beli-adaptor-baterai-komputer/"},{"childCategoryName":"Mousepad","childCategoryUrl":"//www.lazada.co.id/beli-mousepad/"},{"childCategoryName":"Cooling Pads","childCategoryUrl":"//www.lazada.co.id/beli-alas-pendingin/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Mouse","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mouse/"},{"childCategoryName":"Keyboard Komputer","childCategoryUrl":"https://www.ramaakunting.com/download/beli-keyboard/"},{"childCategoryName":"Monitor","childCategoryUrl":"https://www.ramaakunting.com/download/beli-monitor/"},{"childCategoryName":"Adaptor Jaringan","childCategoryUrl":"https://www.ramaakunting.com/download/adaptor-jaringan/"},{"childCategoryName":"Audio PC","childCategoryUrl":"https://www.ramaakunting.com/download/beli-audio-pc/"},{"childCategoryName":"Adaptor & Kabel","childCategoryUrl":"https://www.ramaakunting.com/download/jual-adaptor-kabel/"},{"childCategoryName":"Adaptor Baterai Komputer","childCategoryUrl":"https://www.ramaakunting.com/download/beli-adaptor-baterai-komputer/"},{"childCategoryName":"Mousepad","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mousepad/"},{"childCategoryName":"Cooling Pads","childCategoryUrl":"https://www.ramaakunting.com/download/beli-alas-pendingin/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_2_3">
-                <a href="//www.lazada.co.id/shop-audio/">
+                <a href="https://www.ramaakunting.com/download/shop-audio/">
                     <span>Audio</span>
                 </a>
                         <script type="text" class="J_data_1_2">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Headphone & Headset","childCategoryUrl":"//www.lazada.co.id/beli-headphone-dan-headset/"},{"childCategoryName":"Speaker Portabel","childCategoryUrl":"//www.lazada.co.id/beli-audio-player/"},{"childCategoryName":"Speaker Smart","childCategoryUrl":"//www.lazada.co.id/beli-speaker-smart/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Headphone & Headset","childCategoryUrl":"https://www.ramaakunting.com/download/beli-headphone-dan-headset/"},{"childCategoryName":"Speaker Portabel","childCategoryUrl":"https://www.ramaakunting.com/download/beli-audio-player/"},{"childCategoryName":"Speaker Smart","childCategoryUrl":"https://www.ramaakunting.com/download/beli-speaker-smart/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_2_4">
-                <a href="//www.lazada.co.id/shop-perangkat-pintar/">
+                <a href="https://www.ramaakunting.com/download/shop-perangkat-pintar/">
                     <span>Aksesoris Berteknologi</span>
                 </a>
                         <script type="text" class="J_data_1_3">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Smartwatch","childCategoryUrl":"//www.lazada.co.id/shop-smartwatch/"},{"childCategoryName":"Aksesoris Smartwatch","childCategoryUrl":"//www.lazada.co.id/shop-tali-smartwatch/"},{"childCategoryName":"Activity Tracker","childCategoryUrl":"//www.lazada.co.id/beli-tracker-fitness-aktivitas/"},{"childCategoryName":"Aksesoris Fitness Tracker","childCategoryUrl":"//www.lazada.co.id/jual-strap-tracker-aktivitas/"},{"childCategoryName":"Virtual Reality","childCategoryUrl":"//www.lazada.co.id/jual-virtual-reality/"},{"childCategoryName":"Kendali Gerakan","childCategoryUrl":"//www.lazada.co.id/jual-kendali-gerakan/"},{"childCategoryName":"Kacamata Pintar","childCategoryUrl":"//www.lazada.co.id/beli-smart-glasses/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Smartwatch","childCategoryUrl":"https://www.ramaakunting.com/download/shop-smartwatch/"},{"childCategoryName":"Aksesoris Smartwatch","childCategoryUrl":"https://www.ramaakunting.com/download/shop-tali-smartwatch/"},{"childCategoryName":"Activity Tracker","childCategoryUrl":"https://www.ramaakunting.com/download/beli-tracker-fitness-aktivitas/"},{"childCategoryName":"Aksesoris Fitness Tracker","childCategoryUrl":"https://www.ramaakunting.com/download/jual-strap-tracker-aktivitas/"},{"childCategoryName":"Virtual Reality","childCategoryUrl":"https://www.ramaakunting.com/download/jual-virtual-reality/"},{"childCategoryName":"Kendali Gerakan","childCategoryUrl":"https://www.ramaakunting.com/download/jual-kendali-gerakan/"},{"childCategoryName":"Kacamata Pintar","childCategoryUrl":"https://www.ramaakunting.com/download/beli-smart-glasses/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_2_5">
-                <a href="//www.lazada.co.id/beli-aksesoris-2/">
+                <a href="https://www.ramaakunting.com/download/beli-aksesoris-2/">
                     <span>Aksesoris Kamera</span>
                 </a>
                         <script type="text" class="J_data_1_4">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Tripod & Monopod","childCategoryUrl":"//www.lazada.co.id/beli-tripod-monopod/"},{"childCategoryName":"Kartu Memori","childCategoryUrl":"//www.lazada.co.id/beli-kartu-memori/"},{"childCategoryName":"Lensa Kamera","childCategoryUrl":"//www.lazada.co.id/beli-lensa-kamera/"},{"childCategoryName":"Flash","childCategoryUrl":"//www.lazada.co.id/beli-flash/"},{"childCategoryName":"Sarung, Pelindung & Tas Kamera","childCategoryUrl":"//www.lazada.co.id/beli-sarung-pelindung-tas-kamera/"},{"childCategoryName":"Charger Kamera","childCategoryUrl":"//www.lazada.co.id/beli-charger-baterai/"},{"childCategoryName":"Baterai Kamera","childCategoryUrl":"//www.lazada.co.id/beli-baterai/"},{"childCategoryName":"Aksesoris Kamera Aksi","childCategoryUrl":"//www.lazada.co.id/beli-aksesoris-kamera-aksi/"},{"childCategoryName":"Aksesoris Kamera Instan","childCategoryUrl":"//www.lazada.co.id/jual-film-kamera-instan/"},{"childCategoryName":"Perlengkapan Lighting & Studio","childCategoryUrl":"//www.lazada.co.id/beli-perlengkapan-lighting-studio/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Tripod & Monopod","childCategoryUrl":"https://www.ramaakunting.com/download/beli-tripod-monopod/"},{"childCategoryName":"Kartu Memori","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kartu-memori/"},{"childCategoryName":"Lensa Kamera","childCategoryUrl":"https://www.ramaakunting.com/download/beli-lensa-kamera/"},{"childCategoryName":"Flash","childCategoryUrl":"https://www.ramaakunting.com/download/beli-flash/"},{"childCategoryName":"Sarung, Pelindung & Tas Kamera","childCategoryUrl":"https://www.ramaakunting.com/download/beli-sarung-pelindung-tas-kamera/"},{"childCategoryName":"Charger Kamera","childCategoryUrl":"https://www.ramaakunting.com/download/beli-charger-baterai/"},{"childCategoryName":"Baterai Kamera","childCategoryUrl":"https://www.ramaakunting.com/download/beli-baterai/"},{"childCategoryName":"Aksesoris Kamera Aksi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-aksesoris-kamera-aksi/"},{"childCategoryName":"Aksesoris Kamera Instan","childCategoryUrl":"https://www.ramaakunting.com/download/jual-film-kamera-instan/"},{"childCategoryName":"Perlengkapan Lighting & Studio","childCategoryUrl":"https://www.ramaakunting.com/download/beli-perlengkapan-lighting-studio/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_2_6">
-                <a href="//www.lazada.co.id/shop-penyimpanan-data/">
+                <a href="https://www.ramaakunting.com/download/shop-penyimpanan-data/">
                     <span>Penyimpanan Data</span>
                 </a>
                         <script type="text" class="J_data_1_5">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Flash Drive","childCategoryUrl":"//www.lazada.co.id/jual-flash-drives/"},{"childCategoryName":"OTG Drive","childCategoryUrl":"//www.lazada.co.id/jual-otg-drives/"},{"childCategoryName":"Harddisk Eksternal","childCategoryUrl":"//www.lazada.co.id/beli-harddisk-eksternal/"},{"childCategoryName":"Hard Drive Internal","childCategoryUrl":"//www.lazada.co.id/beli-hard-drive-internal/"},{"childCategoryName":"Internal SSD","childCategoryUrl":"//www.lazada.co.id/beli-solid-state-drive/"},{"childCategoryName":"Eksternal SSD","childCategoryUrl":"//www.lazada.co.id/beli-external-solid-state-drive/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Flash Drive","childCategoryUrl":"https://www.ramaakunting.com/download/jual-flash-drives/"},{"childCategoryName":"OTG Drive","childCategoryUrl":"https://www.ramaakunting.com/download/jual-otg-drives/"},{"childCategoryName":"Harddisk Eksternal","childCategoryUrl":"https://www.ramaakunting.com/download/beli-harddisk-eksternal/"},{"childCategoryName":"Hard Drive Internal","childCategoryUrl":"https://www.ramaakunting.com/download/beli-hard-drive-internal/"},{"childCategoryName":"Internal SSD","childCategoryUrl":"https://www.ramaakunting.com/download/beli-solid-state-drive/"},{"childCategoryName":"Eksternal SSD","childCategoryUrl":"https://www.ramaakunting.com/download/beli-external-solid-state-drive/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_2_7">
-                <a href="//www.lazada.co.id/beli-printers/">
+                <a href="https://www.ramaakunting.com/download/beli-printers/">
                     <span>Printer</span>
                 </a>
                         <script type="text" class="J_data_1_6">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Printer","childCategoryUrl":"//www.lazada.co.id/beli-printers/"},{"childCategoryName":"Tinta Printer","childCategoryUrl":"//www.lazada.co.id/tinta-printer/"},{"childCategoryName":"Printer 3D","childCategoryUrl":"//www.lazada.co.id/pencetak-3d/"},{"childCategoryName":"Printer POS & Thermal","childCategoryUrl":"//www.lazada.co.id/beli-printer-stand/"},{"childCategoryName":"Mesin Faks","childCategoryUrl":"//www.lazada.co.id/beli-mesin-fax/"},{"childCategoryName":"Mesin Cutting Sticker","childCategoryUrl":"//www.lazada.co.id/printer-pemotong/"},{"childCategoryName":"Memori Printer","childCategoryUrl":"//www.lazada.co.id/modul-memori-printer/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Printer","childCategoryUrl":"https://www.ramaakunting.com/download/beli-printers/"},{"childCategoryName":"Tinta Printer","childCategoryUrl":"https://www.ramaakunting.com/download/tinta-printer/"},{"childCategoryName":"Printer 3D","childCategoryUrl":"https://www.ramaakunting.com/download/pencetak-3d/"},{"childCategoryName":"Printer POS & Thermal","childCategoryUrl":"https://www.ramaakunting.com/download/beli-printer-stand/"},{"childCategoryName":"Mesin Faks","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mesin-fax/"},{"childCategoryName":"Mesin Cutting Sticker","childCategoryUrl":"https://www.ramaakunting.com/download/printer-pemotong/"},{"childCategoryName":"Memori Printer","childCategoryUrl":"https://www.ramaakunting.com/download/modul-memori-printer/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_2_8">
-                <a href="//www.lazada.co.id/beli-aksesori-handphone/">
+                <a href="https://www.ramaakunting.com/download/beli-aksesori-handphone/">
                     <span>Aksesoris Tablet</span>
                 </a>
                         <script type="text" class="J_data_1_7">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Casing Tablet","childCategoryUrl":"//www.lazada.co.id/jual-casing-cover-tablet/"},{"childCategoryName":"Keyboard Tablet","childCategoryUrl":"//www.lazada.co.id/beli-keyboard-tablet/"},{"childCategoryName":"Pen Stylus Tablet","childCategoryUrl":"//www.lazada.co.id/beli-pen-stylus-tablet/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Casing Tablet","childCategoryUrl":"https://www.ramaakunting.com/download/jual-casing-cover-tablet/"},{"childCategoryName":"Keyboard Tablet","childCategoryUrl":"https://www.ramaakunting.com/download/beli-keyboard-tablet/"},{"childCategoryName":"Pen Stylus Tablet","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pen-stylus-tablet/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_2_9">
-                <a href="//www.lazada.co.id/beli-komponen-komputer/">
+                <a href="https://www.ramaakunting.com/download/beli-komponen-komputer/">
                     <span>Komponen Komputer</span>
                 </a>
                         <script type="text" class="J_data_1_8">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"RAM","childCategoryUrl":"//www.lazada.co.id/beli-ram/"},{"childCategoryName":"Motherboard","childCategoryUrl":"//www.lazada.co.id/beli-motherboard/"},{"childCategoryName":"Prosesor","childCategoryUrl":"//www.lazada.co.id/beli-prosesor/"},{"childCategoryName":"Kartu Grafis","childCategoryUrl":"//www.lazada.co.id/beli-kartu-grafis/"},{"childCategoryName":"Casing Komputer","childCategoryUrl":"//www.lazada.co.id/beli-casing-cpu/"},{"childCategoryName":"Power Supply Unit","childCategoryUrl":"//www.lazada.co.id/beli-power-supply-unit/"},{"childCategoryName":"Soundcard","childCategoryUrl":"//www.lazada.co.id/soundcard/"},{"childCategoryName":"Front Panel","childCategoryUrl":"//www.lazada.co.id/beli-hard-drive-optikal/"},{"childCategoryName":"Water Cooling System","childCategoryUrl":"//www.lazada.co.id/beli-water-cooling-system/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"RAM","childCategoryUrl":"https://www.ramaakunting.com/download/beli-ram/"},{"childCategoryName":"Motherboard","childCategoryUrl":"https://www.ramaakunting.com/download/beli-motherboard/"},{"childCategoryName":"Prosesor","childCategoryUrl":"https://www.ramaakunting.com/download/beli-prosesor/"},{"childCategoryName":"Kartu Grafis","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kartu-grafis/"},{"childCategoryName":"Casing Komputer","childCategoryUrl":"https://www.ramaakunting.com/download/beli-casing-cpu/"},{"childCategoryName":"Power Supply Unit","childCategoryUrl":"https://www.ramaakunting.com/download/beli-power-supply-unit/"},{"childCategoryName":"Soundcard","childCategoryUrl":"https://www.ramaakunting.com/download/soundcard/"},{"childCategoryName":"Front Panel","childCategoryUrl":"https://www.ramaakunting.com/download/beli-hard-drive-optikal/"},{"childCategoryName":"Water Cooling System","childCategoryUrl":"https://www.ramaakunting.com/download/beli-water-cooling-system/"}]
                         </script>
             </li>
         </ul>
         <ul class="lzd-site-menu-sub Level_1_Category_No3" data-spm="cate_3">
             <li class="lzd-site-menu-sub-item" data-cate="cate_3_1">
-                <a href="//www.lazada.co.id/pakaian-wanita/">
+                <a href="https://www.ramaakunting.com/download/pakaian-wanita/">
                     <span>Pakaian Wanita</span>
                 </a>
                         <script type="text" class="J_data_2_0">
-                            [{"childCategoryName":"Jeans","childCategoryUrl":"//www.lazada.co.id/jeans-wanita/"},{"childCategoryName":"Dress","childCategoryUrl":"//www.lazada.co.id/gaun-wanita/"},{"childCategoryName":"Atasan","childCategoryUrl":"//www.lazada.co.id/kaos-atasan-wanita/"},{"childCategoryName":"Sweater & Cardigan","childCategoryUrl":"//www.lazada.co.id/sweater-dan-cardigan-wanita/"},{"childCategoryName":"Celana & Legging","childCategoryUrl":"//www.lazada.co.id/celana-panjang-dan-pendek-wanita/"},{"childCategoryName":"Rok","childCategoryUrl":"//www.lazada.co.id/rok-wanita/"},{"childCategoryName":"Jaket & Mantel","childCategoryUrl":"//www.lazada.co.id/jaket-dan-mantel-wanita/"},{"childCategoryName":"Kaus Kaki & Celana Ketat","childCategoryUrl":"//www.lazada.co.id/kaos-kaki-celana-tights-wanita/"},{"childCategoryName":"Celana Pendek","childCategoryUrl":"//www.lazada.co.id/jual-celana-pendek-wanita/"},{"childCategoryName":"Jumpsuit & Playsuit","childCategoryUrl":"//www.lazada.co.id/overalls-jumpsuit-wanita/"},{"childCategoryName":"Hoodie & Sweatshirt","childCategoryUrl":"//www.lazada.co.id/hoodie-sweatshirt-wanita/"}]
+                            [{"childCategoryName":"Jeans","childCategoryUrl":"https://www.ramaakunting.com/download/jeans-wanita/"},{"childCategoryName":"Dress","childCategoryUrl":"https://www.ramaakunting.com/download/gaun-wanita/"},{"childCategoryName":"Atasan","childCategoryUrl":"https://www.ramaakunting.com/download/kaos-atasan-wanita/"},{"childCategoryName":"Sweater & Cardigan","childCategoryUrl":"https://www.ramaakunting.com/download/sweater-dan-cardigan-wanita/"},{"childCategoryName":"Celana & Legging","childCategoryUrl":"https://www.ramaakunting.com/download/celana-panjang-dan-pendek-wanita/"},{"childCategoryName":"Rok","childCategoryUrl":"https://www.ramaakunting.com/download/rok-wanita/"},{"childCategoryName":"Jaket & Mantel","childCategoryUrl":"https://www.ramaakunting.com/download/jaket-dan-mantel-wanita/"},{"childCategoryName":"Kaus Kaki & Celana Ketat","childCategoryUrl":"https://www.ramaakunting.com/download/kaos-kaki-celana-tights-wanita/"},{"childCategoryName":"Celana Pendek","childCategoryUrl":"https://www.ramaakunting.com/download/jual-celana-pendek-wanita/"},{"childCategoryName":"Jumpsuit & Playsuit","childCategoryUrl":"https://www.ramaakunting.com/download/overalls-jumpsuit-wanita/"},{"childCategoryName":"Hoodie & Sweatshirt","childCategoryUrl":"https://www.ramaakunting.com/download/hoodie-sweatshirt-wanita/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_3_2">
-                <a href="//www.lazada.co.id/baju-muslim-wanita/">
+                <a href="https://www.ramaakunting.com/download/baju-muslim-wanita/">
                     <span>Baju Muslim</span>
                 </a>
                         <script type="text" class="J_data_2_1">
-                            [{"childCategoryName":"Perlengkapan Shalat","childCategoryUrl":"//www.lazada.co.id/baju-muslim-wanita/"},{"childCategoryName":"Hijab","childCategoryUrl":"//www.lazada.co.id/hijab/"},{"childCategoryName":"Atasan Muslimah","childCategoryUrl":"//www.lazada.co.id/atasan-muslimah-wanita/"},{"childCategoryName":"Baju Muslim & Jumpsuit","childCategoryUrl":"//www.lazada.co.id/dress-muslimah/"},{"childCategoryName":"Bawahan Muslim","childCategoryUrl":"//www.lazada.co.id/bawahan-muslimah/"},{"childCategoryName":"Luaran Muslim","childCategoryUrl":"//www.lazada.co.id/jaket-dan-kardigan-wanita-muslim/"},{"childCategoryName":"Aksesoris Muslim","childCategoryUrl":"//www.lazada.co.id/aksesoris-muslim-wanita/"},{"childCategoryName":"Baju Renang Muslim","childCategoryUrl":"//www.lazada.co.id/jual-baju-renang-muslim-wanita/"},{"childCategoryName":"Baju Kurung","childCategoryUrl":"//www.lazada.co.id/jual-baju-kurung-wanita/"}]
+                            [{"childCategoryName":"Perlengkapan Shalat","childCategoryUrl":"https://www.ramaakunting.com/download/baju-muslim-wanita/"},{"childCategoryName":"Hijab","childCategoryUrl":"https://www.ramaakunting.com/download/hijab/"},{"childCategoryName":"Atasan Muslimah","childCategoryUrl":"https://www.ramaakunting.com/download/atasan-muslimah-wanita/"},{"childCategoryName":"Baju Muslim & Jumpsuit","childCategoryUrl":"https://www.ramaakunting.com/download/dress-muslimah/"},{"childCategoryName":"Bawahan Muslim","childCategoryUrl":"https://www.ramaakunting.com/download/bawahan-muslimah/"},{"childCategoryName":"Luaran Muslim","childCategoryUrl":"https://www.ramaakunting.com/download/jaket-dan-kardigan-wanita-muslim/"},{"childCategoryName":"Aksesoris Muslim","childCategoryUrl":"https://www.ramaakunting.com/download/aksesoris-muslim-wanita/"},{"childCategoryName":"Baju Renang Muslim","childCategoryUrl":"https://www.ramaakunting.com/download/jual-baju-renang-muslim-wanita/"},{"childCategoryName":"Baju Kurung","childCategoryUrl":"https://www.ramaakunting.com/download/jual-baju-kurung-wanita/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_3_3">
-                <a href="//www.lazada.co.id/lingerie-baju-tidur/">
+                <a href="https://www.ramaakunting.com/download/lingerie-baju-tidur/">
                     <span>Lingerie, Baju Tidur &amp; Santai</span>
                 </a>
                         <script type="text" class="J_data_2_2">
-                            [{"childCategoryName":"Bra","childCategoryUrl":"//www.lazada.co.id/bra-wanita/"},{"childCategoryName":"Celana Dalam","childCategoryUrl":"//www.lazada.co.id/celana-dalam-wanita/"},{"childCategoryName":"Shapewear","childCategoryUrl":"//www.lazada.co.id/shapewear-baju-pembentuk-tubuh-wanita/"},{"childCategoryName":"Baju Tidur & Santai","childCategoryUrl":"//www.lazada.co.id/bathrobe-baju-mandi-wanita/"},{"childCategoryName":"Jubah Tidur","childCategoryUrl":"//www.lazada.co.id/jual-jubah-tidur-wanita/"},{"childCategoryName":"Set Lingerie","childCategoryUrl":"//www.lazada.co.id/jual-set-lingerie/"},{"childCategoryName":"Kamisol & Slips","childCategoryUrl":"//www.lazada.co.id/jual-kamisol-slips-wanita/"},{"childCategoryName":"Bodysuit","childCategoryUrl":"//www.lazada.co.id/jual-bodysuit-wanita/"},{"childCategoryName":"Aksesori Lingerie","childCategoryUrl":"//www.lazada.co.id/jual-aksesori-lingerie-wanita/"}]
+                            [{"childCategoryName":"Bra","childCategoryUrl":"https://www.ramaakunting.com/download/bra-wanita/"},{"childCategoryName":"Celana Dalam","childCategoryUrl":"https://www.ramaakunting.com/download/celana-dalam-wanita/"},{"childCategoryName":"Shapewear","childCategoryUrl":"https://www.ramaakunting.com/download/shapewear-baju-pembentuk-tubuh-wanita/"},{"childCategoryName":"Baju Tidur & Santai","childCategoryUrl":"https://www.ramaakunting.com/download/bathrobe-baju-mandi-wanita/"},{"childCategoryName":"Jubah Tidur","childCategoryUrl":"https://www.ramaakunting.com/download/jual-jubah-tidur-wanita/"},{"childCategoryName":"Set Lingerie","childCategoryUrl":"https://www.ramaakunting.com/download/jual-set-lingerie/"},{"childCategoryName":"Kamisol & Slips","childCategoryUrl":"https://www.ramaakunting.com/download/jual-kamisol-slips-wanita/"},{"childCategoryName":"Bodysuit","childCategoryUrl":"https://www.ramaakunting.com/download/jual-bodysuit-wanita/"},{"childCategoryName":"Aksesori Lingerie","childCategoryUrl":"https://www.ramaakunting.com/download/jual-aksesori-lingerie-wanita/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_3_4">
-                <a href="//www.lazada.co.id/sepatu-wanita/">
+                <a href="https://www.ramaakunting.com/download/sepatu-wanita/">
                     <span>Sepatu Wanita</span>
                 </a>
                         <script type="text" class="J_data_2_3">
-                            [{"childCategoryName":"Sepatu Flat","childCategoryUrl":"//www.lazada.co.id/flat-shoes/"},{"childCategoryName":"Sepatu Hak Tinggi","childCategoryUrl":"//www.lazada.co.id/heels/"},{"childCategoryName":"Sneakers","childCategoryUrl":"//www.lazada.co.id/sneakers/"},{"childCategoryName":"Wedges","childCategoryUrl":"//www.lazada.co.id/wedges/"},{"childCategoryName":"Sepatu Boot","childCategoryUrl":"//www.lazada.co.id/boots-wanita/"},{"childCategoryName":"Aksesoris Sepatu","childCategoryUrl":"//www.lazada.co.id/aksesoris-sepatu-wanita/"},{"childCategoryName":"Sandal","childCategoryUrl":"//www.lazada.co.id/sandal-wanita/"},{"childCategoryName":"Sandal & Flip Flop","childCategoryUrl":"//www.lazada.co.id/sandal-jepit-wanita/"}]
+                            [{"childCategoryName":"Sepatu Flat","childCategoryUrl":"https://www.ramaakunting.com/download/flat-shoes/"},{"childCategoryName":"Sepatu Hak Tinggi","childCategoryUrl":"https://www.ramaakunting.com/download/heels/"},{"childCategoryName":"Sneakers","childCategoryUrl":"https://www.ramaakunting.com/download/sneakers/"},{"childCategoryName":"Wedges","childCategoryUrl":"https://www.ramaakunting.com/download/wedges/"},{"childCategoryName":"Sepatu Boot","childCategoryUrl":"https://www.ramaakunting.com/download/boots-wanita/"},{"childCategoryName":"Aksesoris Sepatu","childCategoryUrl":"https://www.ramaakunting.com/download/aksesoris-sepatu-wanita/"},{"childCategoryName":"Sandal","childCategoryUrl":"https://www.ramaakunting.com/download/sandal-wanita/"},{"childCategoryName":"Sandal & Flip Flop","childCategoryUrl":"https://www.ramaakunting.com/download/sandal-jepit-wanita/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_3_5">
-                <a href="//www.lazada.co.id/aksesoris-wanita/">
+                <a href="https://www.ramaakunting.com/download/aksesoris-wanita/">
                     <span>Aksesoris</span>
                 </a>
                         <script type="text" class="J_data_2_4">
-                            [{"childCategoryName":"Ikat Pinggang","childCategoryUrl":"//www.lazada.co.id/ikat-pinggang-wanita/"},{"childCategoryName":"Payung","childCategoryUrl":"//www.lazada.co.id/payung-wanita/"},{"childCategoryName":"Topi","childCategoryUrl":"//www.lazada.co.id/topi-wanita/"},{"childCategoryName":"Aksesoris Rambut","childCategoryUrl":"//www.lazada.co.id/aksesoris-rambut/"},{"childCategoryName":"Scarf","childCategoryUrl":"//www.lazada.co.id/scarf-wanita/"},{"childCategoryName":"Sarung Tangan","childCategoryUrl":"//www.lazada.co.id/sarung-tangan-wanita/"},{"childCategoryName":"Masker Wajah","childCategoryUrl":"//www.lazada.co.id/shop-women-fabricmask/"}]
+                            [{"childCategoryName":"Ikat Pinggang","childCategoryUrl":"https://www.ramaakunting.com/download/ikat-pinggang-wanita/"},{"childCategoryName":"Payung","childCategoryUrl":"https://www.ramaakunting.com/download/payung-wanita/"},{"childCategoryName":"Topi","childCategoryUrl":"https://www.ramaakunting.com/download/topi-wanita/"},{"childCategoryName":"Aksesoris Rambut","childCategoryUrl":"https://www.ramaakunting.com/download/aksesoris-rambut/"},{"childCategoryName":"Scarf","childCategoryUrl":"https://www.ramaakunting.com/download/scarf-wanita/"},{"childCategoryName":"Sarung Tangan","childCategoryUrl":"https://www.ramaakunting.com/download/sarung-tangan-wanita/"},{"childCategoryName":"Masker Wajah","childCategoryUrl":"https://www.ramaakunting.com/download/shop-women-fabricmask/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_3_6">
-                <a href="//www.lazada.co.id/tas-wanita/">
+                <a href="https://www.ramaakunting.com/download/tas-wanita/">
                     <span>Tas Wanita</span>
                 </a>
                         <script type="text" class="J_data_2_5">
-                            [{"childCategoryName":"Tas Ransel Wanita","childCategoryUrl":"//www.lazada.co.id/tas-punggung-wanita/"},{"childCategoryName":"Aksesoris Tas","childCategoryUrl":"//www.lazada.co.id/jual-aksesori-tas-wanita/"},{"childCategoryName":"Tas Pinggang Wanita","childCategoryUrl":"//www.lazada.co.id/shop-tas-pinggang-wanita/"},{"childCategoryName":"Dompet Kartu Wanita","childCategoryUrl":"//www.lazada.co.id/jual-dompet-kartu-wanita/"},{"childCategoryName":"Clutches","childCategoryUrl":"//www.lazada.co.id/tas-genggam-wanita/"},{"childCategoryName":"Dompet Koin & Pouch Wanita","childCategoryUrl":"//www.lazada.co.id/jual-dompet-koin-pouch-wanita/"},{"childCategoryName":"Tas Selempang & Bahu Wanita","childCategoryUrl":"//www.lazada.co.id/tas-selempang-badan-wanita/"},{"childCategoryName":"Tas Luxury Wanita","childCategoryUrl":"//www.lazada.co.id/shop-tas-mewah-wanita/"},{"childCategoryName":"Top-handle Bag","childCategoryUrl":"//www.lazada.co.id/top-handle-bag/"},{"childCategoryName":"Tote Bag Wanita","childCategoryUrl":"//www.lazada.co.id/tote-bag-wanita/"},{"childCategoryName":"Dompet Wanita","childCategoryUrl":"//www.lazada.co.id/jual-dompet-wanita/"}]
+                            [{"childCategoryName":"Tas Ransel Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/tas-punggung-wanita/"},{"childCategoryName":"Aksesoris Tas","childCategoryUrl":"https://www.ramaakunting.com/download/jual-aksesori-tas-wanita/"},{"childCategoryName":"Tas Pinggang Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/shop-tas-pinggang-wanita/"},{"childCategoryName":"Dompet Kartu Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/jual-dompet-kartu-wanita/"},{"childCategoryName":"Clutches","childCategoryUrl":"https://www.ramaakunting.com/download/tas-genggam-wanita/"},{"childCategoryName":"Dompet Koin & Pouch Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/jual-dompet-koin-pouch-wanita/"},{"childCategoryName":"Tas Selempang & Bahu Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/tas-selempang-badan-wanita/"},{"childCategoryName":"Tas Luxury Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/shop-tas-mewah-wanita/"},{"childCategoryName":"Top-handle Bag","childCategoryUrl":"https://www.ramaakunting.com/download/top-handle-bag/"},{"childCategoryName":"Tote Bag Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/tote-bag-wanita/"},{"childCategoryName":"Dompet Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/jual-dompet-wanita/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_3_7">
-                <a href="//www.lazada.co.id/beli-perhiasan-wanita/">
+                <a href="https://www.ramaakunting.com/download/beli-perhiasan-wanita/">
                     <span>Perhiasan Wanita</span>
                 </a>
                         <script type="text" class="J_data_2_6">
-                            [{"childCategoryName":"Perhiasan Fashion","childCategoryUrl":"//www.lazada.co.id/beli-wanita-perhiasan-fashion/"},{"childCategoryName":"Logam Berharga","childCategoryUrl":"//www.lazada.co.id/beli-wanita-logam-berharga/"}]
+                            [{"childCategoryName":"Perhiasan Fashion","childCategoryUrl":"https://www.ramaakunting.com/download/beli-wanita-perhiasan-fashion/"},{"childCategoryName":"Logam Berharga","childCategoryUrl":"https://www.ramaakunting.com/download/beli-wanita-logam-berharga/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_3_8">
-                <a href="//www.lazada.co.id/beli-jam-tangan-wanita/">
+                <a href="https://www.ramaakunting.com/download/beli-jam-tangan-wanita/">
                     <span>Jam Tangan Wanita</span>
                 </a>
                         <script type="text" class="J_data_2_7">
-                            [{"childCategoryName":"Aksesori","childCategoryUrl":"//www.lazada.co.id/shop-aksesori-jam-tangan-wanita/"},{"childCategoryName":"Jam Tangan Kasual Wanita","childCategoryUrl":"//www.lazada.co.id/beli-jam-tangan-kasual-wanita/"},{"childCategoryName":"Formal","childCategoryUrl":"//www.lazada.co.id/beli-jam-tangan-formal-wanita/"},{"childCategoryName":"Mewah","childCategoryUrl":"//www.lazada.co.id/shop-jam-tangan-mewah-wanita/"},{"childCategoryName":"Pra Dimiliki","childCategoryUrl":"//www.lazada.co.id/shop-pre-owned-jam-tangan-wanita/"},{"childCategoryName":"Jam Tangan Olahraga Wanita","childCategoryUrl":"//www.lazada.co.id/beli-jam-tangan-olahraga-wanita/"}]
+                            [{"childCategoryName":"Aksesori","childCategoryUrl":"https://www.ramaakunting.com/download/shop-aksesori-jam-tangan-wanita/"},{"childCategoryName":"Jam Tangan Kasual Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/beli-jam-tangan-kasual-wanita/"},{"childCategoryName":"Formal","childCategoryUrl":"https://www.ramaakunting.com/download/beli-jam-tangan-formal-wanita/"},{"childCategoryName":"Mewah","childCategoryUrl":"https://www.ramaakunting.com/download/shop-jam-tangan-mewah-wanita/"},{"childCategoryName":"Pra Dimiliki","childCategoryUrl":"https://www.ramaakunting.com/download/shop-pre-owned-jam-tangan-wanita/"},{"childCategoryName":"Jam Tangan Olahraga Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/beli-jam-tangan-olahraga-wanita/"}]
                         </script>
             </li>
         </ul>
         <ul class="lzd-site-menu-sub Level_1_Category_No4" data-spm="cate_4">
             <li class="lzd-site-menu-sub-item" data-cate="cate_4_1">
-                <a href="//www.lazada.co.id/pakaian-pria/">
+                <a href="https://www.ramaakunting.com/download/pakaian-pria/">
                     <span>Pakaian Pria</span>
                 </a>
                         <script type="text" class="J_data_3_0">
-                            [{"childCategoryName":"Hoodie & Sweatshirt","childCategoryUrl":"//www.lazada.co.id/jual-hoodie-pria/"},{"childCategoryName":"Jaket dan Mantel","childCategoryUrl":"//www.lazada.co.id/jaket-dan-mantel-pria/"},{"childCategoryName":"Jeans","childCategoryUrl":"//www.lazada.co.id/jeans-pria/"},{"childCategoryName":"Celana","childCategoryUrl":"//www.lazada.co.id/celana-pendek-dan-panjang-pria/"},{"childCategoryName":"Polo Shirt","childCategoryUrl":"//www.lazada.co.id/polo-shirt-pria/"},{"childCategoryName":"Kemeja","childCategoryUrl":"//www.lazada.co.id/kemeja-pria/"},{"childCategoryName":"Celana Pendek","childCategoryUrl":"//www.lazada.co.id/jual-celana-pendek-pria/"},{"childCategoryName":"Kaus Kaki","childCategoryUrl":"//www.lazada.co.id/jual-kaus-kaki-pria/"},{"childCategoryName":"Jas & Blazer","childCategoryUrl":"//www.lazada.co.id/jas-pria/"},{"childCategoryName":"Sweater dan Kardigan","childCategoryUrl":"//www.lazada.co.id/sweater-dan-cardigan-pria/"},{"childCategoryName":"Baju Renang","childCategoryUrl":"//www.lazada.co.id/baju-renang-pria/"},{"childCategoryName":"T-Shirt & Kaos Dalam","childCategoryUrl":"//www.lazada.co.id/atasan-kasual-kaos-pria/"}]
+                            [{"childCategoryName":"Hoodie & Sweatshirt","childCategoryUrl":"https://www.ramaakunting.com/download/jual-hoodie-pria/"},{"childCategoryName":"Jaket dan Mantel","childCategoryUrl":"https://www.ramaakunting.com/download/jaket-dan-mantel-pria/"},{"childCategoryName":"Jeans","childCategoryUrl":"https://www.ramaakunting.com/download/jeans-pria/"},{"childCategoryName":"Celana","childCategoryUrl":"https://www.ramaakunting.com/download/celana-pendek-dan-panjang-pria/"},{"childCategoryName":"Polo Shirt","childCategoryUrl":"https://www.ramaakunting.com/download/polo-shirt-pria/"},{"childCategoryName":"Kemeja","childCategoryUrl":"https://www.ramaakunting.com/download/kemeja-pria/"},{"childCategoryName":"Celana Pendek","childCategoryUrl":"https://www.ramaakunting.com/download/jual-celana-pendek-pria/"},{"childCategoryName":"Kaus Kaki","childCategoryUrl":"https://www.ramaakunting.com/download/jual-kaus-kaki-pria/"},{"childCategoryName":"Jas & Blazer","childCategoryUrl":"https://www.ramaakunting.com/download/jas-pria/"},{"childCategoryName":"Sweater dan Kardigan","childCategoryUrl":"https://www.ramaakunting.com/download/sweater-dan-cardigan-pria/"},{"childCategoryName":"Baju Renang","childCategoryUrl":"https://www.ramaakunting.com/download/baju-renang-pria/"},{"childCategoryName":"T-Shirt & Kaos Dalam","childCategoryUrl":"https://www.ramaakunting.com/download/atasan-kasual-kaos-pria/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_4_2">
-                <a href="//www.lazada.co.id/baju-muslim-pria/">
+                <a href="https://www.ramaakunting.com/download/baju-muslim-pria/">
                     <span>Baju Muslim</span>
                 </a>
                         <script type="text" class="J_data_3_1">
-                            [{"childCategoryName":"Jubah Muslim","childCategoryUrl":"//www.lazada.co.id/jubah-muslim-pria/"},{"childCategoryName":"Aksesoris Muslim","childCategoryUrl":"//www.lazada.co.id/aksesoris-muslim-pria/"},{"childCategoryName":"Baju Muslimin","childCategoryUrl":"//www.lazada.co.id/cekak-musang-pria/"},{"childCategoryName":"Kopiah","childCategoryUrl":"//www.lazada.co.id/shop-kopiah/"}]
+                            [{"childCategoryName":"Jubah Muslim","childCategoryUrl":"https://www.ramaakunting.com/download/jubah-muslim-pria/"},{"childCategoryName":"Aksesoris Muslim","childCategoryUrl":"https://www.ramaakunting.com/download/aksesoris-muslim-pria/"},{"childCategoryName":"Baju Muslimin","childCategoryUrl":"https://www.ramaakunting.com/download/cekak-musang-pria/"},{"childCategoryName":"Kopiah","childCategoryUrl":"https://www.ramaakunting.com/download/shop-kopiah/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_4_3">
-                <a href="//www.lazada.co.id/pakaian-dalam-dan-kaos-kaki-pria/">
+                <a href="https://www.ramaakunting.com/download/pakaian-dalam-dan-kaos-kaki-pria/">
                     <span>Pakaian Dalam</span>
                 </a>
                         <script type="text" class="J_data_3_2">
-                            [{"childCategoryName":"Celana Dalam","childCategoryUrl":"//www.lazada.co.id/celana-dalam-pria/"},{"childCategoryName":"Pakaian Tidur","childCategoryUrl":"//www.lazada.co.id/baju-tidur-pria/"},{"childCategoryName":"Boxer","childCategoryUrl":"//www.lazada.co.id/pakaian-dalam-boxer-pria/"},{"childCategoryName":"Thongs  & Lainnya","childCategoryUrl":"//www.lazada.co.id/pakaian-dalam-pria-thongs-lainnya/"}]
+                            [{"childCategoryName":"Celana Dalam","childCategoryUrl":"https://www.ramaakunting.com/download/celana-dalam-pria/"},{"childCategoryName":"Pakaian Tidur","childCategoryUrl":"https://www.ramaakunting.com/download/baju-tidur-pria/"},{"childCategoryName":"Boxer","childCategoryUrl":"https://www.ramaakunting.com/download/pakaian-dalam-boxer-pria/"},{"childCategoryName":"Thongs  & Lainnya","childCategoryUrl":"https://www.ramaakunting.com/download/pakaian-dalam-pria-thongs-lainnya/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_4_4">
-                <a href="//www.lazada.co.id/sepatu-pria/">
+                <a href="https://www.ramaakunting.com/download/sepatu-pria/">
                     <span>Sepatu Pria</span>
                 </a>
                         <script type="text" class="J_data_3_3">
-                            [{"childCategoryName":"Boots","childCategoryUrl":"//www.lazada.co.id/boots-pria/"},{"childCategoryName":"Flip Flop & Sandal","childCategoryUrl":"//www.lazada.co.id/sandal-jepit-pria/"},{"childCategoryName":"Sepatu Formal","childCategoryUrl":"//www.lazada.co.id/sepatu-pantofel/"},{"childCategoryName":"Aksesoris Sepatu","childCategoryUrl":"//www.lazada.co.id/aksesoris-sepatu-pria/"},{"childCategoryName":"Slip-On & Loafer","childCategoryUrl":"//www.lazada.co.id/jual-slip-on-loafer-pria/"},{"childCategoryName":"Sneakers","childCategoryUrl":"//www.lazada.co.id/sneakers-pria/"}]
+                            [{"childCategoryName":"Boots","childCategoryUrl":"https://www.ramaakunting.com/download/boots-pria/"},{"childCategoryName":"Flip Flop & Sandal","childCategoryUrl":"https://www.ramaakunting.com/download/sandal-jepit-pria/"},{"childCategoryName":"Sepatu Formal","childCategoryUrl":"https://www.ramaakunting.com/download/sepatu-pantofel/"},{"childCategoryName":"Aksesoris Sepatu","childCategoryUrl":"https://www.ramaakunting.com/download/aksesoris-sepatu-pria/"},{"childCategoryName":"Slip-On & Loafer","childCategoryUrl":"https://www.ramaakunting.com/download/jual-slip-on-loafer-pria/"},{"childCategoryName":"Sneakers","childCategoryUrl":"https://www.ramaakunting.com/download/sneakers-pria/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_4_5">
-                <a href="//www.lazada.co.id/aksesoris-pria/">
+                <a href="https://www.ramaakunting.com/download/aksesoris-pria/">
                     <span>Aksesoris</span>
                 </a>
                         <script type="text" class="J_data_3_4">
-                            [{"childCategoryName":"Dasi","childCategoryUrl":"//www.lazada.co.id/aksesoris-dasi/"},{"childCategoryName":"Aksesoris Dasi Kupu-kupu","childCategoryUrl":"//www.lazada.co.id/aksesoris-dasi-kupu-kupu/"},{"childCategoryName":"Scarf","childCategoryUrl":"//www.lazada.co.id/syal-pria/"},{"childCategoryName":"Payung","childCategoryUrl":"//www.lazada.co.id/payung-pria/"},{"childCategoryName":"Ikat Pinggang","childCategoryUrl":"//www.lazada.co.id/ikat-pinggang-pria/"},{"childCategoryName":"Topi","childCategoryUrl":"//www.lazada.co.id/topi-pria/"},{"childCategoryName":"Sarung Tangan","childCategoryUrl":"//www.lazada.co.id/sarung-tangan-pria/"},{"childCategoryName":"Braces","childCategoryUrl":"//www.lazada.co.id/suspender-pria/"},{"childCategoryName":"Face Mask","childCategoryUrl":"//www.lazada.co.id/shop-masker-wajah-pria/"}]
+                            [{"childCategoryName":"Dasi","childCategoryUrl":"https://www.ramaakunting.com/download/aksesoris-dasi/"},{"childCategoryName":"Aksesoris Dasi Kupu-kupu","childCategoryUrl":"https://www.ramaakunting.com/download/aksesoris-dasi-kupu-kupu/"},{"childCategoryName":"Scarf","childCategoryUrl":"https://www.ramaakunting.com/download/syal-pria/"},{"childCategoryName":"Payung","childCategoryUrl":"https://www.ramaakunting.com/download/payung-pria/"},{"childCategoryName":"Ikat Pinggang","childCategoryUrl":"https://www.ramaakunting.com/download/ikat-pinggang-pria/"},{"childCategoryName":"Topi","childCategoryUrl":"https://www.ramaakunting.com/download/topi-pria/"},{"childCategoryName":"Sarung Tangan","childCategoryUrl":"https://www.ramaakunting.com/download/sarung-tangan-pria/"},{"childCategoryName":"Braces","childCategoryUrl":"https://www.ramaakunting.com/download/suspender-pria/"},{"childCategoryName":"Face Mask","childCategoryUrl":"https://www.ramaakunting.com/download/shop-masker-wajah-pria/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_4_6">
-                <a href="//www.lazada.co.id/tas-pria/">
+                <a href="https://www.ramaakunting.com/download/tas-pria/">
                     <span>Tas Pria</span>
                 </a>
                         <script type="text" class="J_data_3_5">
-                            [{"childCategoryName":"Tas Ransel Pria","childCategoryUrl":"//www.lazada.co.id/shop-ransel-pria/"},{"childCategoryName":"Tas Laptop Jinjing","childCategoryUrl":"//www.lazada.co.id/tas-kerja-pria/"},{"childCategoryName":"Dompet Kartu Pria","childCategoryUrl":"//www.lazada.co.id/jual-dompet-kartu-pria/"},{"childCategoryName":"Dompet Koin & Pouch Pria","childCategoryUrl":"//www.lazada.co.id/jual-dompet-koin-pouch-pria/"},{"childCategoryName":"Tas Selempang Pria","childCategoryUrl":"//www.lazada.co.id/jual-tas-selempang-pria/"},{"childCategoryName":"Tas Laptop Bahu & Messenger","childCategoryUrl":"//www.lazada.co.id/tas-messenger-pria/"},{"childCategoryName":"Tote Bag Pria","childCategoryUrl":"//www.lazada.co.id/jual-tas-tote-pria/"},{"childCategoryName":"Tas Pinggang","childCategoryUrl":"//www.lazada.co.id/beli-tas-pinggang/"},{"childCategoryName":"Dompet Pria","childCategoryUrl":"//www.lazada.co.id/shop-dompet-pria/"}]
+                            [{"childCategoryName":"Tas Ransel Pria","childCategoryUrl":"https://www.ramaakunting.com/download/shop-ransel-pria/"},{"childCategoryName":"Tas Laptop Jinjing","childCategoryUrl":"https://www.ramaakunting.com/download/tas-kerja-pria/"},{"childCategoryName":"Dompet Kartu Pria","childCategoryUrl":"https://www.ramaakunting.com/download/jual-dompet-kartu-pria/"},{"childCategoryName":"Dompet Koin & Pouch Pria","childCategoryUrl":"https://www.ramaakunting.com/download/jual-dompet-koin-pouch-pria/"},{"childCategoryName":"Tas Selempang Pria","childCategoryUrl":"https://www.ramaakunting.com/download/jual-tas-selempang-pria/"},{"childCategoryName":"Tas Laptop Bahu & Messenger","childCategoryUrl":"https://www.ramaakunting.com/download/tas-messenger-pria/"},{"childCategoryName":"Tote Bag Pria","childCategoryUrl":"https://www.ramaakunting.com/download/jual-tas-tote-pria/"},{"childCategoryName":"Tas Pinggang","childCategoryUrl":"https://www.ramaakunting.com/download/beli-tas-pinggang/"},{"childCategoryName":"Dompet Pria","childCategoryUrl":"https://www.ramaakunting.com/download/shop-dompet-pria/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_4_7">
-                <a href="//www.lazada.co.id/beli-perhiasan-pria/">
+                <a href="https://www.ramaakunting.com/download/beli-perhiasan-pria/">
                     <span>Perhiasan Pria</span>
                 </a>
                         <script type="text" class="J_data_3_6">
-                            [{"childCategoryName":"Perhiasan Fashion","childCategoryUrl":"//www.lazada.co.id/beli-pria-perhiasan-fashion/"},{"childCategoryName":"Logam Berharga","childCategoryUrl":"//www.lazada.co.id/beli-pria-logam-berharga/"}]
+                            [{"childCategoryName":"Perhiasan Fashion","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pria-perhiasan-fashion/"},{"childCategoryName":"Logam Berharga","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pria-logam-berharga/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_4_8">
-                <a href="//www.lazada.co.id/beli-jam-tangan-pria/">
+                <a href="https://www.ramaakunting.com/download/beli-jam-tangan-pria/">
                     <span>Jam Tangan Pria</span>
                 </a>
                         <script type="text" class="J_data_3_7">
-                            [{"childCategoryName":"Aksesoris Jam Tangan Pria","childCategoryUrl":"//www.lazada.co.id/beli-aksesoris-jam-tangan-pria/"},{"childCategoryName":"Jam Tangan Kasual Pria","childCategoryUrl":"//www.lazada.co.id/beli-jam-tangan-kasual-pria/"},{"childCategoryName":"Formal","childCategoryUrl":"//www.lazada.co.id/beli-jam-tangan-formal-pria/"},{"childCategoryName":"Mewah","childCategoryUrl":"//www.lazada.co.id/shop-jam-tangan-mewah-pria/"},{"childCategoryName":"Pra Dimiliki","childCategoryUrl":"//www.lazada.co.id/shop-jam-tangan-pre-owned-pria/"},{"childCategoryName":"Jam Tangan Olahraga Pria","childCategoryUrl":"//www.lazada.co.id/beli-jam-tangan-olahraga-pria/"}]
+                            [{"childCategoryName":"Aksesoris Jam Tangan Pria","childCategoryUrl":"https://www.ramaakunting.com/download/beli-aksesoris-jam-tangan-pria/"},{"childCategoryName":"Jam Tangan Kasual Pria","childCategoryUrl":"https://www.ramaakunting.com/download/beli-jam-tangan-kasual-pria/"},{"childCategoryName":"Formal","childCategoryUrl":"https://www.ramaakunting.com/download/beli-jam-tangan-formal-pria/"},{"childCategoryName":"Mewah","childCategoryUrl":"https://www.ramaakunting.com/download/shop-jam-tangan-mewah-pria/"},{"childCategoryName":"Pra Dimiliki","childCategoryUrl":"https://www.ramaakunting.com/download/shop-jam-tangan-pre-owned-pria/"},{"childCategoryName":"Jam Tangan Olahraga Pria","childCategoryUrl":"https://www.ramaakunting.com/download/beli-jam-tangan-olahraga-pria/"}]
                         </script>
             </li>
         </ul>
         <ul class="lzd-site-menu-sub Level_1_Category_No5" data-spm="cate_5">
             <li class="lzd-site-menu-sub-item" data-cate="cate_5_1">
-                <a href="//www.lazada.co.id/fashion-pakaian-anak-laki-laki">
+                <a href="https://www.ramaakunting.com/download/fashion-pakaian-anak-laki-laki">
                     <span>Pakaian Anak Laki-laki</span>
                 </a>
                         <script type="text" class="J_data_4_0">
-                            [{"childCategoryName":"Topi Anak Laki-laki","childCategoryUrl":"//www.lazada.co.id/topi-anak-laki-laki"},{"childCategoryName":"Hoodie Anak Laki-laki","childCategoryUrl":"//www.lazada.co.id/jual-hoodie-anak-laki-laki"},{"childCategoryName":"Jaket & Mantel Anak Laki-laki","childCategoryUrl":"//www.lazada.co.id/jaket-mantel-anak-laki-laki"},{"childCategoryName":"Celana Pendek Anak Laki-laki","childCategoryUrl":"//www.lazada.co.id/beli-celana-pendek-pria"},{"childCategoryName":"Pakaian Tidur Anak Laki-laki","childCategoryUrl":"//www.lazada.co.id/pakaian-tidur-anak-laki-laki"},{"childCategoryName":"Sweater & Cardigan Anak","childCategoryUrl":"//www.lazada.co.id/sweater-cardigan-anak-laki-laki"},{"childCategoryName":"Payung & Pakaian Hujan Anak","childCategoryUrl":"//www.lazada.co.id/payung-pakaian-hujan-anak-laki-laki"},{"childCategoryName":"Pakaian dalam","childCategoryUrl":"//www.lazada.co.id/shop-pakaian-dalam"},{"childCategoryName":"Celana & Jeans Anak Laki-laki","childCategoryUrl":"//www.lazada.co.id/celana-jeans-anak-laki-laki"},{"childCategoryName":"Kaus Kaki","childCategoryUrl":"//www.lazada.co.id/shop-kaus-kaki"},{"childCategoryName":"Baju & Atasan Anak Laki-laki","childCategoryUrl":"//www.lazada.co.id/baju-atasan-anak-laki-laki"}]
+                            [{"childCategoryName":"Topi Anak Laki-laki","childCategoryUrl":"https://www.ramaakunting.com/download/topi-anak-laki-laki"},{"childCategoryName":"Hoodie Anak Laki-laki","childCategoryUrl":"https://www.ramaakunting.com/download/jual-hoodie-anak-laki-laki"},{"childCategoryName":"Jaket & Mantel Anak Laki-laki","childCategoryUrl":"https://www.ramaakunting.com/download/jaket-mantel-anak-laki-laki"},{"childCategoryName":"Celana Pendek Anak Laki-laki","childCategoryUrl":"https://www.ramaakunting.com/download/beli-celana-pendek-pria"},{"childCategoryName":"Pakaian Tidur Anak Laki-laki","childCategoryUrl":"https://www.ramaakunting.com/download/pakaian-tidur-anak-laki-laki"},{"childCategoryName":"Sweater & Cardigan Anak","childCategoryUrl":"https://www.ramaakunting.com/download/sweater-cardigan-anak-laki-laki"},{"childCategoryName":"Payung & Pakaian Hujan Anak","childCategoryUrl":"https://www.ramaakunting.com/download/payung-pakaian-hujan-anak-laki-laki"},{"childCategoryName":"Pakaian dalam","childCategoryUrl":"https://www.ramaakunting.com/download/shop-pakaian-dalam"},{"childCategoryName":"Celana & Jeans Anak Laki-laki","childCategoryUrl":"https://www.ramaakunting.com/download/celana-jeans-anak-laki-laki"},{"childCategoryName":"Kaus Kaki","childCategoryUrl":"https://www.ramaakunting.com/download/shop-kaus-kaki"},{"childCategoryName":"Baju & Atasan Anak Laki-laki","childCategoryUrl":"https://www.ramaakunting.com/download/baju-atasan-anak-laki-laki"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_5_2">
-                <a href="//www.lazada.co.id/pakaian-anak-perempuan">
+                <a href="https://www.ramaakunting.com/download/pakaian-anak-perempuan">
                     <span>Pakaian Anak Perempuan</span>
                 </a>
                         <script type="text" class="J_data_4_1">
-                            [{"childCategoryName":"Bawahan Anak Perempuan","childCategoryUrl":"//www.lazada.co.id/celana-jeans-anak-perempuan"},{"childCategoryName":"Dress Anak Perempuan","childCategoryUrl":"//www.lazada.co.id/fashion-dress-anak-perempuan"},{"childCategoryName":"Scarf Anak Perempuan","childCategoryUrl":"//www.lazada.co.id/scarf-sarung-tangan-anak-perempuan"},{"childCategoryName":"Aksesori Rambut Anak Perempuan","childCategoryUrl":"//www.lazada.co.id/jual-aksesori-rambut-anak-perempuan"},{"childCategoryName":"Topi Anak Perempuan","childCategoryUrl":"//www.lazada.co.id/topi-anak-perempuan"},{"childCategoryName":"Hoodie Anak Perempuan","childCategoryUrl":"//www.lazada.co.id/jual-hoodie-anak-laki-laki-2"},{"childCategoryName":"Jaket & Mantel Anak Perempuan","childCategoryUrl":"//www.lazada.co.id/jaket-mantel-anak-perempuan"},{"childCategoryName":"Baju & Atasan Anak Perempuan","childCategoryUrl":"//www.lazada.co.id/baju-atasan-anak-perempuan"},{"childCategoryName":"Payung & Pakaian Hujan Anak","childCategoryUrl":"//www.lazada.co.id/payung-jas-hujan-anak-perempuan"},{"childCategoryName":"Pakaian Dalam Anak Perempuan","childCategoryUrl":"//www.lazada.co.id/pakaian-tidur-anak-perempuan"},{"childCategoryName":"Jumpsuits & Overalls","childCategoryUrl":"//www.lazada.co.id/shop-girls-jumpsuits-overalls"}]
+                            [{"childCategoryName":"Bawahan Anak Perempuan","childCategoryUrl":"https://www.ramaakunting.com/download/celana-jeans-anak-perempuan"},{"childCategoryName":"Dress Anak Perempuan","childCategoryUrl":"https://www.ramaakunting.com/download/fashion-dress-anak-perempuan"},{"childCategoryName":"Scarf Anak Perempuan","childCategoryUrl":"https://www.ramaakunting.com/download/scarf-sarung-tangan-anak-perempuan"},{"childCategoryName":"Aksesori Rambut Anak Perempuan","childCategoryUrl":"https://www.ramaakunting.com/download/jual-aksesori-rambut-anak-perempuan"},{"childCategoryName":"Topi Anak Perempuan","childCategoryUrl":"https://www.ramaakunting.com/download/topi-anak-perempuan"},{"childCategoryName":"Hoodie Anak Perempuan","childCategoryUrl":"https://www.ramaakunting.com/download/jual-hoodie-anak-laki-laki-2"},{"childCategoryName":"Jaket & Mantel Anak Perempuan","childCategoryUrl":"https://www.ramaakunting.com/download/jaket-mantel-anak-perempuan"},{"childCategoryName":"Baju & Atasan Anak Perempuan","childCategoryUrl":"https://www.ramaakunting.com/download/baju-atasan-anak-perempuan"},{"childCategoryName":"Payung & Pakaian Hujan Anak","childCategoryUrl":"https://www.ramaakunting.com/download/payung-jas-hujan-anak-perempuan"},{"childCategoryName":"Pakaian Dalam Anak Perempuan","childCategoryUrl":"https://www.ramaakunting.com/download/pakaian-tidur-anak-perempuan"},{"childCategoryName":"Jumpsuits & Overalls","childCategoryUrl":"https://www.ramaakunting.com/download/shop-girls-jumpsuits-overalls"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_5_3">
-                <a href="//www.lazada.co.id/shop-boy's-muslim-wear">
+                <a href="https://www.ramaakunting.com/download/shop-boy's-muslim-wear">
                     <span>Pakaian Anak Muslim Laki-Laki</span>
                 </a>
                         <script type="text" class="J_data_4_2">
-                            [{"childCategoryName":"Kemeja Anak Laki-Laki","childCategoryUrl":"//www.lazada.co.id/shop-boy's-muslimin-shirt"},{"childCategoryName":"Celana Anak Laki-Laki","childCategoryUrl":"//www.lazada.co.id/shop-boy's-muslimin-pants"},{"childCategoryName":"Aksesoris Anak Laki-Laki","childCategoryUrl":"//www.lazada.co.id/shop-boy's-muslimin-accessories"}]
+                            [{"childCategoryName":"Kemeja Anak Laki-Laki","childCategoryUrl":"https://www.ramaakunting.com/download/shop-boy's-muslimin-shirt"},{"childCategoryName":"Celana Anak Laki-Laki","childCategoryUrl":"https://www.ramaakunting.com/download/shop-boy's-muslimin-pants"},{"childCategoryName":"Aksesoris Anak Laki-Laki","childCategoryUrl":"https://www.ramaakunting.com/download/shop-boy's-muslimin-accessories"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_5_4">
-                <a href="//www.lazada.co.id/shop-girls-muslim-wear">
+                <a href="https://www.ramaakunting.com/download/shop-girls-muslim-wear">
                     <span>Pakaian Anak Muslim Perempuan</span>
                 </a>
                         <script type="text" class="J_data_4_3">
-                            [{"childCategoryName":"Hijab Anak Perempuan","childCategoryUrl":"//www.lazada.co.id/shop-girls-muslim-wear-hijabs/"},{"childCategoryName":"Dress Anak Perempuan","childCategoryUrl":"//www.lazada.co.id/shop-girls-muslim-wear-dresses-jumpsuits/"}]
+                            [{"childCategoryName":"Hijab Anak Perempuan","childCategoryUrl":"https://www.ramaakunting.com/download/shop-girls-muslim-wear-hijabs/"},{"childCategoryName":"Dress Anak Perempuan","childCategoryUrl":"https://www.ramaakunting.com/download/shop-girls-muslim-wear-dresses-jumpsuits/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_5_5">
-                <a href="//www.lazada.co.id/fashion-sepatu-anak-laki-laki">
+                <a href="https://www.ramaakunting.com/download/fashion-sepatu-anak-laki-laki">
                     <span>Sepatu Anak Laki-laki</span>
                 </a>
                         <script type="text" class="J_data_4_4">
-                            [{"childCategoryName":"Sepatu Boot Anak Laki-laki","childCategoryUrl":"//www.lazada.co.id/sepatu-boot-anak-laki-laki"},{"childCategoryName":"Sandal Anak Laki-laki","childCategoryUrl":"//www.lazada.co.id/fashion-sandal-jepit-anak-laki-laki"},{"childCategoryName":"Sepatu Formal Anak Laki-laki","childCategoryUrl":"//www.lazada.co.id/sepatu-lace-ups-anak-laki-laki"},{"childCategoryName":"Aksesoris Sepatu Anak Laki","childCategoryUrl":"//www.lazada.co.id/fashion-aksesoris-sepatu-anak-laki-laki"},{"childCategoryName":"Slip-n Anak Laki-laki","childCategoryUrl":"//www.lazada.co.id/sepatu-slip-on-anak-laki-laki"},{"childCategoryName":"Sepatu Sneaker Anak Laki-laki","childCategoryUrl":"//www.lazada.co.id/sepatu-sneaker-anak-laki-laki"}]
+                            [{"childCategoryName":"Sepatu Boot Anak Laki-laki","childCategoryUrl":"https://www.ramaakunting.com/download/sepatu-boot-anak-laki-laki"},{"childCategoryName":"Sandal Anak Laki-laki","childCategoryUrl":"https://www.ramaakunting.com/download/fashion-sandal-jepit-anak-laki-laki"},{"childCategoryName":"Sepatu Formal Anak Laki-laki","childCategoryUrl":"https://www.ramaakunting.com/download/sepatu-lace-ups-anak-laki-laki"},{"childCategoryName":"Aksesoris Sepatu Anak Laki","childCategoryUrl":"https://www.ramaakunting.com/download/fashion-aksesoris-sepatu-anak-laki-laki"},{"childCategoryName":"Slip-n Anak Laki-laki","childCategoryUrl":"https://www.ramaakunting.com/download/sepatu-slip-on-anak-laki-laki"},{"childCategoryName":"Sepatu Sneaker Anak Laki-laki","childCategoryUrl":"https://www.ramaakunting.com/download/sepatu-sneaker-anak-laki-laki"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_5_6">
-                <a href="//www.lazada.co.id/fashion-sepatu-anak-perempuan">
+                <a href="https://www.ramaakunting.com/download/fashion-sepatu-anak-perempuan">
                     <span>Sepatu Anak Perempuan</span>
                 </a>
                         <script type="text" class="J_data_4_5">
-                            [{"childCategoryName":"Sepatu Flat Anak Perempuan","childCategoryUrl":"//www.lazada.co.id/sepatu-balerina-anak-perempuan"},{"childCategoryName":"Sepatu Boot Anak Perempuan","childCategoryUrl":"//www.lazada.co.id/sepatu-boot-anak-perempuan"},{"childCategoryName":"Sandal Anak Perempuan","childCategoryUrl":"//www.lazada.co.id/fashion-sandal-jepit-anak-perempuan"},{"childCategoryName":"Sepatu Formal Anak Perempuan","childCategoryUrl":"//www.lazada.co.id/sepatu-lace-ups-anak-perempuan"},{"childCategoryName":"Aksesoris Sepatu Anak","childCategoryUrl":"//www.lazada.co.id/fashion-aksesoris-sepatu-anak-perempuan"},{"childCategoryName":"Sepatu Sneaker Anak Perempuan","childCategoryUrl":"//www.lazada.co.id/sepatu-sneakers-anak-perempuan"}]
+                            [{"childCategoryName":"Sepatu Flat Anak Perempuan","childCategoryUrl":"https://www.ramaakunting.com/download/sepatu-balerina-anak-perempuan"},{"childCategoryName":"Sepatu Boot Anak Perempuan","childCategoryUrl":"https://www.ramaakunting.com/download/sepatu-boot-anak-perempuan"},{"childCategoryName":"Sandal Anak Perempuan","childCategoryUrl":"https://www.ramaakunting.com/download/fashion-sandal-jepit-anak-perempuan"},{"childCategoryName":"Sepatu Formal Anak Perempuan","childCategoryUrl":"https://www.ramaakunting.com/download/sepatu-lace-ups-anak-perempuan"},{"childCategoryName":"Aksesoris Sepatu Anak","childCategoryUrl":"https://www.ramaakunting.com/download/fashion-aksesoris-sepatu-anak-perempuan"},{"childCategoryName":"Sepatu Sneaker Anak Perempuan","childCategoryUrl":"https://www.ramaakunting.com/download/sepatu-sneakers-anak-perempuan"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_5_7">
-                <a href="//www.lazada.co.id/beli-tas-anak-tl/">
+                <a href="https://www.ramaakunting.com/download/beli-tas-anak-tl/">
                     <span>Tas Anak</span>
                 </a>
                         <script type="text" class="J_data_4_6">
-                            [{"childCategoryName":"Tas Bahu Anak","childCategoryUrl":"//www.lazada.co.id/beli-tas-bahu-anak/"},{"childCategoryName":"Ransel Troli Anak","childCategoryUrl":"//www.lazada.co.id/beli-ransel-troli-anak/"},{"childCategoryName":"Ransel Anak","childCategoryUrl":"//www.lazada.co.id/beli-ransel-anak/"},{"childCategoryName":"Aksesoris Tas","childCategoryUrl":"//www.lazada.co.id/beli-aksesoris-anak/"},{"childCategoryName":"Koper","childCategoryUrl":"//www.lazada.co.id/koper-anak-2/"}]
+                            [{"childCategoryName":"Tas Bahu Anak","childCategoryUrl":"https://www.ramaakunting.com/download/beli-tas-bahu-anak/"},{"childCategoryName":"Ransel Troli Anak","childCategoryUrl":"https://www.ramaakunting.com/download/beli-ransel-troli-anak/"},{"childCategoryName":"Ransel Anak","childCategoryUrl":"https://www.ramaakunting.com/download/beli-ransel-anak/"},{"childCategoryName":"Aksesoris Tas","childCategoryUrl":"https://www.ramaakunting.com/download/beli-aksesoris-anak/"},{"childCategoryName":"Koper","childCategoryUrl":"https://www.ramaakunting.com/download/koper-anak-2/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_5_8">
-                <a href="//www.lazada.co.id/beli-perhiasan-anak/">
+                <a href="https://www.ramaakunting.com/download/beli-perhiasan-anak/">
                     <span>Perhiasan Anak</span>
                 </a>
                         <script type="text" class="J_data_4_7">
-                            [{"childCategoryName":"Emas Murni","childCategoryUrl":"//www.lazada.co.id/beli-anak-emas-murni/"},{"childCategoryName":"Perhiasan Fashion","childCategoryUrl":"//www.lazada.co.id/beli-anak-perhiasan-fashion/"}]
+                            [{"childCategoryName":"Emas Murni","childCategoryUrl":"https://www.ramaakunting.com/download/beli-anak-emas-murni/"},{"childCategoryName":"Perhiasan Fashion","childCategoryUrl":"https://www.ramaakunting.com/download/beli-anak-perhiasan-fashion/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_5_9">
-                <a href="//www.lazada.co.id/beli-jam-tangan-anak/">
+                <a href="https://www.ramaakunting.com/download/beli-jam-tangan-anak/">
                     <span>Jam Tangan Anak</span>
                 </a>
                         <script type="text" class="J_data_4_8">
-                            [{"childCategoryName":"Jam Tangan Anak Laki-Laki","childCategoryUrl":"//www.lazada.co.id/beli-jam-tangan-anak-laki-laki/"},{"childCategoryName":"Jam Tangan Anak Perempuan","childCategoryUrl":"//www.lazada.co.id/beli-jam-tangan-anak-perempuan/"}]
+                            [{"childCategoryName":"Jam Tangan Anak Laki-Laki","childCategoryUrl":"https://www.ramaakunting.com/download/beli-jam-tangan-anak-laki-laki/"},{"childCategoryName":"Jam Tangan Anak Perempuan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-jam-tangan-anak-perempuan/"}]
                         </script>
             </li>
         </ul>
         <ul class="lzd-site-menu-sub Level_1_Category_No6" data-spm="cate_6">
             <li class="lzd-site-menu-sub-item" data-cate="cate_6_1">
-                <a href="//www.lazada.co.id/beli-perawatan-kulit/">
+                <a href="https://www.ramaakunting.com/download/beli-perawatan-kulit/">
                     <span>Perawatan Kulit</span>
                 </a>
                         <script type="text" class="J_data_5_0">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Serum Perawatan Wajah","childCategoryUrl":"//www.lazada.co.id/beli-serum-perawatan-wajah"},{"childCategoryName":"Dermacare","childCategoryUrl":"//www.lazada.co.id/beli-dermacare"},{"childCategoryName":"Pelembab Wajah","childCategoryUrl":"//www.lazada.co.id/shop-pelembab-wajah"},{"childCategoryName":"Pembersih Wajah","childCategoryUrl":"//www.lazada.co.id/pembersih-wajah"},{"childCategoryName":"Masker Wajah","childCategoryUrl":"//www.lazada.co.id/beli-masker-wajah"},{"childCategoryName":"Toner","childCategoryUrl":"//www.lazada.co.id/beli-toner"},{"childCategoryName":"Tabir Surya","childCategoryUrl":"//www.lazada.co.id/beli-tabir-surya-aftersun"},{"childCategoryName":"Set Perawatan Wajah","childCategoryUrl":"//www.lazada.co.id/beli-set-perawatan-wajah"},{"childCategoryName":"Pelembab & Perawatan Bibir","childCategoryUrl":"//www.lazada.co.id/beli-lip-balm-perawatan-bibir"},{"childCategoryName":"Face Scrubs & Exfoliators","childCategoryUrl":"//www.lazada.co.id/beli-scrub-pengelupas-wajah"},{"childCategoryName":"Perawatan Mata","childCategoryUrl":"//www.lazada.co.id/shop-perawatan-mata"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Serum Perawatan Wajah","childCategoryUrl":"https://www.ramaakunting.com/download/beli-serum-perawatan-wajah"},{"childCategoryName":"Dermacare","childCategoryUrl":"https://www.ramaakunting.com/download/beli-dermacare"},{"childCategoryName":"Pelembab Wajah","childCategoryUrl":"https://www.ramaakunting.com/download/shop-pelembab-wajah"},{"childCategoryName":"Pembersih Wajah","childCategoryUrl":"https://www.ramaakunting.com/download/pembersih-wajah"},{"childCategoryName":"Masker Wajah","childCategoryUrl":"https://www.ramaakunting.com/download/beli-masker-wajah"},{"childCategoryName":"Toner","childCategoryUrl":"https://www.ramaakunting.com/download/beli-toner"},{"childCategoryName":"Tabir Surya","childCategoryUrl":"https://www.ramaakunting.com/download/beli-tabir-surya-aftersun"},{"childCategoryName":"Set Perawatan Wajah","childCategoryUrl":"https://www.ramaakunting.com/download/beli-set-perawatan-wajah"},{"childCategoryName":"Pelembab & Perawatan Bibir","childCategoryUrl":"https://www.ramaakunting.com/download/beli-lip-balm-perawatan-bibir"},{"childCategoryName":"Face Scrubs & Exfoliators","childCategoryUrl":"https://www.ramaakunting.com/download/beli-scrub-pengelupas-wajah"},{"childCategoryName":"Perawatan Mata","childCategoryUrl":"https://www.ramaakunting.com/download/shop-perawatan-mata"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_6_2">
-                <a href="//www.lazada.co.id/beli-makeup/">
+                <a href="https://www.ramaakunting.com/download/beli-makeup/">
                     <span>Makeup</span>
                 </a>
                         <script type="text" class="J_data_5_1">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Makeup Bibir","childCategoryUrl":"//www.lazada.co.id/beli-make-up-bibir"},{"childCategoryName":"Lipstik","childCategoryUrl":"//www.lazada.co.id/beli-lipstik"},{"childCategoryName":"Makeup Wajah","childCategoryUrl":"//www.lazada.co.id/makeup-wajah"},{"childCategoryName":"Foundation","childCategoryUrl":"//www.lazada.co.id/beli-foundation"},{"childCategoryName":"Makeup Mata","childCategoryUrl":"//www.lazada.co.id/beli-mata"},{"childCategoryName":"Maskara","childCategoryUrl":"//www.lazada.co.id/beli-maskara"},{"childCategoryName":"Aksesoris Makeup","childCategoryUrl":"//www.lazada.co.id/beli-aksesoris-makeup"},{"childCategoryName":"Set Kuas & Kuas Makeup","childCategoryUrl":"//www.lazada.co.id/beli-kuas-aplikator"},{"childCategoryName":"Perawatan Kuku","childCategoryUrl":"//www.lazada.co.id/beli-perawatan-kuku"},{"childCategoryName":"Set Makeup & Palet","childCategoryUrl":"//www.lazada.co.id/shop-palet-set-makeup"},{"childCategoryName":"Pembersih Makeup","childCategoryUrl":"//www.lazada.co.id/beli-pembersih-makeup"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Makeup Bibir","childCategoryUrl":"https://www.ramaakunting.com/download/beli-make-up-bibir"},{"childCategoryName":"Lipstik","childCategoryUrl":"https://www.ramaakunting.com/download/beli-lipstik"},{"childCategoryName":"Makeup Wajah","childCategoryUrl":"https://www.ramaakunting.com/download/makeup-wajah"},{"childCategoryName":"Foundation","childCategoryUrl":"https://www.ramaakunting.com/download/beli-foundation"},{"childCategoryName":"Makeup Mata","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mata"},{"childCategoryName":"Maskara","childCategoryUrl":"https://www.ramaakunting.com/download/beli-maskara"},{"childCategoryName":"Aksesoris Makeup","childCategoryUrl":"https://www.ramaakunting.com/download/beli-aksesoris-makeup"},{"childCategoryName":"Set Kuas & Kuas Makeup","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kuas-aplikator"},{"childCategoryName":"Perawatan Kuku","childCategoryUrl":"https://www.ramaakunting.com/download/beli-perawatan-kuku"},{"childCategoryName":"Set Makeup & Palet","childCategoryUrl":"https://www.ramaakunting.com/download/shop-palet-set-makeup"},{"childCategoryName":"Pembersih Makeup","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pembersih-makeup"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_6_3">
-                <a href="//www.lazada.co.id/beli-perawatan-rambut/">
+                <a href="https://www.ramaakunting.com/download/beli-perawatan-rambut/">
                     <span>Perawatan Rambut</span>
                 </a>
                         <script type="text" class="J_data_5_2">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Shampo","childCategoryUrl":"//www.lazada.co.id/beli-sampo"},{"childCategoryName":"Perawatan Rambut","childCategoryUrl":"//www.lazada.co.id/perawatan-intensif"},{"childCategoryName":"Aksesoris Rambut","childCategoryUrl":"//www.lazada.co.id/aksesoris-perawatan-rambut"},{"childCategoryName":"Styling Rambut","childCategoryUrl":"//www.lazada.co.id/beli-styling-rambut"},{"childCategoryName":"Pewarna Rambut","childCategoryUrl":"//www.lazada.co.id/beli-cat-rambut"},{"childCategoryName":"Kondisioner","childCategoryUrl":"//www.lazada.co.id/beli-kondisioner"},{"childCategoryName":"Paket Hadiah","childCategoryUrl":"//www.lazada.co.id/beli-paket-hadiah-bingkisan-perawatan-rambut"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Shampo","childCategoryUrl":"https://www.ramaakunting.com/download/beli-sampo"},{"childCategoryName":"Perawatan Rambut","childCategoryUrl":"https://www.ramaakunting.com/download/perawatan-intensif"},{"childCategoryName":"Aksesoris Rambut","childCategoryUrl":"https://www.ramaakunting.com/download/aksesoris-perawatan-rambut"},{"childCategoryName":"Styling Rambut","childCategoryUrl":"https://www.ramaakunting.com/download/beli-styling-rambut"},{"childCategoryName":"Pewarna Rambut","childCategoryUrl":"https://www.ramaakunting.com/download/beli-cat-rambut"},{"childCategoryName":"Kondisioner","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kondisioner"},{"childCategoryName":"Paket Hadiah","childCategoryUrl":"https://www.ramaakunting.com/download/beli-paket-hadiah-bingkisan-perawatan-rambut"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_6_4">
-                <a href="//www.lazada.co.id/beli-perlengkapan-mandi-tubuh/">
+                <a href="https://www.ramaakunting.com/download/beli-perlengkapan-mandi-tubuh/">
                     <span>Perawatan Tubuh</span>
                 </a>
                         <script type="text" class="J_data_5_3">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Losion Tubuh","childCategoryUrl":"//www.lazada.co.id/beli-losion-krim-tubuh"},{"childCategoryName":"Sabun Cair","childCategoryUrl":"//www.lazada.co.id/shop-Sabun-Cair"},{"childCategoryName":"Scrub Tubuh","childCategoryUrl":"//www.lazada.co.id/beli-scrub-tubuh"},{"childCategoryName":"Perawatan Payudara","childCategoryUrl":"//www.lazada.co.id/perawatan-payudara"},{"childCategoryName":"Perawatan Tubuh","childCategoryUrl":"//www.lazada.co.id/shop-Perawatan-Tubuh"},{"childCategoryName":"Perawatan Kaki","childCategoryUrl":"//www.lazada.co.id/beli-perawatan-kaki"},{"childCategoryName":"Sabun Batang","childCategoryUrl":"//www.lazada.co.id/shop-Sabun-Batang"},{"childCategoryName":"Aksesoris Tubuh","childCategoryUrl":"//www.lazada.co.id/beli-aksesoris-perlengkapan-mandi-tubuh"},{"childCategoryName":"Paket Hadiah","childCategoryUrl":"//www.lazada.co.id/beli-paket-hadiah-bingkisan-alat-mandi-tubuh"},{"childCategoryName":"Penghilang Bulu","childCategoryUrl":"//www.lazada.co.id/beli-perontok-rambut"},{"childCategoryName":"Sabun Tangan","childCategoryUrl":"//www.lazada.co.id/beli-sabun-pembersih-tangan"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Losion Tubuh","childCategoryUrl":"https://www.ramaakunting.com/download/beli-losion-krim-tubuh"},{"childCategoryName":"Sabun Cair","childCategoryUrl":"https://www.ramaakunting.com/download/shop-Sabun-Cair"},{"childCategoryName":"Scrub Tubuh","childCategoryUrl":"https://www.ramaakunting.com/download/beli-scrub-tubuh"},{"childCategoryName":"Perawatan Payudara","childCategoryUrl":"https://www.ramaakunting.com/download/perawatan-payudara"},{"childCategoryName":"Perawatan Tubuh","childCategoryUrl":"https://www.ramaakunting.com/download/shop-Perawatan-Tubuh"},{"childCategoryName":"Perawatan Kaki","childCategoryUrl":"https://www.ramaakunting.com/download/beli-perawatan-kaki"},{"childCategoryName":"Sabun Batang","childCategoryUrl":"https://www.ramaakunting.com/download/shop-Sabun-Batang"},{"childCategoryName":"Aksesoris Tubuh","childCategoryUrl":"https://www.ramaakunting.com/download/beli-aksesoris-perlengkapan-mandi-tubuh"},{"childCategoryName":"Paket Hadiah","childCategoryUrl":"https://www.ramaakunting.com/download/beli-paket-hadiah-bingkisan-alat-mandi-tubuh"},{"childCategoryName":"Penghilang Bulu","childCategoryUrl":"https://www.ramaakunting.com/download/beli-perontok-rambut"},{"childCategoryName":"Sabun Tangan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-sabun-pembersih-tangan"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_6_5">
-                <a href="//www.lazada.co.id/beli-perawatan-kesehatan-pribadi/">
+                <a href="https://www.ramaakunting.com/download/beli-perawatan-kesehatan-pribadi/">
                     <span>Perawatan Diri</span>
                 </a>
                         <script type="text" class="J_data_5_4">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Perawatan Mulut","childCategoryUrl":"//www.lazada.co.id/perawatan-mulut"},{"childCategoryName":"Pembersih Wanita","childCategoryUrl":"//www.lazada.co.id/beli-pembersih-wanita"},{"childCategoryName":"Keamanan Diri","childCategoryUrl":"//www.lazada.co.id/beli-keamanan-diri"},{"childCategoryName":"Beli Deodoran","childCategoryUrl":"//www.lazada.co.id/beli-deodoran"},{"childCategoryName":"Perawatan Mata","childCategoryUrl":"//www.lazada.co.id/shop-perawatan-optik-pribadi"},{"childCategoryName":"Obat Anti Serangga","childCategoryUrl":"//www.lazada.co.id/shop-Obat-Anti-Serangga"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Perawatan Mulut","childCategoryUrl":"https://www.ramaakunting.com/download/perawatan-mulut"},{"childCategoryName":"Pembersih Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pembersih-wanita"},{"childCategoryName":"Keamanan Diri","childCategoryUrl":"https://www.ramaakunting.com/download/beli-keamanan-diri"},{"childCategoryName":"Beli Deodoran","childCategoryUrl":"https://www.ramaakunting.com/download/beli-deodoran"},{"childCategoryName":"Perawatan Mata","childCategoryUrl":"https://www.ramaakunting.com/download/shop-perawatan-optik-pribadi"},{"childCategoryName":"Obat Anti Serangga","childCategoryUrl":"https://www.ramaakunting.com/download/shop-Obat-Anti-Serangga"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_6_6">
-                <a href="//www.lazada.co.id/beli-parfum/">
+                <a href="https://www.ramaakunting.com/download/beli-parfum/">
                     <span>Parfum</span>
                 </a>
                         <script type="text" class="J_data_5_5">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Pria","childCategoryUrl":"//www.lazada.co.id/beli-parfum-pria"},{"childCategoryName":"Wanita","childCategoryUrl":"//www.lazada.co.id/beli-parfum-wanita"},{"childCategoryName":"Unisex","childCategoryUrl":"//www.lazada.co.id/beli-parfum-unisex"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Pria","childCategoryUrl":"https://www.ramaakunting.com/download/beli-parfum-pria"},{"childCategoryName":"Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/beli-parfum-wanita"},{"childCategoryName":"Unisex","childCategoryUrl":"https://www.ramaakunting.com/download/beli-parfum-unisex"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_6_7">
-                <a href="//www.lazada.co.id/beli-alat-kesehatan-kecantikan/">
+                <a href="https://www.ramaakunting.com/download/beli-alat-kesehatan-kecantikan/">
                     <span>Alat Kecantikan</span>
                 </a>
                         <script type="text" class="J_data_5_6">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Alat Pelangsing & Pijat","childCategoryUrl":"//www.lazada.co.id/alat-pelangsing-dan-pemijat-elektrik"},{"childCategoryName":"Sauna Portabel","childCategoryUrl":"//www.lazada.co.id/beli-sauna-portabel"},{"childCategoryName":"Foot Relief","childCategoryUrl":"//www.lazada.co.id/beli-foot-relief"},{"childCategoryName":"Alat Cukur & Trimmer","childCategoryUrl":"//www.lazada.co.id/aksesoris-alat-cukur-dan-trimmer"},{"childCategoryName":"Alat Perawatan Wajah","childCategoryUrl":"//www.lazada.co.id/shop-alat-perawatan-kulit-wajah"},{"childCategoryName":"Alat Perawatan Tubuh","childCategoryUrl":"//www.lazada.co.id/shop-alat-perawatan-kulit-tubuh"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Alat Pelangsing & Pijat","childCategoryUrl":"https://www.ramaakunting.com/download/alat-pelangsing-dan-pemijat-elektrik"},{"childCategoryName":"Sauna Portabel","childCategoryUrl":"https://www.ramaakunting.com/download/beli-sauna-portabel"},{"childCategoryName":"Foot Relief","childCategoryUrl":"https://www.ramaakunting.com/download/beli-foot-relief"},{"childCategoryName":"Alat Cukur & Trimmer","childCategoryUrl":"https://www.ramaakunting.com/download/aksesoris-alat-cukur-dan-trimmer"},{"childCategoryName":"Alat Perawatan Wajah","childCategoryUrl":"https://www.ramaakunting.com/download/shop-alat-perawatan-kulit-wajah"},{"childCategoryName":"Alat Perawatan Tubuh","childCategoryUrl":"https://www.ramaakunting.com/download/shop-alat-perawatan-kulit-tubuh"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_6_8">
-                <a href="//www.lazada.co.id/beli-suplemen-makanan/">
+                <a href="https://www.ramaakunting.com/download/beli-suplemen-makanan/">
                     <span>Suplemen Makanan</span>
                 </a>
                         <script type="text" class="J_data_5_7">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Pengatur Berat Badan","childCategoryUrl":"//www.lazada.co.id/beli-pengatur-berat-badan"},{"childCategoryName":"Pembakar Lemak","childCategoryUrl":"//www.lazada.co.id/beli-pembakar-lemak"},{"childCategoryName":"Minuman Pelangsing","childCategoryUrl":"//www.lazada.co.id/beli-minuman-pelangsing"},{"childCategoryName":"Suplemen Kecantikan","childCategoryUrl":"//www.lazada.co.id/beli-suplemen-kecantikan"},{"childCategoryName":"Suplemen Pemutih","childCategoryUrl":"//www.lazada.co.id/beli-suplemen-pemutih"},{"childCategoryName":"Multivitamin","childCategoryUrl":"//www.lazada.co.id/multivitamin/"},{"childCategoryName":"Obat Tradisional","childCategoryUrl":"//www.lazada.co.id/beli-obat-obatan-tradisional"},{"childCategoryName":"Sistem Imun","childCategoryUrl":"//www.lazada.co.id/beli-sistem-imun"},{"childCategoryName":"Nutrisi Olahraga","childCategoryUrl":"//www.lazada.co.id/beli-nutrisi-olahraga"},{"childCategoryName":"Penambah Berat Badan","childCategoryUrl":"//www.lazada.co.id/beli-suplemen-penambah-berat-badan"},{"childCategoryName":"Protein","childCategoryUrl":"//www.lazada.co.id/beli-protein"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Pengatur Berat Badan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pengatur-berat-badan"},{"childCategoryName":"Pembakar Lemak","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pembakar-lemak"},{"childCategoryName":"Minuman Pelangsing","childCategoryUrl":"https://www.ramaakunting.com/download/beli-minuman-pelangsing"},{"childCategoryName":"Suplemen Kecantikan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-suplemen-kecantikan"},{"childCategoryName":"Suplemen Pemutih","childCategoryUrl":"https://www.ramaakunting.com/download/beli-suplemen-pemutih"},{"childCategoryName":"Multivitamin","childCategoryUrl":"https://www.ramaakunting.com/download/multivitamin/"},{"childCategoryName":"Obat Tradisional","childCategoryUrl":"https://www.ramaakunting.com/download/beli-obat-obatan-tradisional"},{"childCategoryName":"Sistem Imun","childCategoryUrl":"https://www.ramaakunting.com/download/beli-sistem-imun"},{"childCategoryName":"Nutrisi Olahraga","childCategoryUrl":"https://www.ramaakunting.com/download/beli-nutrisi-olahraga"},{"childCategoryName":"Penambah Berat Badan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-suplemen-penambah-berat-badan"},{"childCategoryName":"Protein","childCategoryUrl":"https://www.ramaakunting.com/download/beli-protein"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_6_9">
-                <a href="//www.lazada.co.id/beli-alat-medis/">
+                <a href="https://www.ramaakunting.com/download/beli-alat-medis/">
                     <span>Alat Medis</span>
                 </a>
                         <script type="text" class="J_data_5_8">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Aksesoris Kesehatan","childCategoryUrl":"//www.lazada.co.id/aksesoris-kesehatan"},{"childCategoryName":"Alat Tes Kesehatan","childCategoryUrl":"//www.lazada.co.id/beli-alat-tes-kesehatan"},{"childCategoryName":"Obat-Obatan","childCategoryUrl":"//www.lazada.co.id/shop-over-the-counter-medicine/"},{"childCategoryName":"Perban & Perlengkapan Cedera","childCategoryUrl":"//www.lazada.co.id/perban-alat-terapi-cedera"},{"childCategoryName":"Timbangan & Alat Kadar Lemak","childCategoryUrl":"//www.lazada.co.id/beli-timbangan-alat-ukur-kadar-lemak"},{"childCategoryName":"P3K","childCategoryUrl":"//www.lazada.co.id/beli-p3k"},{"childCategoryName":"Kursi Roda","childCategoryUrl":"//www.lazada.co.id/beli-kursi-roda"},{"childCategoryName":"Salep & Krim","childCategoryUrl":"//www.lazada.co.id/shop-salep-dan-krim"},{"childCategoryName":"Alat Inhalasi & Nebulizer","childCategoryUrl":"//www.lazada.co.id/beli-alat-inhalasi-nebulizer"},{"childCategoryName":"Alat Tes Medis","childCategoryUrl":"//www.lazada.co.id/tes-medis"},{"childCategoryName":"Stetoskop","childCategoryUrl":"//www.lazada.co.id/beli-stetoskop"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Aksesoris Kesehatan","childCategoryUrl":"https://www.ramaakunting.com/download/aksesoris-kesehatan"},{"childCategoryName":"Alat Tes Kesehatan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-alat-tes-kesehatan"},{"childCategoryName":"Obat-Obatan","childCategoryUrl":"https://www.ramaakunting.com/download/shop-over-the-counter-medicine/"},{"childCategoryName":"Perban & Perlengkapan Cedera","childCategoryUrl":"https://www.ramaakunting.com/download/perban-alat-terapi-cedera"},{"childCategoryName":"Timbangan & Alat Kadar Lemak","childCategoryUrl":"https://www.ramaakunting.com/download/beli-timbangan-alat-ukur-kadar-lemak"},{"childCategoryName":"P3K","childCategoryUrl":"https://www.ramaakunting.com/download/beli-p3k"},{"childCategoryName":"Kursi Roda","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kursi-roda"},{"childCategoryName":"Salep & Krim","childCategoryUrl":"https://www.ramaakunting.com/download/shop-salep-dan-krim"},{"childCategoryName":"Alat Inhalasi & Nebulizer","childCategoryUrl":"https://www.ramaakunting.com/download/beli-alat-inhalasi-nebulizer"},{"childCategoryName":"Alat Tes Medis","childCategoryUrl":"https://www.ramaakunting.com/download/tes-medis"},{"childCategoryName":"Stetoskop","childCategoryUrl":"https://www.ramaakunting.com/download/beli-stetoskop"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_6_10">
-                <a href="//www.lazada.co.id/jual-perlengkapan-kesehatan-seksual/">
+                <a href="https://www.ramaakunting.com/download/jual-perlengkapan-kesehatan-seksual/">
                     <span>Sexual Wellness</span>
                 </a>
                         <script type="text" class="J_data_5_9">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Kondom","childCategoryUrl":"//www.lazada.co.id/beli-kondom"},{"childCategoryName":"Pelumas","childCategoryUrl":"//www.lazada.co.id/beli-pelumas"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Kondom","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kondom"},{"childCategoryName":"Pelumas","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pelumas"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_6_11">
-                <a href="//www.lazada.co.id/beli-perawatan-tubuh-kesehatan-pria/">
+                <a href="https://www.ramaakunting.com/download/beli-perawatan-tubuh-kesehatan-pria/">
                     <span>Perawatan Pria</span>
                 </a>
                         <script type="text" class="J_data_5_10">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Perawatan Rambut","childCategoryUrl":"//www.lazada.co.id/beli-perawatan-rambut-pria"},{"childCategoryName":"Perawatan Wajah","childCategoryUrl":"//www.lazada.co.id/beli-perawatan-kulit-pria"},{"childCategoryName":"Alat Cukur Pria","childCategoryUrl":"//www.lazada.co.id/beli-alat-cukur-pria"},{"childCategoryName":"Perawatan Tubuh","childCategoryUrl":"//www.lazada.co.id/perawatan-tubuh"},{"childCategoryName":"Deodoran Pria","childCategoryUrl":"//www.lazada.co.id/beli-deodoran-pria"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Perawatan Rambut","childCategoryUrl":"https://www.ramaakunting.com/download/beli-perawatan-rambut-pria"},{"childCategoryName":"Perawatan Wajah","childCategoryUrl":"https://www.ramaakunting.com/download/beli-perawatan-kulit-pria"},{"childCategoryName":"Alat Cukur Pria","childCategoryUrl":"https://www.ramaakunting.com/download/beli-alat-cukur-pria"},{"childCategoryName":"Perawatan Tubuh","childCategoryUrl":"https://www.ramaakunting.com/download/perawatan-tubuh"},{"childCategoryName":"Deodoran Pria","childCategoryUrl":"https://www.ramaakunting.com/download/beli-deodoran-pria"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_6_12">
-                <a href="//www.lazada.co.id/kesehatan-manula/">
+                <a href="https://www.ramaakunting.com/download/kesehatan-manula/">
                     <span>Popok Dewasa</span>
                 </a>
                         <script type="text" class="J_data_5_11">
-                            [{"childCategoryName":"Popok Dewasa","childCategoryUrl":"//www.lazada.co.id/kesehatan-manula/"}]
+                            [{"childCategoryName":"Popok Dewasa","childCategoryUrl":"https://www.ramaakunting.com/download/kesehatan-manula/"}]
                         </script>
             </li>
         </ul>
         <ul class="lzd-site-menu-sub Level_1_Category_No7" data-spm="cate_7">
             <li class="lzd-site-menu-sub-item" data-cate="cate_7_1">
-                <a href="//www.lazada.co.id/jual-perlengkapan-bayi-balita/">
+                <a href="https://www.ramaakunting.com/download/jual-perlengkapan-bayi-balita/">
                     <span>Ibu &amp; Anak</span>
                 </a>
                         <script type="text" class="J_data_6_0">
-                            [{"childCategoryName":"Popok Sekali Pakai","childCategoryUrl":"//www.lazada.co.id/beli-popok-sekali-pakai/"},{"childCategoryName":"Bayi (0 - 6 bulan)","childCategoryUrl":"//www.lazada.co.id/beli-susu-bayi-0-6-bulan/"},{"childCategoryName":"Bayi (6 - 12 bulan)","childCategoryUrl":"//www.lazada.co.id/beli-susu-bayi-6-12-bulan/"},{"childCategoryName":"Susu Batita (1- dibawah 3 tahun)","childCategoryUrl":"//www.lazada.co.id/jual-susu-batita-1-3-tahun/"},{"childCategoryName":"Susu Pertumbuhan (>3Tahun)","childCategoryUrl":"//www.lazada.co.id/beli-susu-pertumbuhan-1-3-tahun/"},{"childCategoryName":"Pakaian Bayi Perempuan","childCategoryUrl":"//www.lazada.co.id/beli-pakaian-bayi-perempuan/"},{"childCategoryName":"Pakaian Bayi Laki-Laki","childCategoryUrl":"//www.lazada.co.id/beli-pakaian-bayi-laki-laki/"},{"childCategoryName":"Botol Bayi","childCategoryUrl":"//www.lazada.co.id/beli-botol-bayi/"},{"childCategoryName":"Stroller","childCategoryUrl":"//www.lazada.co.id/beli-kereta-dorong-bayi/"},{"childCategoryName":"Soft Carrier","childCategoryUrl":"//www.lazada.co.id/beli-soft-carrier/"},{"childCategoryName":"Sampo & Kondisioner","childCategoryUrl":"//www.lazada.co.id/beli-sampo-kondisioner-bb/"},{"childCategoryName":"Perawatan Kulit Bayi","childCategoryUrl":"//www.lazada.co.id/beli-perawatan-kulit-pria/"}]
+                            [{"childCategoryName":"Popok Sekali Pakai","childCategoryUrl":"https://www.ramaakunting.com/download/beli-popok-sekali-pakai/"},{"childCategoryName":"Bayi (0 - 6 bulan)","childCategoryUrl":"https://www.ramaakunting.com/download/beli-susu-bayi-0-6-bulan/"},{"childCategoryName":"Bayi (6 - 12 bulan)","childCategoryUrl":"https://www.ramaakunting.com/download/beli-susu-bayi-6-12-bulan/"},{"childCategoryName":"Susu Batita (1- dibawah 3 tahun)","childCategoryUrl":"https://www.ramaakunting.com/download/jual-susu-batita-1-3-tahun/"},{"childCategoryName":"Susu Pertumbuhan (>3Tahun)","childCategoryUrl":"https://www.ramaakunting.com/download/beli-susu-pertumbuhan-1-3-tahun/"},{"childCategoryName":"Pakaian Bayi Perempuan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pakaian-bayi-perempuan/"},{"childCategoryName":"Pakaian Bayi Laki-Laki","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pakaian-bayi-laki-laki/"},{"childCategoryName":"Botol Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-botol-bayi/"},{"childCategoryName":"Stroller","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kereta-dorong-bayi/"},{"childCategoryName":"Soft Carrier","childCategoryUrl":"https://www.ramaakunting.com/download/beli-soft-carrier/"},{"childCategoryName":"Sampo & Kondisioner","childCategoryUrl":"https://www.ramaakunting.com/download/beli-sampo-kondisioner-bb/"},{"childCategoryName":"Perawatan Kulit Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-perawatan-kulit-pria/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_7_2">
-                <a href="//www.lazada.co.id/beli-popok-pispot-bb/">
+                <a href="https://www.ramaakunting.com/download/beli-popok-pispot-bb/">
                     <span>Popok Sekali Pakai</span>
                 </a>
                         <script type="text" class="J_data_6_1">
-                            [{"childCategoryName":"Popok Sekali Pakai","childCategoryUrl":"//www.lazada.co.id/beli-popok-sekali-pakai/"},{"childCategoryName":"Popok Kain & Aksesori","childCategoryUrl":"//www.lazada.co.id/beli-popok-kain/"},{"childCategoryName":"Lap Bayi & Penyangga","childCategoryUrl":"//www.lazada.co.id/beli-lap-bayi-penyangga/"},{"childCategoryName":"Perawatan Popok","childCategoryUrl":"//www.lazada.co.id/beli-perawatan-popok/"},{"childCategoryName":"Krim & Salep Bayi","childCategoryUrl":"//www.lazada.co.id/beli-krim-salep-bayi/"},{"childCategoryName":"Tas Perlengkapan Popok","childCategoryUrl":"//www.lazada.co.id/beli-tas-popok-tb/"},{"childCategoryName":"Meja Ganti Popok","childCategoryUrl":"//www.lazada.co.id/beli-meja-ganti/"},{"childCategoryName":"Cover Popok Kain","childCategoryUrl":"//www.lazada.co.id/beli-bantalan/"},{"childCategoryName":"Lapisan Penyerap & Liner Popok Kain","childCategoryUrl":"//www.lazada.co.id/beli-lapisan-penyerap-liner-popok-kain/"},{"childCategoryName":"Potty Training","childCategoryUrl":"//www.lazada.co.id/beli-potty-training/"},{"childCategoryName":"Bangku Langkah","childCategoryUrl":"//www.lazada.co.id/beli-bangku-langkah/"},{"childCategoryName":"Detergent Laundry","childCategoryUrl":"//www.lazada.co.id/beli-detergen-popok-kain/"}]
+                            [{"childCategoryName":"Popok Sekali Pakai","childCategoryUrl":"https://www.ramaakunting.com/download/beli-popok-sekali-pakai/"},{"childCategoryName":"Popok Kain & Aksesori","childCategoryUrl":"https://www.ramaakunting.com/download/beli-popok-kain/"},{"childCategoryName":"Lap Bayi & Penyangga","childCategoryUrl":"https://www.ramaakunting.com/download/beli-lap-bayi-penyangga/"},{"childCategoryName":"Perawatan Popok","childCategoryUrl":"https://www.ramaakunting.com/download/beli-perawatan-popok/"},{"childCategoryName":"Krim & Salep Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-krim-salep-bayi/"},{"childCategoryName":"Tas Perlengkapan Popok","childCategoryUrl":"https://www.ramaakunting.com/download/beli-tas-popok-tb/"},{"childCategoryName":"Meja Ganti Popok","childCategoryUrl":"https://www.ramaakunting.com/download/beli-meja-ganti/"},{"childCategoryName":"Cover Popok Kain","childCategoryUrl":"https://www.ramaakunting.com/download/beli-bantalan/"},{"childCategoryName":"Lapisan Penyerap & Liner Popok Kain","childCategoryUrl":"https://www.ramaakunting.com/download/beli-lapisan-penyerap-liner-popok-kain/"},{"childCategoryName":"Potty Training","childCategoryUrl":"https://www.ramaakunting.com/download/beli-potty-training/"},{"childCategoryName":"Bangku Langkah","childCategoryUrl":"https://www.ramaakunting.com/download/beli-bangku-langkah/"},{"childCategoryName":"Detergent Laundry","childCategoryUrl":"https://www.ramaakunting.com/download/beli-detergen-popok-kain/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_7_3">
-                <a href="//www.lazada.co.id/beli-susu-formula/">
+                <a href="https://www.ramaakunting.com/download/beli-susu-formula/">
                     <span>Makanan Bayi &amp; Balita</span>
                 </a>
                         <script type="text" class="J_data_6_2">
-                            [{"childCategoryName":"Bayi (0 - 6 bulan)","childCategoryUrl":"//www.lazada.co.id/beli-susu-bayi-0-6-bulan/"},{"childCategoryName":"Bayi (6 - 12 bulan)","childCategoryUrl":"//www.lazada.co.id/beli-susu-bayi-6-12-bulan/"},{"childCategoryName":"Susu Batita (1- dibawah 3 tahun)","childCategoryUrl":"//www.lazada.co.id/jual-susu-batita-1-3-tahun/"},{"childCategoryName":"Susu Pertumbuhan (>3Tahun)","childCategoryUrl":"//www.lazada.co.id/beli-susu-pertumbuhan-1-3-tahun/"},{"childCategoryName":"Nutrisi Khusus Anak","childCategoryUrl":"//www.lazada.co.id/beli-nutrisi-khusus-anak/"},{"childCategoryName":"Minuman","childCategoryUrl":"//www.lazada.co.id/beli-minuman-bayi-balita/"},{"childCategoryName":"Sereal","childCategoryUrl":"//www.lazada.co.id/beli-sereal-bayi-balita/"},{"childCategoryName":"Cracker & Biskuit","childCategoryUrl":"//www.lazada.co.id/beli-cracker-biskuit-bayi-balita/"},{"childCategoryName":"Makanan Ringan","childCategoryUrl":"//www.lazada.co.id/beli-makanan-ringan-bayi-balita/"},{"childCategoryName":"Makanan puree bayi","childCategoryUrl":"//www.lazada.co.id/beli-puree-bayi/"},{"childCategoryName":"Susu Ibu Hamil","childCategoryUrl":"//www.lazada.co.id/beli-susu-maternal/"}]
+                            [{"childCategoryName":"Bayi (0 - 6 bulan)","childCategoryUrl":"https://www.ramaakunting.com/download/beli-susu-bayi-0-6-bulan/"},{"childCategoryName":"Bayi (6 - 12 bulan)","childCategoryUrl":"https://www.ramaakunting.com/download/beli-susu-bayi-6-12-bulan/"},{"childCategoryName":"Susu Batita (1- dibawah 3 tahun)","childCategoryUrl":"https://www.ramaakunting.com/download/jual-susu-batita-1-3-tahun/"},{"childCategoryName":"Susu Pertumbuhan (>3Tahun)","childCategoryUrl":"https://www.ramaakunting.com/download/beli-susu-pertumbuhan-1-3-tahun/"},{"childCategoryName":"Nutrisi Khusus Anak","childCategoryUrl":"https://www.ramaakunting.com/download/beli-nutrisi-khusus-anak/"},{"childCategoryName":"Minuman","childCategoryUrl":"https://www.ramaakunting.com/download/beli-minuman-bayi-balita/"},{"childCategoryName":"Sereal","childCategoryUrl":"https://www.ramaakunting.com/download/beli-sereal-bayi-balita/"},{"childCategoryName":"Cracker & Biskuit","childCategoryUrl":"https://www.ramaakunting.com/download/beli-cracker-biskuit-bayi-balita/"},{"childCategoryName":"Makanan Ringan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-makanan-ringan-bayi-balita/"},{"childCategoryName":"Makanan puree bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-puree-bayi/"},{"childCategoryName":"Susu Ibu Hamil","childCategoryUrl":"https://www.ramaakunting.com/download/beli-susu-maternal/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_7_4">
-                <a href="//www.lazada.co.id/jual-baju-aksesoris-anak/">
+                <a href="https://www.ramaakunting.com/download/jual-baju-aksesoris-anak/">
                     <span>Pakaian &amp; Aksesoris</span>
                 </a>
                         <script type="text" class="J_data_6_3">
-                            [{"childCategoryName":"(0--6 bulan) Set Pakaian","childCategoryUrl":"//www.lazada.co.id/beli-set-pakaian-bayi/"},{"childCategoryName":"(0--6 bulan) Body Suits","childCategoryUrl":"//www.lazada.co.id/beli-bodysuit-one-piece-bayi/"},{"childCategoryName":"(0--6 bulan) Aksesoris","childCategoryUrl":"//www.lazada.co.id/beli-aksesoris-pakaian-anak/"},{"childCategoryName":"Pakaian Bayi Perempuan","childCategoryUrl":"//www.lazada.co.id/beli-pakaian-bayi-perempuan/"},{"childCategoryName":"Dress Bayi Perempuan","childCategoryUrl":"//www.lazada.co.id/beli-dress-bayi-perempuan/"},{"childCategoryName":"Sepatu Bayi Perempuan","childCategoryUrl":"//www.lazada.co.id/beli-sepatu-bayi-perempuan/"},{"childCategoryName":"Aksesoris Bayi Perempuan","childCategoryUrl":"//www.lazada.co.id/beli-aksesoris-bayi-perempuan/"},{"childCategoryName":"Baju Renang Bayi Perempuan","childCategoryUrl":"//www.lazada.co.id/beli-baju-renang-bayi-perempuan/"},{"childCategoryName":"Pakaian Bayi Laki-Laki","childCategoryUrl":"//www.lazada.co.id/beli-pakaian-bayi-laki-laki/"},{"childCategoryName":"Sepatu Bayi Laki-Laki","childCategoryUrl":"//www.lazada.co.id/beli-sepatu-bayi-laki-laki/"},{"childCategoryName":"Aksesoris Bayi Laki-Laki","childCategoryUrl":"//www.lazada.co.id/beli-aksesori-bayi-laki-laki/"},{"childCategoryName":"Baju Renang Bayi Laki-Laki","childCategoryUrl":"//www.lazada.co.id/beli-baju-renang-bayi-laki-laki/"}]
+                            [{"childCategoryName":"(0--6 bulan) Set Pakaian","childCategoryUrl":"https://www.ramaakunting.com/download/beli-set-pakaian-bayi/"},{"childCategoryName":"(0--6 bulan) Body Suits","childCategoryUrl":"https://www.ramaakunting.com/download/beli-bodysuit-one-piece-bayi/"},{"childCategoryName":"(0--6 bulan) Aksesoris","childCategoryUrl":"https://www.ramaakunting.com/download/beli-aksesoris-pakaian-anak/"},{"childCategoryName":"Pakaian Bayi Perempuan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pakaian-bayi-perempuan/"},{"childCategoryName":"Dress Bayi Perempuan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-dress-bayi-perempuan/"},{"childCategoryName":"Sepatu Bayi Perempuan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-sepatu-bayi-perempuan/"},{"childCategoryName":"Aksesoris Bayi Perempuan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-aksesoris-bayi-perempuan/"},{"childCategoryName":"Baju Renang Bayi Perempuan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-baju-renang-bayi-perempuan/"},{"childCategoryName":"Pakaian Bayi Laki-Laki","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pakaian-bayi-laki-laki/"},{"childCategoryName":"Sepatu Bayi Laki-Laki","childCategoryUrl":"https://www.ramaakunting.com/download/beli-sepatu-bayi-laki-laki/"},{"childCategoryName":"Aksesoris Bayi Laki-Laki","childCategoryUrl":"https://www.ramaakunting.com/download/beli-aksesori-bayi-laki-laki/"},{"childCategoryName":"Baju Renang Bayi Laki-Laki","childCategoryUrl":"https://www.ramaakunting.com/download/beli-baju-renang-bayi-laki-laki/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_7_5">
-                <a href="//www.lazada.co.id/beli-makanan-bayi/">
+                <a href="https://www.ramaakunting.com/download/beli-makanan-bayi/">
                     <span>Perlengkapan Menyusui</span>
                 </a>
                         <script type="text" class="J_data_6_4">
-                            [{"childCategoryName":"Botol Bayi","childCategoryUrl":"//www.lazada.co.id/beli-botol-bayi/"},{"childCategoryName":"Botol","childCategoryUrl":"//www.lazada.co.id/beli-botol-bayi-balita/"},{"childCategoryName":"Aksesoris Dot Botol","childCategoryUrl":"//www.lazada.co.id/jual-aksesoris-botol-dot-bayi/"},{"childCategoryName":"Penghangat & Sterilizers","childCategoryUrl":"//www.lazada.co.id/beli-penghangat-sterilizer/"},{"childCategoryName":"Pompa Asi","childCategoryUrl":"//www.lazada.co.id/jual-pompa-asi/"},{"childCategoryName":"Aksesesoris Pompa Asi","childCategoryUrl":"//www.lazada.co.id/jual-aksesoris-pompa-asi/"},{"childCategoryName":"Perawatan Payudara","childCategoryUrl":"//www.lazada.co.id/beli-perawatan-puting/"},{"childCategoryName":"Bantal Menyusui","childCategoryUrl":"//www.lazada.co.id/beli-bantal-kursi-bayi/"},{"childCategoryName":"Kursi Bayi","childCategoryUrl":"//www.lazada.co.id/beli-kursi-tinggi-bayi-kursi-booster/"},{"childCategoryName":"Food Blenders","childCategoryUrl":"//www.lazada.co.id/beli-blender-makanan-bayi/"},{"childCategoryName":"Peralatan Makan Bayi","childCategoryUrl":"//www.lazada.co.id/beli-perlengkapan-makan-bayi-bb/"},{"childCategoryName":"Set Peralatan Makan Bayi","childCategoryUrl":"//www.lazada.co.id/jual-piring-mangkok-bayi/"}]
+                            [{"childCategoryName":"Botol Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-botol-bayi/"},{"childCategoryName":"Botol","childCategoryUrl":"https://www.ramaakunting.com/download/beli-botol-bayi-balita/"},{"childCategoryName":"Aksesoris Dot Botol","childCategoryUrl":"https://www.ramaakunting.com/download/jual-aksesoris-botol-dot-bayi/"},{"childCategoryName":"Penghangat & Sterilizers","childCategoryUrl":"https://www.ramaakunting.com/download/beli-penghangat-sterilizer/"},{"childCategoryName":"Pompa Asi","childCategoryUrl":"https://www.ramaakunting.com/download/jual-pompa-asi/"},{"childCategoryName":"Aksesesoris Pompa Asi","childCategoryUrl":"https://www.ramaakunting.com/download/jual-aksesoris-pompa-asi/"},{"childCategoryName":"Perawatan Payudara","childCategoryUrl":"https://www.ramaakunting.com/download/beli-perawatan-puting/"},{"childCategoryName":"Bantal Menyusui","childCategoryUrl":"https://www.ramaakunting.com/download/beli-bantal-kursi-bayi/"},{"childCategoryName":"Kursi Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kursi-tinggi-bayi-kursi-booster/"},{"childCategoryName":"Food Blenders","childCategoryUrl":"https://www.ramaakunting.com/download/beli-blender-makanan-bayi/"},{"childCategoryName":"Peralatan Makan Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-perlengkapan-makan-bayi-bb/"},{"childCategoryName":"Set Peralatan Makan Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/jual-piring-mangkok-bayi/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_7_6">
-                <a href="//www.lazada.co.id/beli-perlengkapan-berkendara-bayi/">
+                <a href="https://www.ramaakunting.com/download/beli-perlengkapan-berkendara-bayi/">
                     <span>Perlengkapan Bayi</span>
                 </a>
                         <script type="text" class="J_data_6_5">
-                            [{"childCategoryName":"Sling Bayi","childCategoryUrl":"//www.lazada.co.id/beli-sling-bayi/"},{"childCategoryName":"Soft Carrier","childCategoryUrl":"//www.lazada.co.id/beli-soft-carrier/"},{"childCategoryName":"Stroller","childCategoryUrl":"//www.lazada.co.id/beli-kereta-dorong-bayi/"},{"childCategoryName":"Car Seat","childCategoryUrl":"//www.lazada.co.id/beli-car-seat-bb/"},{"childCategoryName":"Playard","childCategoryUrl":"//www.lazada.co.id/beli-playard/"},{"childCategoryName":"Ayunan, Jumper & Bouncer Bayi","childCategoryUrl":"//www.lazada.co.id/beli-ayunan-jumper-bouncer-bayi/"},{"childCategoryName":"Walker","childCategoryUrl":"//www.lazada.co.id/beli-walker/"},{"childCategoryName":"Tempat Duduk & Trailer Sepeda","childCategoryUrl":"//www.lazada.co.id/beli-tempat-duduk-trailer-sepeda/"},{"childCategoryName":"Tas Anak","childCategoryUrl":"//www.lazada.co.id/beli-tas-anak/"},{"childCategoryName":"Koper Anak","childCategoryUrl":"//www.lazada.co.id/beli-koper-anak/"},{"childCategoryName":"Tali & Harness Bayi","childCategoryUrl":"//www.lazada.co.id/beli-tali-harness-bayi/"}]
+                            [{"childCategoryName":"Sling Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-sling-bayi/"},{"childCategoryName":"Soft Carrier","childCategoryUrl":"https://www.ramaakunting.com/download/beli-soft-carrier/"},{"childCategoryName":"Stroller","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kereta-dorong-bayi/"},{"childCategoryName":"Car Seat","childCategoryUrl":"https://www.ramaakunting.com/download/beli-car-seat-bb/"},{"childCategoryName":"Playard","childCategoryUrl":"https://www.ramaakunting.com/download/beli-playard/"},{"childCategoryName":"Ayunan, Jumper & Bouncer Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-ayunan-jumper-bouncer-bayi/"},{"childCategoryName":"Walker","childCategoryUrl":"https://www.ramaakunting.com/download/beli-walker/"},{"childCategoryName":"Tempat Duduk & Trailer Sepeda","childCategoryUrl":"https://www.ramaakunting.com/download/beli-tempat-duduk-trailer-sepeda/"},{"childCategoryName":"Tas Anak","childCategoryUrl":"https://www.ramaakunting.com/download/beli-tas-anak/"},{"childCategoryName":"Koper Anak","childCategoryUrl":"https://www.ramaakunting.com/download/beli-koper-anak/"},{"childCategoryName":"Tali & Harness Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-tali-harness-bayi/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_7_7">
-                <a href="//www.lazada.co.id/jual-perlengkapan-kamar-bayi/">
+                <a href="https://www.ramaakunting.com/download/jual-perlengkapan-kamar-bayi/">
                     <span>Kamar Bayi</span>
                 </a>
                         <script type="text" class="J_data_6_6">
-                            [{"childCategoryName":"Matras Bayi","childCategoryUrl":"//www.lazada.co.id/beli-kasur-seprai-bayi/"},{"childCategoryName":"Selimut Bayi","childCategoryUrl":"//www.lazada.co.id/beli-selimut-bayi/"},{"childCategoryName":"Seprai Keranjang Bayi","childCategoryUrl":"//www.lazada.co.id/beli-seprai-keranjang-bayi/"},{"childCategoryName":"Kelengkapan Alat Tidur Balita","childCategoryUrl":"//www.lazada.co.id/beli-kelengkapan-alat-tidur-balita/"},{"childCategoryName":"Selimut Tebal & Bed Cover Bayi","childCategoryUrl":"//www.lazada.co.id/beli-selimut-tebal-bed-cover-bayi/"},{"childCategoryName":"Bantal, Pelindung & Sarung Bantal Bayi","childCategoryUrl":"//www.lazada.co.id/beli-bantal-pelindung-sarung-bantal-bayi/"},{"childCategoryName":"Furnitur Bayi","childCategoryUrl":"//www.lazada.co.id/beli-furnitur-bayi/"},{"childCategoryName":"Ranjang Bayi","childCategoryUrl":"//www.lazada.co.id/jual-ranjang-bayi/"},{"childCategoryName":"Keranjang Bayi Cradle","childCategoryUrl":"//www.lazada.co.id/beli-keranjang-bayi-cradle/"},{"childCategoryName":"Laci & Lemari Pakaian Bayi","childCategoryUrl":"//www.lazada.co.id/beli-laci-lemari-pakaian-bayi/"},{"childCategoryName":"Penyimpanan","childCategoryUrl":"//www.lazada.co.id/beli-tempat-pengatur-penyimpanan/"},{"childCategoryName":"Dekorasi Kamar Anak","childCategoryUrl":"//www.lazada.co.id/beli-dekorasi-kamar-anak/"}]
+                            [{"childCategoryName":"Matras Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kasur-seprai-bayi/"},{"childCategoryName":"Selimut Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-selimut-bayi/"},{"childCategoryName":"Seprai Keranjang Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-seprai-keranjang-bayi/"},{"childCategoryName":"Kelengkapan Alat Tidur Balita","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kelengkapan-alat-tidur-balita/"},{"childCategoryName":"Selimut Tebal & Bed Cover Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-selimut-tebal-bed-cover-bayi/"},{"childCategoryName":"Bantal, Pelindung & Sarung Bantal Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-bantal-pelindung-sarung-bantal-bayi/"},{"childCategoryName":"Furnitur Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-furnitur-bayi/"},{"childCategoryName":"Ranjang Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/jual-ranjang-bayi/"},{"childCategoryName":"Keranjang Bayi Cradle","childCategoryUrl":"https://www.ramaakunting.com/download/beli-keranjang-bayi-cradle/"},{"childCategoryName":"Laci & Lemari Pakaian Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-laci-lemari-pakaian-bayi/"},{"childCategoryName":"Penyimpanan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-tempat-pengatur-penyimpanan/"},{"childCategoryName":"Dekorasi Kamar Anak","childCategoryUrl":"https://www.ramaakunting.com/download/beli-dekorasi-kamar-anak/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_7_8">
-                <a href="//www.lazada.co.id/beli-perlengkapan-mandi-perawatan-kulit-anak/">
+                <a href="https://www.ramaakunting.com/download/beli-perlengkapan-mandi-perawatan-kulit-anak/">
                     <span>Perawatan Bayi</span>
                 </a>
                         <script type="text" class="J_data_6_7">
-                            [{"childCategoryName":"Perawatan Kulit Bayi","childCategoryUrl":"//www.lazada.co.id/beli-perawatan-kulit-bayi/"},{"childCategoryName":"Sampo & Kondisioner","childCategoryUrl":"//www.lazada.co.id/beli-sampo-kondisioner-bb/"},{"childCategoryName":"Sabun & Pembersih Bayi","childCategoryUrl":"//www.lazada.co.id/beli-sabun-pembersih-bayi/"},{"childCategoryName":"Perawatan Mulut Bayi","childCategoryUrl":"//www.lazada.co.id/beli-sikat-gigi-pasta-gigi-bayi/"},{"childCategoryName":"Sikat Gigi & Pasta Gigi","childCategoryUrl":"//www.lazada.co.id/beli-sikat-gigi-pasta-gigi-bayi/"},{"childCategoryName":"Tempat Duduk & Bak Mandi Bayi","childCategoryUrl":"//www.lazada.co.id/beli-tempat-duduk-bak-mandi-bayi/"},{"childCategoryName":"Lap Mandi & Handuk Bayi","childCategoryUrl":"//www.lazada.co.id/jual-handuk-bayi/"},{"childCategoryName":"Pelindung Matahari Bayi","childCategoryUrl":"//www.lazada.co.id/beli-pelindung-matahari-bayi/"},{"childCategoryName":"Aromaterapi Bayi","childCategoryUrl":"//www.lazada.co.id/beli-aromaterapi-bayi/"},{"childCategoryName":"Perlengkapan Mandi Bayi","childCategoryUrl":"//www.lazada.co.id/beli-perlengkapan-mandi-bayi-bb/"},{"childCategoryName":"Alas Mandi Bayi Anti Slip","childCategoryUrl":"//www.lazada.co.id/beli-alas-mandi-bayi-anti-slip/"}]
+                            [{"childCategoryName":"Perawatan Kulit Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-perawatan-kulit-bayi/"},{"childCategoryName":"Sampo & Kondisioner","childCategoryUrl":"https://www.ramaakunting.com/download/beli-sampo-kondisioner-bb/"},{"childCategoryName":"Sabun & Pembersih Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-sabun-pembersih-bayi/"},{"childCategoryName":"Perawatan Mulut Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-sikat-gigi-pasta-gigi-bayi/"},{"childCategoryName":"Sikat Gigi & Pasta Gigi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-sikat-gigi-pasta-gigi-bayi/"},{"childCategoryName":"Tempat Duduk & Bak Mandi Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-tempat-duduk-bak-mandi-bayi/"},{"childCategoryName":"Lap Mandi & Handuk Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/jual-handuk-bayi/"},{"childCategoryName":"Pelindung Matahari Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pelindung-matahari-bayi/"},{"childCategoryName":"Aromaterapi Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-aromaterapi-bayi/"},{"childCategoryName":"Perlengkapan Mandi Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-perlengkapan-mandi-bayi-bb/"},{"childCategoryName":"Alas Mandi Bayi Anti Slip","childCategoryUrl":"https://www.ramaakunting.com/download/beli-alas-mandi-bayi-anti-slip/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_7_9">
-                <a href="//www.lazada.co.id/beli-mainan-anak/">
+                <a href="https://www.ramaakunting.com/download/beli-mainan-anak/">
                     <span>Mainan</span>
                 </a>
                         <script type="text" class="J_data_6_8">
-                            [{"childCategoryName":"Action Figure & Mainan Koleksi","childCategoryUrl":"//www.lazada.co.id/jual-koleksi-mainan-action-figure/"},{"childCategoryName":"Mainan Koleksi","childCategoryUrl":"//www.lazada.co.id/beli-mainan-koleksi-tg/"},{"childCategoryName":"Mini Figur","childCategoryUrl":"//www.lazada.co.id/beli-mini-figure-tg/"},{"childCategoryName":"Kerajinan Tangan","childCategoryUrl":"//www.lazada.co.id/beli-kerajinan-tangan-kesenian-anak/"},{"childCategoryName":"Mainan Blok","childCategoryUrl":"//www.lazada.co.id/beli-mainan-balok-bangunan/"},{"childCategoryName":"Boneka & Aksesoris","childCategoryUrl":"//www.lazada.co.id/beli-boneka-aksesori/"},{"childCategoryName":"Kostum Pesta","childCategoryUrl":"//www.lazada.co.id/beli-mainan-dress-up/"},{"childCategoryName":"Mainan Edukasi","childCategoryUrl":"//www.lazada.co.id/beli-mainan-pembelajaran-edukasi/"},{"childCategoryName":"Puzzle & Games","childCategoryUrl":"//www.lazada.co.id/beli-permainan-tradisional/"},{"childCategoryName":"Hobi & Hiburan","childCategoryUrl":"//www.lazada.co.id/Shop-Hobbies-Entertainment/"},{"childCategoryName":"Perlengkapan Pesta","childCategoryUrl":"//www.lazada.co.id/beli-perlengkapan-pesta/"}]
+                            [{"childCategoryName":"Action Figure & Mainan Koleksi","childCategoryUrl":"https://www.ramaakunting.com/download/jual-koleksi-mainan-action-figure/"},{"childCategoryName":"Mainan Koleksi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mainan-koleksi-tg/"},{"childCategoryName":"Mini Figur","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mini-figure-tg/"},{"childCategoryName":"Kerajinan Tangan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kerajinan-tangan-kesenian-anak/"},{"childCategoryName":"Mainan Blok","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mainan-balok-bangunan/"},{"childCategoryName":"Boneka & Aksesoris","childCategoryUrl":"https://www.ramaakunting.com/download/beli-boneka-aksesori/"},{"childCategoryName":"Kostum Pesta","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mainan-dress-up/"},{"childCategoryName":"Mainan Edukasi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mainan-pembelajaran-edukasi/"},{"childCategoryName":"Puzzle & Games","childCategoryUrl":"https://www.ramaakunting.com/download/beli-permainan-tradisional/"},{"childCategoryName":"Hobi & Hiburan","childCategoryUrl":"https://www.ramaakunting.com/download/Shop-Hobbies-Entertainment/"},{"childCategoryName":"Perlengkapan Pesta","childCategoryUrl":"https://www.ramaakunting.com/download/beli-perlengkapan-pesta/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_7_10">
-                <a href="//www.lazada.co.id/beli-remote-control-mainan-kendaraan/">
+                <a href="https://www.ramaakunting.com/download/beli-remote-control-mainan-kendaraan/">
                     <span>Mainan Elektronik &amp; RC</span>
                 </a>
                         <script type="text" class="J_data_6_9">
-                            [{"childCategoryName":"Mobil Remote Control","childCategoryUrl":"//www.lazada.co.id/beli-kendaraan-rc-baterai/"},{"childCategoryName":"Robot Remote Control","childCategoryUrl":"//www.lazada.co.id/beli-rc-figure-robot/"},{"childCategoryName":"Mobil Die Cast","childCategoryUrl":"//www.lazada.co.id/beli-kendaraan-die-cast/"},{"childCategoryName":"Mainan Mobil","childCategoryUrl":"//www.lazada.co.id/beli-mainan-kendaraan-tg/"},{"childCategoryName":"Mainan Kereta Api & Rel","childCategoryUrl":"//www.lazada.co.id/beli-set-mainan-kereta/"},{"childCategoryName":"Drone Mainan","childCategoryUrl":"//www.lazada.co.id/beli-drones-quadcopters/"},{"childCategoryName":"Helikopter","childCategoryUrl":"//www.lazada.co.id/beli-mainan-helikopter/"},{"childCategoryName":"Video Games & Hiburan","childCategoryUrl":"//www.lazada.co.id/shop-hiburan-video-game/"},{"childCategoryName":"Walkie Talkies","childCategoryUrl":"//www.lazada.co.id/beli-mainan-walkie-talkie/"}]
+                            [{"childCategoryName":"Mobil Remote Control","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kendaraan-rc-baterai/"},{"childCategoryName":"Robot Remote Control","childCategoryUrl":"https://www.ramaakunting.com/download/beli-rc-figure-robot/"},{"childCategoryName":"Mobil Die Cast","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kendaraan-die-cast/"},{"childCategoryName":"Mainan Mobil","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mainan-kendaraan-tg/"},{"childCategoryName":"Mainan Kereta Api & Rel","childCategoryUrl":"https://www.ramaakunting.com/download/beli-set-mainan-kereta/"},{"childCategoryName":"Drone Mainan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-drones-quadcopters/"},{"childCategoryName":"Helikopter","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mainan-helikopter/"},{"childCategoryName":"Video Games & Hiburan","childCategoryUrl":"https://www.ramaakunting.com/download/shop-hiburan-video-game/"},{"childCategoryName":"Walkie Talkies","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mainan-walkie-talkie/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_7_11">
-                <a href="//www.lazada.co.id/beli-olahraga-permainan-luar-ruangan/">
+                <a href="https://www.ramaakunting.com/download/beli-olahraga-permainan-luar-ruangan/">
                     <span>Mainan Olahraga &amp; Luar Ruangan</span>
                 </a>
                         <script type="text" class="J_data_6_10">
-                            [{"childCategoryName":"Kolam Renang & Mainan Air","childCategoryUrl":"//www.lazada.co.id/beli-mainan-air-kolam-renang/"},{"childCategoryName":"Mainan Olahraga","childCategoryUrl":"//www.lazada.co.id/shop-mainan-baseball-softball/"},{"childCategoryName":"Mainan Luar Ruangan","childCategoryUrl":"//www.lazada.co.id/beli-aktivitas-dan-olahraga-luar-ruangan/"},{"childCategoryName":"Mainan Blaster","childCategoryUrl":"//www.lazada.co.id/beli-mainan-blaster/"},{"childCategoryName":"Kolam Bola & Aksesoris","childCategoryUrl":"//www.lazada.co.id/beli-bola-pit-aksesori/"},{"childCategoryName":"Mainan Terbang","childCategoryUrl":"//www.lazada.co.id/beli-mainan-terbang/"},{"childCategoryName":"Layangan & Kincir Angin","childCategoryUrl":"//www.lazada.co.id/beli-mainan-layang-layang/"},{"childCategoryName":"Istana Balon","childCategoryUrl":"//www.lazada.co.id/beli-balon-loncat-istana-balon/"},{"childCategoryName":"Yoyo & Kendama","childCategoryUrl":"//www.lazada.co.id/beli-yo-yo-kendama/"},{"childCategoryName":"Set Mainan Taman Bermain","childCategoryUrl":"//www.lazada.co.id/beli-set-peralatan-permainan-playground/"},{"childCategoryName":"Kemah & Terowongan Mainan","childCategoryUrl":"//www.lazada.co.id/beli-mainan-tenda-terowongan/"},{"childCategoryName":"Mainan Rumah-rumahan","childCategoryUrl":"//www.lazada.co.id/beli-playhouses/"}]
+                            [{"childCategoryName":"Kolam Renang & Mainan Air","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mainan-air-kolam-renang/"},{"childCategoryName":"Mainan Olahraga","childCategoryUrl":"https://www.ramaakunting.com/download/shop-mainan-baseball-softball/"},{"childCategoryName":"Mainan Luar Ruangan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-aktivitas-dan-olahraga-luar-ruangan/"},{"childCategoryName":"Mainan Blaster","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mainan-blaster/"},{"childCategoryName":"Kolam Bola & Aksesoris","childCategoryUrl":"https://www.ramaakunting.com/download/beli-bola-pit-aksesori/"},{"childCategoryName":"Mainan Terbang","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mainan-terbang/"},{"childCategoryName":"Layangan & Kincir Angin","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mainan-layang-layang/"},{"childCategoryName":"Istana Balon","childCategoryUrl":"https://www.ramaakunting.com/download/beli-balon-loncat-istana-balon/"},{"childCategoryName":"Yoyo & Kendama","childCategoryUrl":"https://www.ramaakunting.com/download/beli-yo-yo-kendama/"},{"childCategoryName":"Set Mainan Taman Bermain","childCategoryUrl":"https://www.ramaakunting.com/download/beli-set-peralatan-permainan-playground/"},{"childCategoryName":"Kemah & Terowongan Mainan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mainan-tenda-terowongan/"},{"childCategoryName":"Mainan Rumah-rumahan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-playhouses/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_7_12">
-                <a href="//www.lazada.co.id/baby-toddler-toys/">
+                <a href="https://www.ramaakunting.com/download/baby-toddler-toys/">
                     <span>Mainan Bayi &amp; Balita</span>
                 </a>
                         <script type="text" class="J_data_6_11">
-                            [{"childCategoryName":"Playgym & Playmat","childCategoryUrl":"//www.lazada.co.id/jual-mainan-gym-anak/"},{"childCategoryName":"Mainan Blok","childCategoryUrl":"//www.lazada.co.id/beli-mainan-balok-bangunan/"},{"childCategoryName":"Mainan Mandi","childCategoryUrl":"//www.lazada.co.id/beli-mainan-mandi-anak-tg/"},{"childCategoryName":"Mainan Tidur Bayi","childCategoryUrl":"//www.lazada.co.id/beli-mainan-keranjang-bayi-perlengkapannya-tg/"},{"childCategoryName":"Mainan Balita","childCategoryUrl":"//www.lazada.co.id/beli-mainan-edukatif-anak-tg/"},{"childCategoryName":"Mainan Musik & Suara","childCategoryUrl":"//www.lazada.co.id/beli-musik-suara-tg/"},{"childCategoryName":"Mainan Tarik Ulur","childCategoryUrl":"//www.lazada.co.id/beli-mainan-dorong-tarik-tg/"},{"childCategoryName":"Mainan Shape Sorting","childCategoryUrl":"//www.lazada.co.id/beli-mainan-shape-sorting-tg/"},{"childCategoryName":"Indoor Climbers & Play Structures","childCategoryUrl":"//www.lazada.co.id/beli-indoor-climbers-play-structure-tg/"},{"childCategoryName":"Rocking & Spring Ride-Ons","childCategoryUrl":"//www.lazada.co.id/beli-rocking-spring-ride-on-tg/"}]
+                            [{"childCategoryName":"Playgym & Playmat","childCategoryUrl":"https://www.ramaakunting.com/download/jual-mainan-gym-anak/"},{"childCategoryName":"Mainan Blok","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mainan-balok-bangunan/"},{"childCategoryName":"Mainan Mandi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mainan-mandi-anak-tg/"},{"childCategoryName":"Mainan Tidur Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mainan-keranjang-bayi-perlengkapannya-tg/"},{"childCategoryName":"Mainan Balita","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mainan-edukatif-anak-tg/"},{"childCategoryName":"Mainan Musik & Suara","childCategoryUrl":"https://www.ramaakunting.com/download/beli-musik-suara-tg/"},{"childCategoryName":"Mainan Tarik Ulur","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mainan-dorong-tarik-tg/"},{"childCategoryName":"Mainan Shape Sorting","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mainan-shape-sorting-tg/"},{"childCategoryName":"Indoor Climbers & Play Structures","childCategoryUrl":"https://www.ramaakunting.com/download/beli-indoor-climbers-play-structure-tg/"},{"childCategoryName":"Rocking & Spring Ride-Ons","childCategoryUrl":"https://www.ramaakunting.com/download/beli-rocking-spring-ride-on-tg/"}]
                         </script>
             </li>
         </ul>
         <ul class="lzd-site-menu-sub Level_1_Category_No8" data-spm="cate_8">
             <li class="lzd-site-menu-sub-item" data-cate="cate_8_1">
-                <a href="//www.lazada.co.id/beli-tv-audio-video-permainan-dan-gadget/">
+                <a href="https://www.ramaakunting.com/download/beli-tv-audio-video-permainan-dan-gadget/">
                     <span>TV &amp; Perangkat Video</span>
                 </a>
                         <script type="text" class="J_data_7_0">
-                            [{"childCategoryName":""},{"childCategoryName":"TV LED","childCategoryUrl":"//www.lazada.co.id/shop-televisi-digital/"},{"childCategoryName":"TV Smart","childCategoryUrl":"//www.lazada.co.id/beli-smart-tv/"},{"childCategoryName":"Blu-Ray/DVD Player","childCategoryUrl":"//www.lazada.co.id/beli-blu-ray-player/"},{"childCategoryName":"Media Player","childCategoryUrl":"//www.lazada.co.id/shop-media-player/"},{"childCategoryName":"Proyektor","childCategoryUrl":"//www.lazada.co.id/beli-proyektor-3/"}]
+                            [{"childCategoryName":""},{"childCategoryName":"TV LED","childCategoryUrl":"https://www.ramaakunting.com/download/shop-televisi-digital/"},{"childCategoryName":"TV Smart","childCategoryUrl":"https://www.ramaakunting.com/download/beli-smart-tv/"},{"childCategoryName":"Blu-Ray/DVD Player","childCategoryUrl":"https://www.ramaakunting.com/download/beli-blu-ray-player/"},{"childCategoryName":"Media Player","childCategoryUrl":"https://www.ramaakunting.com/download/shop-media-player/"},{"childCategoryName":"Proyektor","childCategoryUrl":"https://www.ramaakunting.com/download/beli-proyektor-3/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_8_2">
-                <a href="//www.lazada.co.id/beli-perlengkapan-dapur/">
+                <a href="https://www.ramaakunting.com/download/beli-perlengkapan-dapur/">
                     <span>Peralatan Dapur Kecil</span>
                 </a>
                         <script type="text" class="J_data_7_1">
-                            [{"childCategoryName":""},{"childCategoryName":"Rice Cooker","childCategoryUrl":"//www.lazada.co.id/beli-rice-cooker/"},{"childCategoryName":"Blender, Mixer & Grinder","childCategoryUrl":"//www.lazada.co.id/beli-blender-mixer-juicer/"},{"childCategoryName":"Kompor Gas","childCategoryUrl":"//www.lazada.co.id/beli-kompor-gas/"},{"childCategoryName":"Teko Listrik","childCategoryUrl":"//www.lazada.co.id/beli-ketel-elektrik-2/"},{"childCategoryName":"Juicer","childCategoryUrl":"//www.lazada.co.id/beli-juicer-pengekstrak-buah/"},{"childCategoryName":"Mesin Kopi","childCategoryUrl":"//www.lazada.co.id/beli-mesin-kopi/"},{"childCategoryName":"Air Fryer","childCategoryUrl":"//www.lazada.co.id/beli-air-fryers/"},{"childCategoryName":"Peralatan Dapur Lainnya","childCategoryUrl":"//www.lazada.co.id/shop-ska-lainnya/"}]
+                            [{"childCategoryName":""},{"childCategoryName":"Rice Cooker","childCategoryUrl":"https://www.ramaakunting.com/download/beli-rice-cooker/"},{"childCategoryName":"Blender, Mixer & Grinder","childCategoryUrl":"https://www.ramaakunting.com/download/beli-blender-mixer-juicer/"},{"childCategoryName":"Kompor Gas","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kompor-gas/"},{"childCategoryName":"Teko Listrik","childCategoryUrl":"https://www.ramaakunting.com/download/beli-ketel-elektrik-2/"},{"childCategoryName":"Juicer","childCategoryUrl":"https://www.ramaakunting.com/download/beli-juicer-pengekstrak-buah/"},{"childCategoryName":"Mesin Kopi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mesin-kopi/"},{"childCategoryName":"Air Fryer","childCategoryUrl":"https://www.ramaakunting.com/download/beli-air-fryers/"},{"childCategoryName":"Peralatan Dapur Lainnya","childCategoryUrl":"https://www.ramaakunting.com/download/shop-ska-lainnya/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_8_3">
-                <a href="//www.lazada.co.id/shop-perlatan-besar/">
+                <a href="https://www.ramaakunting.com/download/shop-perlatan-besar/">
                     <span>Elektronik Rumah Besar</span>
                 </a>
                         <script type="text" class="J_data_7_2">
-                            [{"childCategoryName":""},{"childCategoryName":"Mesin Cuci","childCategoryUrl":"//www.lazada.co.id/beli-mesin-cuci/"},{"childCategoryName":"Kulkas","childCategoryUrl":"//www.lazada.co.id/beli-lemari-es/"},{"childCategoryName":"Microwave","childCategoryUrl":"//www.lazada.co.id/beli-microwave/"},{"childCategoryName":"Oven","childCategoryUrl":"//www.lazada.co.id/beli-ovens/"},{"childCategoryName":"Dispenser Air Minum","childCategoryUrl":"//www.lazada.co.id/beli-dispenser-air/"},{"childCategoryName":"AC","childCategoryUrl":"//www.lazada.co.id/beli-ac/"},{"childCategoryName":"Pemanas Air","childCategoryUrl":"//www.lazada.co.id/beli-pemanas-air/"}]
+                            [{"childCategoryName":""},{"childCategoryName":"Mesin Cuci","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mesin-cuci/"},{"childCategoryName":"Kulkas","childCategoryUrl":"https://www.ramaakunting.com/download/beli-lemari-es/"},{"childCategoryName":"Microwave","childCategoryUrl":"https://www.ramaakunting.com/download/beli-microwave/"},{"childCategoryName":"Oven","childCategoryUrl":"https://www.ramaakunting.com/download/beli-ovens/"},{"childCategoryName":"Dispenser Air Minum","childCategoryUrl":"https://www.ramaakunting.com/download/beli-dispenser-air/"},{"childCategoryName":"AC","childCategoryUrl":"https://www.ramaakunting.com/download/beli-ac/"},{"childCategoryName":"Pemanas Air","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pemanas-air/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_8_4">
-                <a href="//www.lazada.co.id/shop-pendingin-pembersih-udara-mini/">
+                <a href="https://www.ramaakunting.com/download/shop-pendingin-pembersih-udara-mini/">
                     <span>Penyejuk dan Pembersih Udara</span>
                 </a>
                         <script type="text" class="J_data_7_3">
-                            [{"childCategoryName":""},{"childCategoryName":"Kipas Angin","childCategoryUrl":"//www.lazada.co.id/shop-kipas/"},{"childCategoryName":"Air Cooler","childCategoryUrl":"//www.lazada.co.id/beli-pendingin-udara-2/"},{"childCategoryName":"Air Purifier","childCategoryUrl":"//www.lazada.co.id/beli-penjernih-udara-2/"},{"childCategoryName":"Humidifier","childCategoryUrl":"//www.lazada.co.id/beli-humidifier/"},{"childCategoryName":"Dehumidifier","childCategoryUrl":"//www.lazada.co.id/beli-dehumidifier/"}]
+                            [{"childCategoryName":""},{"childCategoryName":"Kipas Angin","childCategoryUrl":"https://www.ramaakunting.com/download/shop-kipas/"},{"childCategoryName":"Air Cooler","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pendingin-udara-2/"},{"childCategoryName":"Air Purifier","childCategoryUrl":"https://www.ramaakunting.com/download/beli-penjernih-udara-2/"},{"childCategoryName":"Humidifier","childCategoryUrl":"https://www.ramaakunting.com/download/beli-humidifier/"},{"childCategoryName":"Dehumidifier","childCategoryUrl":"https://www.ramaakunting.com/download/beli-dehumidifier/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_8_5">
-                <a href="//www.lazada.co.id/beli-perawatan-lantai/">
+                <a href="https://www.ramaakunting.com/download/beli-perawatan-lantai/">
                     <span>Penghisap Debu &amp; Perawatan Lantai</span>
                 </a>
                         <script type="text" class="J_data_7_4">
-                            [{"childCategoryName":""},{"childCategoryName":"Penghisap Debu","childCategoryUrl":"//www.lazada.co.id/shop-penyedot-debu/"},{"childCategoryName":"Penghisap Debu Robotik","childCategoryUrl":"//www.lazada.co.id/shop-penyedot-debu-robot/"},{"childCategoryName":"Penghisap Debu dengan Tongkat","childCategoryUrl":"//www.lazada.co.id/shop-penyedot-debu-tongkat/"}]
+                            [{"childCategoryName":""},{"childCategoryName":"Penghisap Debu","childCategoryUrl":"https://www.ramaakunting.com/download/shop-penyedot-debu/"},{"childCategoryName":"Penghisap Debu Robotik","childCategoryUrl":"https://www.ramaakunting.com/download/shop-penyedot-debu-robot/"},{"childCategoryName":"Penghisap Debu dengan Tongkat","childCategoryUrl":"https://www.ramaakunting.com/download/shop-penyedot-debu-tongkat/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_8_6">
-                <a href="//www.lazada.co.id/shop-peralatan-perawatan-personal/">
+                <a href="https://www.ramaakunting.com/download/shop-peralatan-perawatan-personal/">
                     <span>Alat Perawatan Diri</span>
                 </a>
                         <script type="text" class="J_data_7_5">
-                            [{"childCategoryName":""},{"childCategoryName":"Hair Dryer","childCategoryUrl":"//www.lazada.co.id/beli-pengering-rambut/"},{"childCategoryName":"Alat Penata Rambut","childCategoryUrl":"//www.lazada.co.id/beli-perlengkapan-styling-rambut/"},{"childCategoryName":"Shaver & Pencukur Kumis Jenggot","childCategoryUrl":"//www.lazada.co.id/beli-shaver/"},{"childCategoryName":"Sikat Gigi Elektrik","childCategoryUrl":"//www.lazada.co.id/beli-sikat-gigi-elektrik/"}]
+                            [{"childCategoryName":""},{"childCategoryName":"Hair Dryer","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pengering-rambut/"},{"childCategoryName":"Alat Penata Rambut","childCategoryUrl":"https://www.ramaakunting.com/download/beli-perlengkapan-styling-rambut/"},{"childCategoryName":"Shaver & Pencukur Kumis Jenggot","childCategoryUrl":"https://www.ramaakunting.com/download/beli-shaver/"},{"childCategoryName":"Sikat Gigi Elektrik","childCategoryUrl":"https://www.ramaakunting.com/download/beli-sikat-gigi-elektrik/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_8_7">
-                <a href="//www.lazada.co.id/jual-aksesoris-elektronik-rumah-tangga/">
+                <a href="https://www.ramaakunting.com/download/jual-aksesoris-elektronik-rumah-tangga/">
                     <span>Aksesoris &amp; Suku Cadang</span>
                 </a>
                         <script type="text" class="J_data_7_6">
-                            [{"childCategoryName":""},{"childCategoryName":"Suku Cadang & Aksesoris Peralatan Dapur Kecil","childCategoryUrl":"//www.lazada.co.id/beli-aksesoris-blender-dan-mixer/"},{"childCategoryName":"Suku Cadang & Aksesoris AC","childCategoryUrl":"//www.lazada.co.id/beli-suku-cadang-aksesoris-ac/"},{"childCategoryName":"Suku Cadang & Aksesoris Mesin Cuci","childCategoryUrl":"//www.lazada.co.id/beli-aksesoris-mesin-cuci-dan-pengering-pakaian/"},{"childCategoryName":"Suku Cadang & Filter Pengganti","childCategoryUrl":"//www.lazada.co.id/beli-filter-air/"},{"childCategoryName":"Suku Cadang & Filter Penghisap Debu","childCategoryUrl":"//www.lazada.co.id/beli-suku-kadang-aksesoris-vacuum-cleaner/"}]
+                            [{"childCategoryName":""},{"childCategoryName":"Suku Cadang & Aksesoris Peralatan Dapur Kecil","childCategoryUrl":"https://www.ramaakunting.com/download/beli-aksesoris-blender-dan-mixer/"},{"childCategoryName":"Suku Cadang & Aksesoris AC","childCategoryUrl":"https://www.ramaakunting.com/download/beli-suku-cadang-aksesoris-ac/"},{"childCategoryName":"Suku Cadang & Aksesoris Mesin Cuci","childCategoryUrl":"https://www.ramaakunting.com/download/beli-aksesoris-mesin-cuci-dan-pengering-pakaian/"},{"childCategoryName":"Suku Cadang & Filter Pengganti","childCategoryUrl":"https://www.ramaakunting.com/download/beli-filter-air/"},{"childCategoryName":"Suku Cadang & Filter Penghisap Debu","childCategoryUrl":"https://www.ramaakunting.com/download/beli-suku-kadang-aksesoris-vacuum-cleaner/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_8_8">
-                <a href="//www.lazada.co.id/jual-aksesoris-televisi/">
+                <a href="https://www.ramaakunting.com/download/jual-aksesoris-televisi/">
                     <span>Aksesoris Televisi</span>
                 </a>
                         <script type="text" class="J_data_7_7">
-                            [{"childCategoryName":""},{"childCategoryName":"TV Box","childCategoryUrl":"//www.lazada.co.id/jual-tv-receiver/"},{"childCategoryName":"Antena TV","childCategoryUrl":"//www.lazada.co.id/jual-antena-tv/"},{"childCategoryName":"Bracket Dinding TV & Pelindung","childCategoryUrl":"//www.lazada.co.id/jual-bracket-dinding-tv/"},{"childCategoryName":"Remote Control TV","childCategoryUrl":"//www.lazada.co.id/jual-remote-control-tv/"},{"childCategoryName":"Kabel TV","childCategoryUrl":"//www.lazada.co.id/jual-kabel-tv/"},{"childCategoryName":"Adaptor TV","childCategoryUrl":"//www.lazada.co.id/jual-adaptor-tv/"},{"childCategoryName":"Kacamata 3D TV","childCategoryUrl":"//www.lazada.co.id/jual-kacamata-3d-tv/"}]
+                            [{"childCategoryName":""},{"childCategoryName":"TV Box","childCategoryUrl":"https://www.ramaakunting.com/download/jual-tv-receiver/"},{"childCategoryName":"Antena TV","childCategoryUrl":"https://www.ramaakunting.com/download/jual-antena-tv/"},{"childCategoryName":"Bracket Dinding TV & Pelindung","childCategoryUrl":"https://www.ramaakunting.com/download/jual-bracket-dinding-tv/"},{"childCategoryName":"Remote Control TV","childCategoryUrl":"https://www.ramaakunting.com/download/jual-remote-control-tv/"},{"childCategoryName":"Kabel TV","childCategoryUrl":"https://www.ramaakunting.com/download/jual-kabel-tv/"},{"childCategoryName":"Adaptor TV","childCategoryUrl":"https://www.ramaakunting.com/download/jual-adaptor-tv/"},{"childCategoryName":"Kacamata 3D TV","childCategoryUrl":"https://www.ramaakunting.com/download/jual-kacamata-3d-tv/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_8_9">
-                <a href="//www.lazada.co.id/jual-home-entertainment/">
+                <a href="https://www.ramaakunting.com/download/jual-home-entertainment/">
                     <span>Home Entertainment</span>
                 </a>
                         <script type="text" class="J_data_7_8">
-                            [{"childCategoryName":""},{"childCategoryName":"Soundbar","childCategoryUrl":"//www.lazada.co.id/jual-soundbar/"},{"childCategoryName":"Sistem Karaoke","childCategoryUrl":"//www.lazada.co.id/jual-sistem-karaoke/"},{"childCategoryName":"Sistem Hi-Fi","childCategoryUrl":"//www.lazada.co.id/jual-sistem-hi-fi/"},{"childCategoryName":"Sound System Panggung","childCategoryUrl":"//www.lazada.co.id/sound-system-panggung/"},{"childCategoryName":"Player Portabel","childCategoryUrl":"//www.lazada.co.id/beli-audio-player/"}]
+                            [{"childCategoryName":""},{"childCategoryName":"Soundbar","childCategoryUrl":"https://www.ramaakunting.com/download/jual-soundbar/"},{"childCategoryName":"Sistem Karaoke","childCategoryUrl":"https://www.ramaakunting.com/download/jual-sistem-karaoke/"},{"childCategoryName":"Sistem Hi-Fi","childCategoryUrl":"https://www.ramaakunting.com/download/jual-sistem-hi-fi/"},{"childCategoryName":"Sound System Panggung","childCategoryUrl":"https://www.ramaakunting.com/download/sound-system-panggung/"},{"childCategoryName":"Player Portabel","childCategoryUrl":"https://www.ramaakunting.com/download/beli-audio-player/"}]
                         </script>
             </li>
         </ul>
         <ul class="lzd-site-menu-sub Level_1_Category_No9" data-spm="cate_9">
             <li class="lzd-site-menu-sub-item" data-cate="cate_9_1">
-                <a href="//www.lazada.co.id/beli-dekorasi-rumah/">
+                <a href="https://www.ramaakunting.com/download/beli-dekorasi-rumah/">
                     <span>Dekorasi Rumah</span>
                 </a>
                         <script type="text" class="J_data_8_0">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Stiker Dinding","childCategoryUrl":"//www.lazada.co.id/beli-stiker-dinding/"},{"childCategoryName":"Gorden","childCategoryUrl":"//www.lazada.co.id/gorden-dan-kerai/"},{"childCategoryName":"Tikar & Karpet","childCategoryUrl":"//www.lazada.co.id/beli-tikar-karpet/"},{"childCategoryName":"Hiasan Dinding","childCategoryUrl":"//www.lazada.co.id/beli-hiasan-dinding/"},{"childCategoryName":"Dekorasi Aksen","childCategoryUrl":"//www.lazada.co.id/shop-aksesoris-dekor/"},{"childCategoryName":"Bunga & Tanaman Artifisial","childCategoryUrl":"//www.lazada.co.id/beli-bunga-tanaman-artifisial/"},{"childCategoryName":"Jam","childCategoryUrl":"//www.lazada.co.id/beli-jam/"},{"childCategoryName":"Dalaman & Sarung Bantal","childCategoryUrl":"//www.lazada.co.id/shop-dalaman-sarung-bantal/"},{"childCategoryName":"Bingkai","childCategoryUrl":"//www.lazada.co.id/beli-bingkai/"},{"childCategoryName":"Wewangian Rumah","childCategoryUrl":"//www.lazada.co.id/beli-wewangian-rumah/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Stiker Dinding","childCategoryUrl":"https://www.ramaakunting.com/download/beli-stiker-dinding/"},{"childCategoryName":"Gorden","childCategoryUrl":"https://www.ramaakunting.com/download/gorden-dan-kerai/"},{"childCategoryName":"Tikar & Karpet","childCategoryUrl":"https://www.ramaakunting.com/download/beli-tikar-karpet/"},{"childCategoryName":"Hiasan Dinding","childCategoryUrl":"https://www.ramaakunting.com/download/beli-hiasan-dinding/"},{"childCategoryName":"Dekorasi Aksen","childCategoryUrl":"https://www.ramaakunting.com/download/shop-aksesoris-dekor/"},{"childCategoryName":"Bunga & Tanaman Artifisial","childCategoryUrl":"https://www.ramaakunting.com/download/beli-bunga-tanaman-artifisial/"},{"childCategoryName":"Jam","childCategoryUrl":"https://www.ramaakunting.com/download/beli-jam/"},{"childCategoryName":"Dalaman & Sarung Bantal","childCategoryUrl":"https://www.ramaakunting.com/download/shop-dalaman-sarung-bantal/"},{"childCategoryName":"Bingkai","childCategoryUrl":"https://www.ramaakunting.com/download/beli-bingkai/"},{"childCategoryName":"Wewangian Rumah","childCategoryUrl":"https://www.ramaakunting.com/download/beli-wewangian-rumah/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_9_2">
-                <a href="//www.lazada.co.id/beli-furnitur/">
+                <a href="https://www.ramaakunting.com/download/beli-furnitur/">
                     <span>Furnitur</span>
                 </a>
                         <script type="text" class="J_data_8_1">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Tempat Penyimpanan","childCategoryUrl":"//www.lazada.co.id/beli-tempat-penyimpanan/"},{"childCategoryName":"Lemari Pakaian","childCategoryUrl":"//www.lazada.co.id/beli-lemari-pakaian/"},{"childCategoryName":"Kasur","childCategoryUrl":"//www.lazada.co.id/beli-kasur/"},{"childCategoryName":"Kamar Tidur","childCategoryUrl":"//www.lazada.co.id/beli-furnitur-kamar-tidur/"},{"childCategoryName":"Rak","childCategoryUrl":"//www.lazada.co.id/rak/"},{"childCategoryName":"Rak TV dan Media","childCategoryUrl":"//www.lazada.co.id/tempat-penyimpanan-media-dan-tv/"},{"childCategoryName":"Sofa","childCategoryUrl":"//www.lazada.co.id/beli-sofa/"},{"childCategoryName":"Ruang Tamu","childCategoryUrl":"//www.lazada.co.id/beli-furnitur-ruang-tamu/"},{"childCategoryName":"Ruang Kerja Rumah","childCategoryUrl":"//www.lazada.co.id/beli-furnitur-ruang-kerja-rumah/"},{"childCategoryName":"Dapur & Ruang Makan","childCategoryUrl":"//www.lazada.co.id/beli-furnitur-dapur-ruang-makan/"},{"childCategoryName":"Ruang Bayi","childCategoryUrl":"//www.lazada.co.id/beli-furnitur-ruang-bayi/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Tempat Penyimpanan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-tempat-penyimpanan/"},{"childCategoryName":"Lemari Pakaian","childCategoryUrl":"https://www.ramaakunting.com/download/beli-lemari-pakaian/"},{"childCategoryName":"Kasur","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kasur/"},{"childCategoryName":"Kamar Tidur","childCategoryUrl":"https://www.ramaakunting.com/download/beli-furnitur-kamar-tidur/"},{"childCategoryName":"Rak","childCategoryUrl":"https://www.ramaakunting.com/download/rak/"},{"childCategoryName":"Rak TV dan Media","childCategoryUrl":"https://www.ramaakunting.com/download/tempat-penyimpanan-media-dan-tv/"},{"childCategoryName":"Sofa","childCategoryUrl":"https://www.ramaakunting.com/download/beli-sofa/"},{"childCategoryName":"Ruang Tamu","childCategoryUrl":"https://www.ramaakunting.com/download/beli-furnitur-ruang-tamu/"},{"childCategoryName":"Ruang Kerja Rumah","childCategoryUrl":"https://www.ramaakunting.com/download/beli-furnitur-ruang-kerja-rumah/"},{"childCategoryName":"Dapur & Ruang Makan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-furnitur-dapur-ruang-makan/"},{"childCategoryName":"Ruang Bayi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-furnitur-ruang-bayi/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_9_3">
-                <a href="//www.lazada.co.id/beli-peralatan-ranjang/">
+                <a href="https://www.ramaakunting.com/download/beli-peralatan-ranjang/">
                     <span>Kelengkapan Tempat Tidur</span>
                 </a>
                         <script type="text" class="J_data_8_2">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Seprai","childCategoryUrl":"//www.lazada.co.id/seprei-ranjang/"},{"childCategoryName":"Seprai Set","childCategoryUrl":"//www.lazada.co.id/perangkat-seprei/"},{"childCategoryName":"Selimut","childCategoryUrl":"//www.lazada.co.id/selimut-dan-selimut-panjang/"},{"childCategoryName":"Bantal","childCategoryUrl":"//www.lazada.co.id/beli-bantal/"},{"childCategoryName":"Aksesoris Tempat Tidur","childCategoryUrl":"//www.lazada.co.id/beli-aksesoris-ranjang/"},{"childCategoryName":"Sarung Bantal","childCategoryUrl":"//www.lazada.co.id/beli-sarung-bantal/"},{"childCategoryName":"Selimut Tebal","childCategoryUrl":"//www.lazada.co.id/seprei-dan-selimut-tebal/"},{"childCategoryName":"Pelindung Kasur","childCategoryUrl":"//www.lazada.co.id/kasur-pelindung/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Seprai","childCategoryUrl":"https://www.ramaakunting.com/download/seprei-ranjang/"},{"childCategoryName":"Seprai Set","childCategoryUrl":"https://www.ramaakunting.com/download/perangkat-seprei/"},{"childCategoryName":"Selimut","childCategoryUrl":"https://www.ramaakunting.com/download/selimut-dan-selimut-panjang/"},{"childCategoryName":"Bantal","childCategoryUrl":"https://www.ramaakunting.com/download/beli-bantal/"},{"childCategoryName":"Aksesoris Tempat Tidur","childCategoryUrl":"https://www.ramaakunting.com/download/beli-aksesoris-ranjang/"},{"childCategoryName":"Sarung Bantal","childCategoryUrl":"https://www.ramaakunting.com/download/beli-sarung-bantal/"},{"childCategoryName":"Selimut Tebal","childCategoryUrl":"https://www.ramaakunting.com/download/seprei-dan-selimut-tebal/"},{"childCategoryName":"Pelindung Kasur","childCategoryUrl":"https://www.ramaakunting.com/download/kasur-pelindung/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_9_4">
-                <a href="//www.lazada.co.id/penerangan/">
+                <a href="https://www.ramaakunting.com/download/penerangan/">
                     <span>Penerangan</span>
                 </a>
                         <script type="text" class="J_data_8_3">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Bohlam Lampu","childCategoryUrl":"//www.lazada.co.id/shop-bohlam-lampu/"},{"childCategoryName":"Lampu Khusus","childCategoryUrl":"//www.lazada.co.id/beli-lampu-khusus/"},{"childCategoryName":"Lampu Langit-langit","childCategoryUrl":"//www.lazada.co.id/beli-lampu-langit-langit-hias/"},{"childCategoryName":"Penerangan Outdoor","childCategoryUrl":"//www.lazada.co.id/beli-penerangan-outdoor/"},{"childCategoryName":"Lampu Dinding & Tempel","childCategoryUrl":"//www.lazada.co.id/beli-lampu-dinding-tempel/"},{"childCategoryName":"Lampu Meja","childCategoryUrl":"//www.lazada.co.id/beli-lampu-meja/"},{"childCategoryName":"Komponen Lampu","childCategoryUrl":"//www.lazada.co.id/beli-lampu-komponen/"},{"childCategoryName":"Kap Lampu","childCategoryUrl":"//www.lazada.co.id/kap-lampu/"},{"childCategoryName":"Lampu Lantai","childCategoryUrl":"//www.lazada.co.id/beli-lampu-lantai/"},{"childCategoryName":"Lampu Rechargeable & Senter","childCategoryUrl":"//www.lazada.co.id/beli-senter/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Bohlam Lampu","childCategoryUrl":"https://www.ramaakunting.com/download/shop-bohlam-lampu/"},{"childCategoryName":"Lampu Khusus","childCategoryUrl":"https://www.ramaakunting.com/download/beli-lampu-khusus/"},{"childCategoryName":"Lampu Langit-langit","childCategoryUrl":"https://www.ramaakunting.com/download/beli-lampu-langit-langit-hias/"},{"childCategoryName":"Penerangan Outdoor","childCategoryUrl":"https://www.ramaakunting.com/download/beli-penerangan-outdoor/"},{"childCategoryName":"Lampu Dinding & Tempel","childCategoryUrl":"https://www.ramaakunting.com/download/beli-lampu-dinding-tempel/"},{"childCategoryName":"Lampu Meja","childCategoryUrl":"https://www.ramaakunting.com/download/beli-lampu-meja/"},{"childCategoryName":"Komponen Lampu","childCategoryUrl":"https://www.ramaakunting.com/download/beli-lampu-komponen/"},{"childCategoryName":"Kap Lampu","childCategoryUrl":"https://www.ramaakunting.com/download/kap-lampu/"},{"childCategoryName":"Lampu Lantai","childCategoryUrl":"https://www.ramaakunting.com/download/beli-lampu-lantai/"},{"childCategoryName":"Lampu Rechargeable & Senter","childCategoryUrl":"https://www.ramaakunting.com/download/beli-senter/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_9_5">
-                <a href="//www.lazada.co.id/beli-peralatan-mandi/">
+                <a href="https://www.ramaakunting.com/download/beli-peralatan-mandi/">
                     <span>Peralatan Mandi</span>
                 </a>
                         <script type="text" class="J_data_8_4">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Handuk Mandi","childCategoryUrl":"//www.lazada.co.id/beli-handuk-mandi/"},{"childCategoryName":"Timbangan Kamar Mandi","childCategoryUrl":"//www.lazada.co.id/beli-timbangan-kamar-mandi/"},{"childCategoryName":"Wadah Penyimpanan Kamar Mandi","childCategoryUrl":"//www.lazada.co.id/beli-tempat-penyimpan-kamar-mandi/"},{"childCategoryName":"Rak Kamar Mandi","childCategoryUrl":"//www.lazada.co.id/jual-laci-kamar-mandi/"},{"childCategoryName":"Gantungan Handuk & Penghangat","childCategoryUrl":"//www.lazada.co.id/gantungan-handuk-dan-penghangat/"},{"childCategoryName":"Tempat & Gantungan Shower","childCategoryUrl":"//www.lazada.co.id/tempat-dan-gantungan-shower/"},{"childCategoryName":"Keset Kamar Mandi","childCategoryUrl":"//www.lazada.co.id/beli-alas-mandi/"},{"childCategoryName":"Jubah & Kimono Mandi","childCategoryUrl":"//www.lazada.co.id/beli-jubah-mandi/"},{"childCategoryName":"Tirai Shower","childCategoryUrl":"//www.lazada.co.id/shop-tirai-mandi-aksesoris/"},{"childCategoryName":"Cermin Kamar Mandi","childCategoryUrl":"//www.lazada.co.id/beli-cermin-kamar-mandi/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Handuk Mandi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-handuk-mandi/"},{"childCategoryName":"Timbangan Kamar Mandi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-timbangan-kamar-mandi/"},{"childCategoryName":"Wadah Penyimpanan Kamar Mandi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-tempat-penyimpan-kamar-mandi/"},{"childCategoryName":"Rak Kamar Mandi","childCategoryUrl":"https://www.ramaakunting.com/download/jual-laci-kamar-mandi/"},{"childCategoryName":"Gantungan Handuk & Penghangat","childCategoryUrl":"https://www.ramaakunting.com/download/gantungan-handuk-dan-penghangat/"},{"childCategoryName":"Tempat & Gantungan Shower","childCategoryUrl":"https://www.ramaakunting.com/download/tempat-dan-gantungan-shower/"},{"childCategoryName":"Keset Kamar Mandi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-alas-mandi/"},{"childCategoryName":"Jubah & Kimono Mandi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-jubah-mandi/"},{"childCategoryName":"Tirai Shower","childCategoryUrl":"https://www.ramaakunting.com/download/shop-tirai-mandi-aksesoris/"},{"childCategoryName":"Cermin Kamar Mandi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-cermin-kamar-mandi/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_9_6">
-                <a href="//www.lazada.co.id/beli-perlengkapan-dapur-makan/">
+                <a href="https://www.ramaakunting.com/download/beli-perlengkapan-dapur-makan/">
                     <span>Alat Dapur</span>
                 </a>
                         <script type="text" class="J_data_8_5">
-                            [{"childCategoryName":"Botol minum","childCategoryUrl":"//www.lazada.co.id/botol-minum/"},{"childCategoryName":"Tempat Penyimpanan Makanan","childCategoryUrl":"//www.lazada.co.id/beli-wadah-penyimpan-makanan/"},{"childCategoryName":"Alas Meja & Aksesoris Dapur","childCategoryUrl":"//www.lazada.co.id/beli-alas-meja-aksesoris-dapur/"},{"childCategoryName":"Kopi & Teh","childCategoryUrl":"//www.lazada.co.id/beli-kopi-dan-teh/"},{"childCategoryName":"Rak Piring & Aksesoris Wastafel","childCategoryUrl":"//www.lazada.co.id/beli-rak-piring-aksesoris-bak/"},{"childCategoryName":"Panci & Wajan","childCategoryUrl":"//www.lazada.co.id/beli-peralatan-masak/"},{"childCategoryName":"Perangkat Minum","childCategoryUrl":"//www.lazada.co.id/beli-perangkat-minum-gelas/"},{"childCategoryName":"Perangkat Makan","childCategoryUrl":"//www.lazada.co.id/beli-peralatan-penyajian-makanan/"},{"childCategoryName":"Perangkat Pemanggang","childCategoryUrl":"//www.lazada.co.id/beli-perangkat-pemanggang/"},{"childCategoryName":"Perangkat Penyajian","childCategoryUrl":"//www.lazada.co.id/beli-perangkat-penyaji/"},{"childCategoryName":"Pisau & Aksesoris","childCategoryUrl":"//www.lazada.co.id/beli-pisau-dan-aksesoris/"},{"childCategoryName":"Alat Dapur Lainnya","childCategoryUrl":"//www.lazada.co.id/beli-peralatan-dapur/"}]
+                            [{"childCategoryName":"Botol minum","childCategoryUrl":"https://www.ramaakunting.com/download/botol-minum/"},{"childCategoryName":"Tempat Penyimpanan Makanan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-wadah-penyimpan-makanan/"},{"childCategoryName":"Alas Meja & Aksesoris Dapur","childCategoryUrl":"https://www.ramaakunting.com/download/beli-alas-meja-aksesoris-dapur/"},{"childCategoryName":"Kopi & Teh","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kopi-dan-teh/"},{"childCategoryName":"Rak Piring & Aksesoris Wastafel","childCategoryUrl":"https://www.ramaakunting.com/download/beli-rak-piring-aksesoris-bak/"},{"childCategoryName":"Panci & Wajan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-peralatan-masak/"},{"childCategoryName":"Perangkat Minum","childCategoryUrl":"https://www.ramaakunting.com/download/beli-perangkat-minum-gelas/"},{"childCategoryName":"Perangkat Makan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-peralatan-penyajian-makanan/"},{"childCategoryName":"Perangkat Pemanggang","childCategoryUrl":"https://www.ramaakunting.com/download/beli-perangkat-pemanggang/"},{"childCategoryName":"Perangkat Penyajian","childCategoryUrl":"https://www.ramaakunting.com/download/beli-perangkat-penyaji/"},{"childCategoryName":"Pisau & Aksesoris","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pisau-dan-aksesoris/"},{"childCategoryName":"Alat Dapur Lainnya","childCategoryUrl":"https://www.ramaakunting.com/download/beli-peralatan-dapur/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_9_7">
-                <a href="//www.lazada.co.id/beli-binatu-kebersihan/">
+                <a href="https://www.ramaakunting.com/download/beli-binatu-kebersihan/">
                     <span>Binatu &amp; Alat Kebersihan</span>
                 </a>
                         <script type="text" class="J_data_8_6">
-                            [{"childCategoryName":"Gantungan Baju","childCategoryUrl":"//www.lazada.co.id/gantungan-baju/"},{"childCategoryName":"Keranjang Baju","childCategoryUrl":"//www.lazada.co.id/keranjang-cucian/"},{"childCategoryName":"Jemuran Pakaian","childCategoryUrl":"//www.lazada.co.id/rak-pengering/"},{"childCategoryName":"Alat Binatu & Setrika","childCategoryUrl":"//www.lazada.co.id/beli-alat-binatu-setrika/"},{"childCategoryName":"Meja Setrika","childCategoryUrl":"//www.lazada.co.id/papan-setrika/"},{"childCategoryName":"Produk Kebersihan","childCategoryUrl":"//www.lazada.co.id/beli-makanan-minuman-pembersihan/"},{"childCategoryName":"Sapu & Alat Pel","childCategoryUrl":"//www.lazada.co.id/beli-sapu-pel/"},{"childCategoryName":"Lap Kain Penghilang Debu","childCategoryUrl":"//www.lazada.co.id/shop-Sapu-Sikat-Kemoceng/"},{"childCategoryName":"Sikat Pembersih","childCategoryUrl":"//www.lazada.co.id/beli-makanan-minuman-aksesoris-pembersih/"},{"childCategoryName":"Tempat Sampah","childCategoryUrl":"//www.lazada.co.id/tempat-sampah/"}]
+                            [{"childCategoryName":"Gantungan Baju","childCategoryUrl":"https://www.ramaakunting.com/download/gantungan-baju/"},{"childCategoryName":"Keranjang Baju","childCategoryUrl":"https://www.ramaakunting.com/download/keranjang-cucian/"},{"childCategoryName":"Jemuran Pakaian","childCategoryUrl":"https://www.ramaakunting.com/download/rak-pengering/"},{"childCategoryName":"Alat Binatu & Setrika","childCategoryUrl":"https://www.ramaakunting.com/download/beli-alat-binatu-setrika/"},{"childCategoryName":"Meja Setrika","childCategoryUrl":"https://www.ramaakunting.com/download/papan-setrika/"},{"childCategoryName":"Produk Kebersihan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-makanan-minuman-pembersihan/"},{"childCategoryName":"Sapu & Alat Pel","childCategoryUrl":"https://www.ramaakunting.com/download/beli-sapu-pel/"},{"childCategoryName":"Lap Kain Penghilang Debu","childCategoryUrl":"https://www.ramaakunting.com/download/shop-Sapu-Sikat-Kemoceng/"},{"childCategoryName":"Sikat Pembersih","childCategoryUrl":"https://www.ramaakunting.com/download/beli-makanan-minuman-aksesoris-pembersih/"},{"childCategoryName":"Tempat Sampah","childCategoryUrl":"https://www.ramaakunting.com/download/tempat-sampah/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_9_8">
-                <a href="//www.lazada.co.id/beli-perawatan-rumah/">
+                <a href="https://www.ramaakunting.com/download/beli-perawatan-rumah/">
                     <span>Perkakas &amp; Perbaikan Rumah</span>
                 </a>
                         <script type="text" class="J_data_8_7">
-                            [{"childCategoryName":"Alat Penyimpanan & Rak","childCategoryUrl":"//www.lazada.co.id/beli-garasi-penyimpanan-alat-alat/"},{"childCategoryName":"Kabel & Perlengkapan Elektrik","childCategoryUrl":"//www.lazada.co.id/beli-peralatan-elektrik/"},{"childCategoryName":"Pengecatan & Dekorasi","childCategoryUrl":"//www.lazada.co.id/beli-pengecatan-dekorasi/"},{"childCategoryName":"Perkakas","childCategoryUrl":"//www.lazada.co.id/beli-perkakas/"},{"childCategoryName":"Perkakas Listrik","childCategoryUrl":"//www.lazada.co.id/jual-perkakas-listrik/"},{"childCategoryName":"Perkakas Portabel","childCategoryUrl":"//www.lazada.co.id/beli-peralatan-genggam/"},{"childCategoryName":"Pipa Saluran Air & Kelengkapan","childCategoryUrl":"//www.lazada.co.id/beli-ledeng/"},{"childCategoryName":"Senter","childCategoryUrl":"//www.lazada.co.id/beli-senter"},{"childCategoryName":"Tangga & Kursi Peninggi","childCategoryUrl":"//www.lazada.co.id/beli-tangga-kursi-peninggi/"},{"childCategoryName":"perlengkapan keamanan","childCategoryUrl":"//www.lazada.co.id/lampu-penerangan-tempat-kerja/"}]
+                            [{"childCategoryName":"Alat Penyimpanan & Rak","childCategoryUrl":"https://www.ramaakunting.com/download/beli-garasi-penyimpanan-alat-alat/"},{"childCategoryName":"Kabel & Perlengkapan Elektrik","childCategoryUrl":"https://www.ramaakunting.com/download/beli-peralatan-elektrik/"},{"childCategoryName":"Pengecatan & Dekorasi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pengecatan-dekorasi/"},{"childCategoryName":"Perkakas","childCategoryUrl":"https://www.ramaakunting.com/download/beli-perkakas/"},{"childCategoryName":"Perkakas Listrik","childCategoryUrl":"https://www.ramaakunting.com/download/jual-perkakas-listrik/"},{"childCategoryName":"Perkakas Portabel","childCategoryUrl":"https://www.ramaakunting.com/download/beli-peralatan-genggam/"},{"childCategoryName":"Pipa Saluran Air & Kelengkapan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-ledeng/"},{"childCategoryName":"Senter","childCategoryUrl":"https://www.ramaakunting.com/download/beli-senter"},{"childCategoryName":"Tangga & Kursi Peninggi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-tangga-kursi-peninggi/"},{"childCategoryName":"perlengkapan keamanan","childCategoryUrl":"https://www.ramaakunting.com/download/lampu-penerangan-tempat-kerja/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_9_9">
-                <a href="//www.lazada.co.id/Kebun &amp; Luar Ruangan/">
+                <a href="https://www.ramaakunting.com/download/Kebun &amp; Luar Ruangan/">
                     <span>Kebun &amp; Luar Ruangan</span>
                 </a>
                         <script type="text" class="J_data_8_8">
-                            [{"childCategoryName":"Peralatan Listrik Taman & Kebun","childCategoryUrl":"//www.lazada.co.id/beli-peralatan-listrik-taman-luar-ruangan/"},{"childCategoryName":"Peralatan Kebun","childCategoryUrl":"//www.lazada.co.id/beli-peralatan-kebun/"},{"childCategoryName":"Sistem Pengairan","childCategoryUrl":"//www.lazada.co.id/beli-sistem-pengairan/"},{"childCategoryName":"Bibit & Biji Bijian","childCategoryUrl":"//www.lazada.co.id/beli-tumbuhan-biji-bijian/"},{"childCategoryName":"Pembasmi Hama","childCategoryUrl":"//www.lazada.co.id/beli-pembasmi-rumput-liar-hama/"},{"childCategoryName":"Aksesoris Genset","childCategoryUrl":"//www.lazada.co.id/beli-aksesoris-peralatan-listrik-luar-ruangan/"},{"childCategoryName":"Genset","childCategoryUrl":"//www.lazada.co.id/shop-generator/"},{"childCategoryName":"Pemanggang","childCategoryUrl":"//www.lazada.co.id/pemanggang-dan-penyajian-masakan-outdoor/"},{"childCategoryName":"Alat Pembunuh Serangga","childCategoryUrl":"//www.lazada.co.id/alat-pembunuh-serangga/"},{"childCategoryName":"Aksesoris Luar Ruangan","childCategoryUrl":"//www.lazada.co.id/beli-luar-ruangan/"},{"childCategoryName":"Taman & Kebun","childCategoryUrl":"//www.lazada.co.id/perlengkapan-taman-dan-kebun/"},{"childCategoryName":"","childCategoryUrl":""}]
+                            [{"childCategoryName":"Peralatan Listrik Taman & Kebun","childCategoryUrl":"https://www.ramaakunting.com/download/beli-peralatan-listrik-taman-luar-ruangan/"},{"childCategoryName":"Peralatan Kebun","childCategoryUrl":"https://www.ramaakunting.com/download/beli-peralatan-kebun/"},{"childCategoryName":"Sistem Pengairan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-sistem-pengairan/"},{"childCategoryName":"Bibit & Biji Bijian","childCategoryUrl":"https://www.ramaakunting.com/download/beli-tumbuhan-biji-bijian/"},{"childCategoryName":"Pembasmi Hama","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pembasmi-rumput-liar-hama/"},{"childCategoryName":"Aksesoris Genset","childCategoryUrl":"https://www.ramaakunting.com/download/beli-aksesoris-peralatan-listrik-luar-ruangan/"},{"childCategoryName":"Genset","childCategoryUrl":"https://www.ramaakunting.com/download/shop-generator/"},{"childCategoryName":"Pemanggang","childCategoryUrl":"https://www.ramaakunting.com/download/pemanggang-dan-penyajian-masakan-outdoor/"},{"childCategoryName":"Alat Pembunuh Serangga","childCategoryUrl":"https://www.ramaakunting.com/download/alat-pembunuh-serangga/"},{"childCategoryName":"Aksesoris Luar Ruangan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-luar-ruangan/"},{"childCategoryName":"Taman & Kebun","childCategoryUrl":"https://www.ramaakunting.com/download/perlengkapan-taman-dan-kebun/"},{"childCategoryName":"","childCategoryUrl":""}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_9_10">
-                <a href="//www.lazada.co.id/beli-alat-tulis-kerajinan/">
+                <a href="https://www.ramaakunting.com/download/beli-alat-tulis-kerajinan/">
                     <span>Alat Tulis &amp; Kerajinan</span>
                 </a>
                         <script type="text" class="J_data_8_9">
-                            [{"childCategoryName":"Peralatan Kesenian dan Kerajinan","childCategoryUrl":"//www.lazada.co.id/beli-peralatan-seni/"},{"childCategoryName":"Peralatan Mewarnai dan Copic","childCategoryUrl":"//www.lazada.co.id/beli-alat-mewarnai-copic/"},{"childCategoryName":"Kerajinan Umum","childCategoryUrl":"//www.lazada.co.id/beli-alat-kerajinan-umum/"},{"childCategoryName":"Pernak Pernik Hadiah dan Kado","childCategoryUrl":"//www.lazada.co.id/beli-pernak-pernik-hadiah/"},{"childCategoryName":"Tas Belanja","childCategoryUrl":"//www.lazada.co.id/beli-tas-belanjaan/"},{"childCategoryName":"Buku Catatan","childCategoryUrl":"//www.lazada.co.id/buku-catatan/"},{"childCategoryName":"Kertas Komputer","childCategoryUrl":"//www.lazada.co.id/beli-kertas-komputer/"},{"childCategoryName":"Perlengkapan Sekolah","childCategoryUrl":"//www.lazada.co.id/beli-perlengkapan-sekolah/"},{"childCategoryName":"Perlengkapan Meja Kerja","childCategoryUrl":"//www.lazada.co.id/beli-wadah-alat-alat-kantor/"},{"childCategoryName":"Perlengkapan Jahit","childCategoryUrl":"//www.lazada.co.id/beli-bahan-bahan-kerajinan-tangan/"},{"childCategoryName":"Pulpen","childCategoryUrl":"//www.lazada.co.id/beli-pulpen/"},{"childCategoryName":"Pensil","childCategoryUrl":"//www.lazada.co.id/beli-pensil-2/"}]
+                            [{"childCategoryName":"Peralatan Kesenian dan Kerajinan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-peralatan-seni/"},{"childCategoryName":"Peralatan Mewarnai dan Copic","childCategoryUrl":"https://www.ramaakunting.com/download/beli-alat-mewarnai-copic/"},{"childCategoryName":"Kerajinan Umum","childCategoryUrl":"https://www.ramaakunting.com/download/beli-alat-kerajinan-umum/"},{"childCategoryName":"Pernak Pernik Hadiah dan Kado","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pernak-pernik-hadiah/"},{"childCategoryName":"Tas Belanja","childCategoryUrl":"https://www.ramaakunting.com/download/beli-tas-belanjaan/"},{"childCategoryName":"Buku Catatan","childCategoryUrl":"https://www.ramaakunting.com/download/buku-catatan/"},{"childCategoryName":"Kertas Komputer","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kertas-komputer/"},{"childCategoryName":"Perlengkapan Sekolah","childCategoryUrl":"https://www.ramaakunting.com/download/beli-perlengkapan-sekolah/"},{"childCategoryName":"Perlengkapan Meja Kerja","childCategoryUrl":"https://www.ramaakunting.com/download/beli-wadah-alat-alat-kantor/"},{"childCategoryName":"Perlengkapan Jahit","childCategoryUrl":"https://www.ramaakunting.com/download/beli-bahan-bahan-kerajinan-tangan/"},{"childCategoryName":"Pulpen","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pulpen/"},{"childCategoryName":"Pensil","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pensil-2/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_9_11">
-                <a href="//www.lazada.co.id/beli-media-musik-dan-buku/">
+                <a href="https://www.ramaakunting.com/download/beli-media-musik-dan-buku/">
                     <span>Media, Musik &amp; Buku</span>
                 </a>
                         <script type="text" class="J_data_8_10">
-                            [{"childCategoryName":"Instrumen Musik","childCategoryUrl":"//www.lazada.co.id/instrumen-musik/"},{"childCategoryName":"Buku","childCategoryUrl":"//www.lazada.co.id/buku/"},{"childCategoryName":"Musik","childCategoryUrl":"//www.lazada.co.id/lagu/"},{"childCategoryName":"Majalah","childCategoryUrl":"//www.lazada.co.id/majalah/"},{"childCategoryName":"Film","childCategoryUrl":"//www.lazada.co.id/film/"}]
+                            [{"childCategoryName":"Instrumen Musik","childCategoryUrl":"https://www.ramaakunting.com/download/instrumen-musik/"},{"childCategoryName":"Buku","childCategoryUrl":"https://www.ramaakunting.com/download/buku/"},{"childCategoryName":"Musik","childCategoryUrl":"https://www.ramaakunting.com/download/lagu/"},{"childCategoryName":"Majalah","childCategoryUrl":"https://www.ramaakunting.com/download/majalah/"},{"childCategoryName":"Film","childCategoryUrl":"https://www.ramaakunting.com/download/film/"}]
                         </script>
             </li>
         </ul>
         <ul class="lzd-site-menu-sub Level_1_Category_No10" data-spm="cate_10">
             <li class="lzd-site-menu-sub-item" data-cate="cate_10_1">
-                <a href="//www.lazada.co.id/beli-minuman/">
+                <a href="https://www.ramaakunting.com/download/beli-minuman/">
                     <span>Minuman</span>
                 </a>
                         <script type="text" class="J_data_9_0">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"UHT, Susu & Susu Bubuk","childCategoryUrl":"//www.lazada.co.id/beli-makanan-minuman-uht-milk-milk-powder/"},{"childCategoryName":"Kopi","childCategoryUrl":"//www.lazada.co.id/beli-kopi/"},{"childCategoryName":"Minuman Serbuk","childCategoryUrl":"//www.lazada.co.id/beli-minuman-serbuk/"},{"childCategoryName":"Minuman Berenergi","childCategoryUrl":"//www.lazada.co.id/shop-Minuman-Olahraga-Energi/"},{"childCategoryName":"Teh","childCategoryUrl":"//www.lazada.co.id/beli-teh/"},{"childCategoryName":"Chocolate, Malt & Hot Cereals","childCategoryUrl":"//www.lazada.co.id/coklat-panas/"},{"childCategoryName":"Air Mineral","childCategoryUrl":"//www.lazada.co.id/beli-makanan-minuman-air/"},{"childCategoryName":"Minuman Berkarbonasi","childCategoryUrl":"//www.lazada.co.id/beli-makanan-minuman-minuman-ringan/"},{"childCategoryName":"Jus","childCategoryUrl":"//www.lazada.co.id/beli-makanan-minuman-jus/"},{"childCategoryName":"Sirup","childCategoryUrl":"//www.lazada.co.id/beli-sirup/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"UHT, Susu & Susu Bubuk","childCategoryUrl":"https://www.ramaakunting.com/download/beli-makanan-minuman-uht-milk-milk-powder/"},{"childCategoryName":"Kopi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kopi/"},{"childCategoryName":"Minuman Serbuk","childCategoryUrl":"https://www.ramaakunting.com/download/beli-minuman-serbuk/"},{"childCategoryName":"Minuman Berenergi","childCategoryUrl":"https://www.ramaakunting.com/download/shop-Minuman-Olahraga-Energi/"},{"childCategoryName":"Teh","childCategoryUrl":"https://www.ramaakunting.com/download/beli-teh/"},{"childCategoryName":"Chocolate, Malt & Hot Cereals","childCategoryUrl":"https://www.ramaakunting.com/download/coklat-panas/"},{"childCategoryName":"Air Mineral","childCategoryUrl":"https://www.ramaakunting.com/download/beli-makanan-minuman-air/"},{"childCategoryName":"Minuman Berkarbonasi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-makanan-minuman-minuman-ringan/"},{"childCategoryName":"Jus","childCategoryUrl":"https://www.ramaakunting.com/download/beli-makanan-minuman-jus/"},{"childCategoryName":"Sirup","childCategoryUrl":"https://www.ramaakunting.com/download/beli-sirup/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_10_2">
-                <a href="//www.lazada.co.id/shop-Bahan-Utama-Pelengkap-Masakan">
+                <a href="https://www.ramaakunting.com/download/shop-Bahan-Utama-Pelengkap-Masakan">
                     <span>Bahan &amp; Bumbu Masakan</span>
                 </a>
                         <script type="text" class="J_data_9_1">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Makanan Instant & Siap santap","childCategoryUrl":"//www.lazada.co.id/shop-Makanan-Instan-Siap-Santap/"},{"childCategoryName":"Bahan Pembuat Kue","childCategoryUrl":"//www.lazada.co.id/shop-Bahan-Pembuat-Kue/"},{"childCategoryName":"Beras","childCategoryUrl":"//www.lazada.co.id/shop-Beras/"},{"childCategoryName":"Garam & Bumbu Dapur","childCategoryUrl":"//www.lazada.co.id/shop-Bumbu-Dapur/"},{"childCategoryName":"Mie & Bihun","childCategoryUrl":"//www.lazada.co.id/shop-Mi-Bihun/"},{"childCategoryName":"Makanan Kering","childCategoryUrl":"//www.lazada.co.id/shop-Makanan-Kering/"},{"childCategoryName":"Minyak","childCategoryUrl":"//www.lazada.co.id/shop-Minyak/"},{"childCategoryName":"Makanan Kaleng","childCategoryUrl":"//www.lazada.co.id/shop-Makanan-Kaleng/"},{"childCategoryName":"Pasta","childCategoryUrl":"//www.lazada.co.id/shop-Pasta/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Makanan Instant & Siap santap","childCategoryUrl":"https://www.ramaakunting.com/download/shop-Makanan-Instan-Siap-Santap/"},{"childCategoryName":"Bahan Pembuat Kue","childCategoryUrl":"https://www.ramaakunting.com/download/shop-Bahan-Pembuat-Kue/"},{"childCategoryName":"Beras","childCategoryUrl":"https://www.ramaakunting.com/download/shop-Beras/"},{"childCategoryName":"Garam & Bumbu Dapur","childCategoryUrl":"https://www.ramaakunting.com/download/shop-Bumbu-Dapur/"},{"childCategoryName":"Mie & Bihun","childCategoryUrl":"https://www.ramaakunting.com/download/shop-Mi-Bihun/"},{"childCategoryName":"Makanan Kering","childCategoryUrl":"https://www.ramaakunting.com/download/shop-Makanan-Kering/"},{"childCategoryName":"Minyak","childCategoryUrl":"https://www.ramaakunting.com/download/shop-Minyak/"},{"childCategoryName":"Makanan Kaleng","childCategoryUrl":"https://www.ramaakunting.com/download/shop-Makanan-Kaleng/"},{"childCategoryName":"Pasta","childCategoryUrl":"https://www.ramaakunting.com/download/shop-Pasta/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_10_3">
-                <a href="//www.lazada.co.id/shop-Cokelat-Camilan-Permen/">
+                <a href="https://www.ramaakunting.com/download/shop-Cokelat-Camilan-Permen/">
                     <span>Cokelat, Camilan &amp; Permen</span>
                 </a>
                         <script type="text" class="J_data_9_2">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Camilan","childCategoryUrl":"//www.lazada.co.id/shop-Camilan/"},{"childCategoryName":"Cokelat","childCategoryUrl":"//www.lazada.co.id/shop-Cokelat/"},{"childCategoryName":"Biskuit & Kerupuk","childCategoryUrl":"//www.lazada.co.id/shop-Biskuit-Manis/"},{"childCategoryName":"Permen","childCategoryUrl":"//www.lazada.co.id/shop-Manisan/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Camilan","childCategoryUrl":"https://www.ramaakunting.com/download/shop-Camilan/"},{"childCategoryName":"Cokelat","childCategoryUrl":"https://www.ramaakunting.com/download/shop-Cokelat/"},{"childCategoryName":"Biskuit & Kerupuk","childCategoryUrl":"https://www.ramaakunting.com/download/shop-Biskuit-Manis/"},{"childCategoryName":"Permen","childCategoryUrl":"https://www.ramaakunting.com/download/shop-Manisan/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_10_4">
-                <a href="//www.lazada.co.id/beli-makanan-sarapan">
+                <a href="https://www.ramaakunting.com/download/beli-makanan-sarapan">
                     <span>Makanan Sarapan, Sereal &amp; Selai</span>
                 </a>
                         <script type="text" class="J_data_9_3">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Selai & Madu","childCategoryUrl":"//www.lazada.co.id/beli-makanan-minuman-selai-madu-spread/"},{"childCategoryName":"Oatmeal","childCategoryUrl":"//www.lazada.co.id/beli-oatmeal/"},{"childCategoryName":"Sereal Sarapan","childCategoryUrl":"//www.lazada.co.id/beli-sereal/"},{"childCategoryName":"Tepung Pancake & Waffle","childCategoryUrl":"//www.lazada.co.id/beli-pancake-waffle/"},{"childCategoryName":"Bars","childCategoryUrl":"//www.lazada.co.id/shop-bar/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Selai & Madu","childCategoryUrl":"https://www.ramaakunting.com/download/beli-makanan-minuman-selai-madu-spread/"},{"childCategoryName":"Oatmeal","childCategoryUrl":"https://www.ramaakunting.com/download/beli-oatmeal/"},{"childCategoryName":"Sereal Sarapan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-sereal/"},{"childCategoryName":"Tepung Pancake & Waffle","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pancake-waffle/"},{"childCategoryName":"Bars","childCategoryUrl":"https://www.ramaakunting.com/download/shop-bar/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_10_5">
-                <a href="//www.lazada.co.id/beli-makanan-minuman-hasil-segar">
+                <a href="https://www.ramaakunting.com/download/beli-makanan-minuman-hasil-segar">
                     <span>Buah &amp; Sayur</span>
                 </a>
                         <script type="text" class="J_data_9_4">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Buah Segar","childCategoryUrl":"//www.lazada.co.id/beli-makanan-minuman-buah/"},{"childCategoryName":"Sayur Segar","childCategoryUrl":"//www.lazada.co.id/beli-makanan-minuman-sayuran-segar/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Buah Segar","childCategoryUrl":"https://www.ramaakunting.com/download/beli-makanan-minuman-buah/"},{"childCategoryName":"Sayur Segar","childCategoryUrl":"https://www.ramaakunting.com/download/beli-makanan-minuman-sayuran-segar/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_10_6">
-                <a href="//www.lazada.co.id/shop-kebutuhan-rumah-tangga">
+                <a href="https://www.ramaakunting.com/download/shop-kebutuhan-rumah-tangga">
                     <span>Kebutuhan Rumah Tangga</span>
                 </a>
                         <script type="text" class="J_data_9_5">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Pengharum Ruangan","childCategoryUrl":"//www.lazada.co.id/shop-perawatan-udara/"},{"childCategoryName":"Kebutuhan Kebersihan","childCategoryUrl":"//www.lazada.co.id/beli-makanan-minuman-pembersihan/"},{"childCategoryName":"Pengendalian Hama","childCategoryUrl":"//www.lazada.co.id/beli-makanan-minuman-pengendalian-hama/"},{"childCategoryName":"Sabun Pencuci Piring","childCategoryUrl":"//www.lazada.co.id/beli-makanan-minuman-mencuci-piring/"},{"childCategoryName":"Kebutuhan Laundry","childCategoryUrl":"//www.lazada.co.id/beli-makanan-minuman-cucian/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Pengharum Ruangan","childCategoryUrl":"https://www.ramaakunting.com/download/shop-perawatan-udara/"},{"childCategoryName":"Kebutuhan Kebersihan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-makanan-minuman-pembersihan/"},{"childCategoryName":"Pengendalian Hama","childCategoryUrl":"https://www.ramaakunting.com/download/beli-makanan-minuman-pengendalian-hama/"},{"childCategoryName":"Sabun Pencuci Piring","childCategoryUrl":"https://www.ramaakunting.com/download/beli-makanan-minuman-mencuci-piring/"},{"childCategoryName":"Kebutuhan Laundry","childCategoryUrl":"https://www.ramaakunting.com/download/beli-makanan-minuman-cucian/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_10_7">
-                <a href="//www.lazada.co.id/shop-makanan-hewan">
+                <a href="https://www.ramaakunting.com/download/shop-makanan-hewan">
                     <span>Makanan Hewan Peliharaan</span>
                 </a>
                         <script type="text" class="J_data_9_6">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Makanan & Camilan Kucing","childCategoryUrl":"//www.lazada.co.id/jual-makanan-kucing/"},{"childCategoryName":"Makanan Burung","childCategoryUrl":"//www.lazada.co.id/beli-makanan-burung/"},{"childCategoryName":"Makanan Ikan","childCategoryUrl":"//www.lazada.co.id/beli-makanan-ikan/"},{"childCategoryName":"Makanan & Camilan Anjing","childCategoryUrl":"//www.lazada.co.id/jual-makanan-anjing/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Makanan & Camilan Kucing","childCategoryUrl":"https://www.ramaakunting.com/download/jual-makanan-kucing/"},{"childCategoryName":"Makanan Burung","childCategoryUrl":"https://www.ramaakunting.com/download/beli-makanan-burung/"},{"childCategoryName":"Makanan Ikan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-makanan-ikan/"},{"childCategoryName":"Makanan & Camilan Anjing","childCategoryUrl":"https://www.ramaakunting.com/download/jual-makanan-anjing/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_10_8">
-                <a href="//www.lazada.co.id/shop-aksesoris-hewan">
+                <a href="https://www.ramaakunting.com/download/shop-aksesoris-hewan">
                     <span>Aksesoris Hewan Peliharaan</span>
                 </a>
                         <script type="text" class="J_data_9_7">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Keperluan Akuarium","childCategoryUrl":"//www.lazada.co.id/shop-keperluan-akuarium/"},{"childCategoryName":"Kandang & Aksesoris","childCategoryUrl":"//www.lazada.co.id/beli-kandang-terbuka-pintu-anjing/"},{"childCategoryName":"Peralatan Grooming","childCategoryUrl":"//www.lazada.co.id/jual-persediaan-grooming-hewan/"},{"childCategoryName":"Rumah,Alas & Tempat tidur","childCategoryUrl":"//www.lazada.co.id/beli-ranjang-alas-tidur-rumah-anjing/"},{"childCategoryName":"Alat Makan Hewan","childCategoryUrl":"//www.lazada.co.id/beli-mangkuk-makan-anjing/"},{"childCategoryName":"Tali dan Kalung Hewan","childCategoryUrl":"//www.lazada.co.id/beli-tali-kalung-moncong-anjing/"},{"childCategoryName":"Kebutuhan Travel Hewan","childCategoryUrl":"//www.lazada.co.id/beli-pengangkut-perjalanan-anjing/"},{"childCategoryName":"Mainan Hewan","childCategoryUrl":"//www.lazada.co.id/shop-mainan/"},{"childCategoryName":"Alat Pelatihan Anjing","childCategoryUrl":"//www.lazada.co.id/beli-alat-latih-olahraga-anjing/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Keperluan Akuarium","childCategoryUrl":"https://www.ramaakunting.com/download/shop-keperluan-akuarium/"},{"childCategoryName":"Kandang & Aksesoris","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kandang-terbuka-pintu-anjing/"},{"childCategoryName":"Peralatan Grooming","childCategoryUrl":"https://www.ramaakunting.com/download/jual-persediaan-grooming-hewan/"},{"childCategoryName":"Rumah,Alas & Tempat tidur","childCategoryUrl":"https://www.ramaakunting.com/download/beli-ranjang-alas-tidur-rumah-anjing/"},{"childCategoryName":"Alat Makan Hewan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-mangkuk-makan-anjing/"},{"childCategoryName":"Tali dan Kalung Hewan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-tali-kalung-moncong-anjing/"},{"childCategoryName":"Kebutuhan Travel Hewan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pengangkut-perjalanan-anjing/"},{"childCategoryName":"Mainan Hewan","childCategoryUrl":"https://www.ramaakunting.com/download/shop-mainan/"},{"childCategoryName":"Alat Pelatihan Anjing","childCategoryUrl":"https://www.ramaakunting.com/download/beli-alat-latih-olahraga-anjing/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_10_9">
-                <a href="//www.lazada.co.id/shop-kesehatan-hewan-peliharaan">
+                <a href="https://www.ramaakunting.com/download/shop-kesehatan-hewan-peliharaan">
                     <span>Kesehatan Hewan Peliharaan</span>
                 </a>
                         <script type="text" class="J_data_9_8">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Perawatan Gigi","childCategoryUrl":"//www.lazada.co.id/beli-kesehatan-gigi-anjing/"},{"childCategoryName":"Pembasmi Kutu Hewan","childCategoryUrl":"//www.lazada.co.id/beli-kutu-anjing/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Perawatan Gigi","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kesehatan-gigi-anjing/"},{"childCategoryName":"Pembasmi Kutu Hewan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-kutu-anjing/"}]
                         </script>
             </li>
         </ul>
         <ul class="lzd-site-menu-sub Level_1_Category_No11" data-spm="cate_11">
             <li class="lzd-site-menu-sub-item" data-cate="cate_11_1">
-                <a href="//www.lazada.co.id/baju-olahraga-pria/">
+                <a href="https://www.ramaakunting.com/download/baju-olahraga-pria/">
                     <span>Baju Olahraga Pria</span>
                 </a>
                         <script type="text" class="J_data_10_0">
-                            [{"childCategoryName":"Celana Olahraga Pria","childCategoryUrl":"//www.lazada.co.id/celana-panjang-dan-pendek-olahraga-pria/"},{"childCategoryName":"Kaos Olahraga Pria","childCategoryUrl":"//www.lazada.co.id/kaos-olahraga-pria/"},{"childCategoryName":"Jaket Olahraga Pria","childCategoryUrl":"//www.lazada.co.id/jaket-dan-parka-olahraga-pria/"},{"childCategoryName":"Pakaian Renang Pria","childCategoryUrl":"//www.lazada.co.id/pakaian-renang-dan-selancar-pria/"},{"childCategoryName":"Jersey Olahraga Pria","childCategoryUrl":"//www.lazada.co.id/jual-jersey-olahraga-pria/"},{"childCategoryName":"Celana Pendek Pria","childCategoryUrl":"//www.lazada.co.id/jual-celana-pendek-olahraga-pria/"},{"childCategoryName":"Hoodies Pria","childCategoryUrl":"//www.lazada.co.id/hoodies-pria/"},{"childCategoryName":"Topi Olahraga Pria","childCategoryUrl":"//www.lazada.co.id/jual-topi-olahraga-pria/"},{"childCategoryName":"Tas Ransel Sport Pria","childCategoryUrl":"//www.lazada.co.id/tas-ransel-sport-pria/"},{"childCategoryName":"Tas Serut Pria","childCategoryUrl":"//www.lazada.co.id/tas-serut-pria/"},{"childCategoryName":"Tas Duffel Pria","childCategoryUrl":"//www.lazada.co.id/tas-duffel-pria/"},{"childCategoryName":"Gym Tote Pria","childCategoryUrl":"//www.lazada.co.id/gym-tote-pria/"}]
+                            [{"childCategoryName":"Celana Olahraga Pria","childCategoryUrl":"https://www.ramaakunting.com/download/celana-panjang-dan-pendek-olahraga-pria/"},{"childCategoryName":"Kaos Olahraga Pria","childCategoryUrl":"https://www.ramaakunting.com/download/kaos-olahraga-pria/"},{"childCategoryName":"Jaket Olahraga Pria","childCategoryUrl":"https://www.ramaakunting.com/download/jaket-dan-parka-olahraga-pria/"},{"childCategoryName":"Pakaian Renang Pria","childCategoryUrl":"https://www.ramaakunting.com/download/pakaian-renang-dan-selancar-pria/"},{"childCategoryName":"Jersey Olahraga Pria","childCategoryUrl":"https://www.ramaakunting.com/download/jual-jersey-olahraga-pria/"},{"childCategoryName":"Celana Pendek Pria","childCategoryUrl":"https://www.ramaakunting.com/download/jual-celana-pendek-olahraga-pria/"},{"childCategoryName":"Hoodies Pria","childCategoryUrl":"https://www.ramaakunting.com/download/hoodies-pria/"},{"childCategoryName":"Topi Olahraga Pria","childCategoryUrl":"https://www.ramaakunting.com/download/jual-topi-olahraga-pria/"},{"childCategoryName":"Tas Ransel Sport Pria","childCategoryUrl":"https://www.ramaakunting.com/download/tas-ransel-sport-pria/"},{"childCategoryName":"Tas Serut Pria","childCategoryUrl":"https://www.ramaakunting.com/download/tas-serut-pria/"},{"childCategoryName":"Tas Duffel Pria","childCategoryUrl":"https://www.ramaakunting.com/download/tas-duffel-pria/"},{"childCategoryName":"Gym Tote Pria","childCategoryUrl":"https://www.ramaakunting.com/download/gym-tote-pria/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_11_2">
-                <a href="//www.lazada.co.id/pakaian-olahraga-wanita/">
+                <a href="https://www.ramaakunting.com/download/pakaian-olahraga-wanita/">
                     <span>Baju Olahraga Wanita</span>
                 </a>
                         <script type="text" class="J_data_10_1">
-                            [{"childCategoryName":"Celana Panjang Wanita","childCategoryUrl":"//www.lazada.co.id/celana-panjang-dan-pendek-olahraga-wanita/"},{"childCategoryName":"Kaos Olahraga Wanita","childCategoryUrl":"//www.lazada.co.id/kaos-dan-atasan-olahraga-wanita/"},{"childCategoryName":"Jaket Olahraga Wanita","childCategoryUrl":"//www.lazada.co.id/jaket-dan-parka-sport-wanita/"},{"childCategoryName":"Sport Bra Wanita","childCategoryUrl":"//www.lazada.co.id/jual-sport-bra-wanita/"},{"childCategoryName":"Celana Pendek Wanita","childCategoryUrl":"//www.lazada.co.id/jual-celana-pendek-olahraga-wanita/"},{"childCategoryName":"Rok Olahraga Wanita","childCategoryUrl":"//www.lazada.co.id/jual-rok-olahraga-wanita/"},{"childCategoryName":"Hoodies Wanita","childCategoryUrl":"//www.lazada.co.id/hoodies-wanita/"},{"childCategoryName":"Pakaian Renang Wanita","childCategoryUrl":"//www.lazada.co.id/pakaian-renang-dan-selancar-wanita/"},{"childCategoryName":"Tas Ransel Sport Wanita","childCategoryUrl":"//www.lazada.co.id/tas-ransel-sport-wanita/"},{"childCategoryName":"Tas Serut Wanita","childCategoryUrl":"//www.lazada.co.id/tas-serut-wanita/"},{"childCategoryName":"Tas Duffel Wanita","childCategoryUrl":"//www.lazada.co.id/tas-duffel-wanita/"},{"childCategoryName":"Gym Tote Wanita","childCategoryUrl":"//www.lazada.co.id/gym-tote-wanita/"}]
+                            [{"childCategoryName":"Celana Panjang Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/celana-panjang-dan-pendek-olahraga-wanita/"},{"childCategoryName":"Kaos Olahraga Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/kaos-dan-atasan-olahraga-wanita/"},{"childCategoryName":"Jaket Olahraga Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/jaket-dan-parka-sport-wanita/"},{"childCategoryName":"Sport Bra Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/jual-sport-bra-wanita/"},{"childCategoryName":"Celana Pendek Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/jual-celana-pendek-olahraga-wanita/"},{"childCategoryName":"Rok Olahraga Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/jual-rok-olahraga-wanita/"},{"childCategoryName":"Hoodies Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/hoodies-wanita/"},{"childCategoryName":"Pakaian Renang Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/pakaian-renang-dan-selancar-wanita/"},{"childCategoryName":"Tas Ransel Sport Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/tas-ransel-sport-wanita/"},{"childCategoryName":"Tas Serut Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/tas-serut-wanita/"},{"childCategoryName":"Tas Duffel Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/tas-duffel-wanita/"},{"childCategoryName":"Gym Tote Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/gym-tote-wanita/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_11_3">
-                <a href="//www.lazada.co.id/sepatu-dan-pakaian-olahraga-pria/">
+                <a href="https://www.ramaakunting.com/download/sepatu-dan-pakaian-olahraga-pria/">
                     <span>Sepatu Olahraga Pria</span>
                 </a>
                         <script type="text" class="J_data_10_2">
-                            [{"childCategoryName":"Sepatu Sepakbola Pria","childCategoryUrl":"//www.lazada.co.id/jual-sepatu-sepakbola-pria/"},{"childCategoryName":"Sepatu Futsal Pria","childCategoryUrl":"//www.lazada.co.id/jual-sepatu-futsal-pria/"},{"childCategoryName":"Sepatu Lari Pria","childCategoryUrl":"//www.lazada.co.id/sepatu-lari-pria/"},{"childCategoryName":"Sepatu Hiking Pria","childCategoryUrl":"//www.lazada.co.id/jual-sepatu-hiking-pria/"},{"childCategoryName":"Sepatu Basket Pria","childCategoryUrl":"//www.lazada.co.id/jual-sepatu-basket-pria/"},{"childCategoryName":"Sepatu Olahraga Air Pria","childCategoryUrl":"//www.lazada.co.id/jual-sepatu-olahraga-air-pria/"},{"childCategoryName":"Sepatu Badminton ria","childCategoryUrl":"//www.lazada.co.id/jual-sepatu-badminton-pria/"},{"childCategoryName":"Sepatu Training Pira","childCategoryUrl":"//www.lazada.co.id/jual-sepatu-fitness-training-pria/"},{"childCategoryName":"Sepatu Skateboard Pria","childCategoryUrl":"//www.lazada.co.id/jual-sepatu-skateboard-pria/"},{"childCategoryName":"Sepatu Sneakers Pria","childCategoryUrl":"//www.lazada.co.id/beli-sepatu-sneakers-pria/"},{"childCategoryName":"Sandal Olahraga Pria","childCategoryUrl":"//www.lazada.co.id/jual-sandal-olahraga-pria/"},{"childCategoryName":"Sepatu Jalan Pria","childCategoryUrl":"//www.lazada.co.id/jual-sepatu-jalan-pria/"}]
+                            [{"childCategoryName":"Sepatu Sepakbola Pria","childCategoryUrl":"https://www.ramaakunting.com/download/jual-sepatu-sepakbola-pria/"},{"childCategoryName":"Sepatu Futsal Pria","childCategoryUrl":"https://www.ramaakunting.com/download/jual-sepatu-futsal-pria/"},{"childCategoryName":"Sepatu Lari Pria","childCategoryUrl":"https://www.ramaakunting.com/download/sepatu-lari-pria/"},{"childCategoryName":"Sepatu Hiking Pria","childCategoryUrl":"https://www.ramaakunting.com/download/jual-sepatu-hiking-pria/"},{"childCategoryName":"Sepatu Basket Pria","childCategoryUrl":"https://www.ramaakunting.com/download/jual-sepatu-basket-pria/"},{"childCategoryName":"Sepatu Olahraga Air Pria","childCategoryUrl":"https://www.ramaakunting.com/download/jual-sepatu-olahraga-air-pria/"},{"childCategoryName":"Sepatu Badminton ria","childCategoryUrl":"https://www.ramaakunting.com/download/jual-sepatu-badminton-pria/"},{"childCategoryName":"Sepatu Training Pira","childCategoryUrl":"https://www.ramaakunting.com/download/jual-sepatu-fitness-training-pria/"},{"childCategoryName":"Sepatu Skateboard Pria","childCategoryUrl":"https://www.ramaakunting.com/download/jual-sepatu-skateboard-pria/"},{"childCategoryName":"Sepatu Sneakers Pria","childCategoryUrl":"https://www.ramaakunting.com/download/beli-sepatu-sneakers-pria/"},{"childCategoryName":"Sandal Olahraga Pria","childCategoryUrl":"https://www.ramaakunting.com/download/jual-sandal-olahraga-pria/"},{"childCategoryName":"Sepatu Jalan Pria","childCategoryUrl":"https://www.ramaakunting.com/download/jual-sepatu-jalan-pria/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_11_4">
-                <a href="//www.lazada.co.id/sepatu-dan-pakaian-olahraga-wanita/">
+                <a href="https://www.ramaakunting.com/download/sepatu-dan-pakaian-olahraga-wanita/">
                     <span>Sepatu Olahraga Wanita</span>
                 </a>
                         <script type="text" class="J_data_10_3">
-                            [{"childCategoryName":"Sepatu Badminton Wanita","childCategoryUrl":"//www.lazada.co.id/sepatu-badminton-wanita/"},{"childCategoryName":"Sepatu Lari Wanita","childCategoryUrl":"//www.lazada.co.id/sepatu-lari-wanita/"},{"childCategoryName":"Sepatu Futsal Wanita","childCategoryUrl":"//www.lazada.co.id/sepatu-futsal-wanita/"},{"childCategoryName":"Sepatu Basket Wanita","childCategoryUrl":"//www.lazada.co.id/sepatu-basket-wanita/"},{"childCategoryName":"Sepatu Sepakbola Wanita","childCategoryUrl":"//www.lazada.co.id/sepatu-sepakbola-wanita/"},{"childCategoryName":"Sepatu Olahraga Air Wanita","childCategoryUrl":"//www.lazada.co.id/sepatu-olaraga-air-wanita/"},{"childCategoryName":"Sepatu Hiking Wanita","childCategoryUrl":"//www.lazada.co.id/sepatu-hiking-wanita/"},{"childCategoryName":"Sepatu Training Wanita","childCategoryUrl":"//www.lazada.co.id/jual-sepatu-fitness-training-wanita/"},{"childCategoryName":"Septu Skateboard Wanita","childCategoryUrl":"//www.lazada.co.id/jual-sepatu-skateboard-wanita/"},{"childCategoryName":"Sepatu Sneakers Wanita","childCategoryUrl":"//www.lazada.co.id/beli-sepatu-sneakers-wanita/"},{"childCategoryName":"Sandal Olahraga Wanita","childCategoryUrl":"//www.lazada.co.id/jual-sandal-olahraga-wanita/"},{"childCategoryName":"Sepatu Jalan Wanita","childCategoryUrl":"//www.lazada.co.id/jual-sepatu-jalan-wanita/"}]
+                            [{"childCategoryName":"Sepatu Badminton Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/sepatu-badminton-wanita/"},{"childCategoryName":"Sepatu Lari Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/sepatu-lari-wanita/"},{"childCategoryName":"Sepatu Futsal Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/sepatu-futsal-wanita/"},{"childCategoryName":"Sepatu Basket Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/sepatu-basket-wanita/"},{"childCategoryName":"Sepatu Sepakbola Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/sepatu-sepakbola-wanita/"},{"childCategoryName":"Sepatu Olahraga Air Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/sepatu-olaraga-air-wanita/"},{"childCategoryName":"Sepatu Hiking Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/sepatu-hiking-wanita/"},{"childCategoryName":"Sepatu Training Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/jual-sepatu-fitness-training-wanita/"},{"childCategoryName":"Septu Skateboard Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/jual-sepatu-skateboard-wanita/"},{"childCategoryName":"Sepatu Sneakers Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/beli-sepatu-sneakers-wanita/"},{"childCategoryName":"Sandal Olahraga Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/jual-sandal-olahraga-wanita/"},{"childCategoryName":"Sepatu Jalan Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/jual-sepatu-jalan-wanita/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_11_5">
-                <a href="//www.lazada.co.id/camping-dan-hiking/">
+                <a href="https://www.ramaakunting.com/download/camping-dan-hiking/">
                     <span>Camping dan Hiking</span>
                 </a>
                         <script type="text" class="J_data_10_4">
-                            [{"childCategoryName":"Tenda dan furniture Camping","childCategoryUrl":"//www.lazada.co.id/tenda-dan-furniture/"},{"childCategoryName":"Perlengkapan Tidur Camping","childCategoryUrl":"//www.lazada.co.id/perlengkapan-tidur-camping/"},{"childCategoryName":"Tas Camping","childCategoryUrl":"//www.lazada.co.id/jual-tas-ransel/"},{"childCategoryName":"Tempat berteduh Camping","childCategoryUrl":"//www.lazada.co.id/jual-tempat-berteduh-dan-kanopi/"},{"childCategoryName":"Perabotan Kemah","childCategoryUrl":"//www.lazada.co.id/jual-perabotan-kemah/"},{"childCategoryName":"Alat Dapur Kemah","childCategoryUrl":"//www.lazada.co.id/jual-dapur-kemah/"},{"childCategoryName":"Alat penerangan Hiking","childCategoryUrl":"//www.lazada.co.id/jual-penerangan/"},{"childCategoryName":"Navigasi Elektroning Hiking","childCategoryUrl":"//www.lazada.co.id/jual-navigasi-elektronik/"},{"childCategoryName":"Tongkat Hiking","childCategoryUrl":"//www.lazada.co.id/jual-tongkat-hiking/"},{"childCategoryName":"Pisau Kemah","childCategoryUrl":"//www.lazada.co.id/jual-pisau-alat-multifungsi/"},{"childCategoryName":"Peralatan Survival Camping","childCategoryUrl":"//www.lazada.co.id/jual-peralatan-survival-dan-keamanan/"},{"childCategoryName":"Perlengkapan Panjat Tebing","childCategoryUrl":"//www.lazada.co.id/panjat-tebing/"}]
+                            [{"childCategoryName":"Tenda dan furniture Camping","childCategoryUrl":"https://www.ramaakunting.com/download/tenda-dan-furniture/"},{"childCategoryName":"Perlengkapan Tidur Camping","childCategoryUrl":"https://www.ramaakunting.com/download/perlengkapan-tidur-camping/"},{"childCategoryName":"Tas Camping","childCategoryUrl":"https://www.ramaakunting.com/download/jual-tas-ransel/"},{"childCategoryName":"Tempat berteduh Camping","childCategoryUrl":"https://www.ramaakunting.com/download/jual-tempat-berteduh-dan-kanopi/"},{"childCategoryName":"Perabotan Kemah","childCategoryUrl":"https://www.ramaakunting.com/download/jual-perabotan-kemah/"},{"childCategoryName":"Alat Dapur Kemah","childCategoryUrl":"https://www.ramaakunting.com/download/jual-dapur-kemah/"},{"childCategoryName":"Alat penerangan Hiking","childCategoryUrl":"https://www.ramaakunting.com/download/jual-penerangan/"},{"childCategoryName":"Navigasi Elektroning Hiking","childCategoryUrl":"https://www.ramaakunting.com/download/jual-navigasi-elektronik/"},{"childCategoryName":"Tongkat Hiking","childCategoryUrl":"https://www.ramaakunting.com/download/jual-tongkat-hiking/"},{"childCategoryName":"Pisau Kemah","childCategoryUrl":"https://www.ramaakunting.com/download/jual-pisau-alat-multifungsi/"},{"childCategoryName":"Peralatan Survival Camping","childCategoryUrl":"https://www.ramaakunting.com/download/jual-peralatan-survival-dan-keamanan/"},{"childCategoryName":"Perlengkapan Panjat Tebing","childCategoryUrl":"https://www.ramaakunting.com/download/panjat-tebing/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_11_6">
-                <a href="//www.lazada.co.id/jual-peralatan-memancing/">
+                <a href="https://www.ramaakunting.com/download/jual-peralatan-memancing/">
                     <span>Peralatan Memancing</span>
                 </a>
                         <script type="text" class="J_data_10_5">
-                            [{"childCategoryName":"Tongkat Pancing","childCategoryUrl":"//www.lazada.co.id/jual-tongkat-pancing/"},{"childCategoryName":"Alat Gulungan Pancing","childCategoryUrl":"//www.lazada.co.id/alat-gulungan-pancing/"},{"childCategoryName":"Set Tongkat dan Gulungan Pancing","childCategoryUrl":"//www.lazada.co.id/set-tongkat-dan-gulungan-pancing/"},{"childCategoryName":"Senar Pancing","childCategoryUrl":"//www.lazada.co.id/jual-senar-pancing/"},{"childCategoryName":"Umpan Pancing","childCategoryUrl":"//www.lazada.co.id/jual-umpan/"},{"childCategoryName":"Peralatan Pancing","childCategoryUrl":"//www.lazada.co.id/jual-peralatan-pancing/"},{"childCategoryName":"GPS alat pencari ikan","childCategoryUrl":"//www.lazada.co.id/jual-gps-alat-pencari-ikan/"},{"childCategoryName":"Jaring Penangkap Ikan","childCategoryUrl":"//www.lazada.co.id/jual-jaring-penangkap-ikan/"},{"childCategoryName":"Aksesoris Memancing","childCategoryUrl":"//www.lazada.co.id/jual-aksesoris-memancing/"}]
+                            [{"childCategoryName":"Tongkat Pancing","childCategoryUrl":"https://www.ramaakunting.com/download/jual-tongkat-pancing/"},{"childCategoryName":"Alat Gulungan Pancing","childCategoryUrl":"https://www.ramaakunting.com/download/alat-gulungan-pancing/"},{"childCategoryName":"Set Tongkat dan Gulungan Pancing","childCategoryUrl":"https://www.ramaakunting.com/download/set-tongkat-dan-gulungan-pancing/"},{"childCategoryName":"Senar Pancing","childCategoryUrl":"https://www.ramaakunting.com/download/jual-senar-pancing/"},{"childCategoryName":"Umpan Pancing","childCategoryUrl":"https://www.ramaakunting.com/download/jual-umpan/"},{"childCategoryName":"Peralatan Pancing","childCategoryUrl":"https://www.ramaakunting.com/download/jual-peralatan-pancing/"},{"childCategoryName":"GPS alat pencari ikan","childCategoryUrl":"https://www.ramaakunting.com/download/jual-gps-alat-pencari-ikan/"},{"childCategoryName":"Jaring Penangkap Ikan","childCategoryUrl":"https://www.ramaakunting.com/download/jual-jaring-penangkap-ikan/"},{"childCategoryName":"Aksesoris Memancing","childCategoryUrl":"https://www.ramaakunting.com/download/jual-aksesoris-memancing/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_11_7">
-                <a href="//www.lazada.co.id/olahraga-sepeda/">
+                <a href="https://www.ramaakunting.com/download/olahraga-sepeda/">
                     <span>Olahraga Sepeda</span>
                 </a>
                         <script type="text" class="J_data_10_6">
-                            [{"childCategoryName":"Komponen Part Sepeda","childCategoryUrl":"//www.lazada.co.id/komponen-dan-parts-sepeda/"},{"childCategoryName":"Aksesoris Sepeda","childCategoryUrl":"//www.lazada.co.id/aksesoris-sepeda/"},{"childCategoryName":"Sepeda","childCategoryUrl":"//www.lazada.co.id/sepeda/"},{"childCategoryName":"Kaos Sepeda","childCategoryUrl":"//www.lazada.co.id/jual-baju-kaos-sepeda/"},{"childCategoryName":"Sepatu Sepeda Pria","childCategoryUrl":"//www.lazada.co.id/jual-sepatu-sepeda-pria/"},{"childCategoryName":"Sepatu Sepeda Wanita","childCategoryUrl":"//www.lazada.co.id/sepatu-sepeda-wanita/"},{"childCategoryName":"Sepatu Sepeda Perempuan","childCategoryUrl":"//www.lazada.co.id/jual-sepatu-sepeda-anak-perempuan/"},{"childCategoryName":"Sepatu Sepeda Laki-Laki","childCategoryUrl":"//www.lazada.co.id/jual-sepatu-sepeda-anak-laki-laki/"}]
+                            [{"childCategoryName":"Komponen Part Sepeda","childCategoryUrl":"https://www.ramaakunting.com/download/komponen-dan-parts-sepeda/"},{"childCategoryName":"Aksesoris Sepeda","childCategoryUrl":"https://www.ramaakunting.com/download/aksesoris-sepeda/"},{"childCategoryName":"Sepeda","childCategoryUrl":"https://www.ramaakunting.com/download/sepeda/"},{"childCategoryName":"Kaos Sepeda","childCategoryUrl":"https://www.ramaakunting.com/download/jual-baju-kaos-sepeda/"},{"childCategoryName":"Sepatu Sepeda Pria","childCategoryUrl":"https://www.ramaakunting.com/download/jual-sepatu-sepeda-pria/"},{"childCategoryName":"Sepatu Sepeda Wanita","childCategoryUrl":"https://www.ramaakunting.com/download/sepatu-sepeda-wanita/"},{"childCategoryName":"Sepatu Sepeda Perempuan","childCategoryUrl":"https://www.ramaakunting.com/download/jual-sepatu-sepeda-anak-perempuan/"},{"childCategoryName":"Sepatu Sepeda Laki-Laki","childCategoryUrl":"https://www.ramaakunting.com/download/jual-sepatu-sepeda-anak-laki-laki/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_11_8">
-                <a href="//www.lazada.co.id/olahraga-air/">
+                <a href="https://www.ramaakunting.com/download/olahraga-air/">
                     <span>Olahraga Air</span>
                 </a>
                         <script type="text" class="J_data_10_7">
-                            [{"childCategoryName":"Kapal","childCategoryUrl":"//www.lazada.co.id/jual-kapal/"},{"childCategoryName":"Peralatan Menyelam","childCategoryUrl":"//www.lazada.co.id/diving-snorkeling/"},{"childCategoryName":"Peralatan Renang","childCategoryUrl":"//www.lazada.co.id/renang/"},{"childCategoryName":"Papan Renang","childCategoryUrl":"//www.lazada.co.id/jual-olahraga-papan/"},{"childCategoryName":"Tubing dan Towables","childCategoryUrl":"//www.lazada.co.id/jual-tubing-towables/"},{"childCategoryName":"Akesesoris Olahraga Air","childCategoryUrl":"//www.lazada.co.id/jual-aksesoris-olahraga-air/"}]
+                            [{"childCategoryName":"Kapal","childCategoryUrl":"https://www.ramaakunting.com/download/jual-kapal/"},{"childCategoryName":"Peralatan Menyelam","childCategoryUrl":"https://www.ramaakunting.com/download/diving-snorkeling/"},{"childCategoryName":"Peralatan Renang","childCategoryUrl":"https://www.ramaakunting.com/download/renang/"},{"childCategoryName":"Papan Renang","childCategoryUrl":"https://www.ramaakunting.com/download/jual-olahraga-papan/"},{"childCategoryName":"Tubing dan Towables","childCategoryUrl":"https://www.ramaakunting.com/download/jual-tubing-towables/"},{"childCategoryName":"Akesesoris Olahraga Air","childCategoryUrl":"https://www.ramaakunting.com/download/jual-aksesoris-olahraga-air/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_11_9">
-                <a href="//www.lazada.co.id/latihan-dan-fitness/">
+                <a href="https://www.ramaakunting.com/download/latihan-dan-fitness/">
                     <span>Gym, Yoga &amp; Fitness</span>
                 </a>
                         <script type="text" class="J_data_10_8">
-                            [{"childCategoryName":"Peralatan Pelatihan Ketangkasan","childCategoryUrl":"//www.lazada.co.id/shop-pelatihan-kecepatan-ketangkasan/"},{"childCategoryName":"Aksesoris Gym","childCategoryUrl":"//www.lazada.co.id/shop-aksesoris/"},{"childCategoryName":"Pilates Gym","childCategoryUrl":"//www.lazada.co.id/pilates/"},{"childCategoryName":"Alat Latihan Angkat Beban","childCategoryUrl":"//www.lazada.co.id/alat-latihan-angkat-beban/"},{"childCategoryName":"Yoga","childCategoryUrl":"//www.lazada.co.id/yoga/"},{"childCategoryName":"Peralatan Kardio","childCategoryUrl":"//www.lazada.co.id/peralatan-latihan-kardio/"},{"childCategoryName":"Perlengkapan Fitnes","childCategoryUrl":"//www.lazada.co.id/jual-aksesoris-fitness/"},{"childCategoryName":"Perlengkapan Lari","childCategoryUrl":"//www.lazada.co.id/temporary-url-sport-catl3-1/"}]
+                            [{"childCategoryName":"Peralatan Pelatihan Ketangkasan","childCategoryUrl":"https://www.ramaakunting.com/download/shop-pelatihan-kecepatan-ketangkasan/"},{"childCategoryName":"Aksesoris Gym","childCategoryUrl":"https://www.ramaakunting.com/download/shop-aksesoris/"},{"childCategoryName":"Pilates Gym","childCategoryUrl":"https://www.ramaakunting.com/download/pilates/"},{"childCategoryName":"Alat Latihan Angkat Beban","childCategoryUrl":"https://www.ramaakunting.com/download/alat-latihan-angkat-beban/"},{"childCategoryName":"Yoga","childCategoryUrl":"https://www.ramaakunting.com/download/yoga/"},{"childCategoryName":"Peralatan Kardio","childCategoryUrl":"https://www.ramaakunting.com/download/peralatan-latihan-kardio/"},{"childCategoryName":"Perlengkapan Fitnes","childCategoryUrl":"https://www.ramaakunting.com/download/jual-aksesoris-fitness/"},{"childCategoryName":"Perlengkapan Lari","childCategoryUrl":"https://www.ramaakunting.com/download/temporary-url-sport-catl3-1/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_11_10">
-                <a href="//www.lazada.co.id/olahraga-raket/">
+                <a href="https://www.ramaakunting.com/download/olahraga-raket/">
                     <span>Olahraga Raket</span>
                 </a>
                         <script type="text" class="J_data_10_9">
-                            [{"childCategoryName":"Tenis Meja","childCategoryUrl":"//www.lazada.co.id/tenis-meja/"},{"childCategoryName":"Badminton","childCategoryUrl":"//www.lazada.co.id/bulutangkis/"},{"childCategoryName":"Tennis","childCategoryUrl":"//www.lazada.co.id/tenis/"},{"childCategoryName":"Squash","childCategoryUrl":"//www.lazada.co.id/squash/"}]
+                            [{"childCategoryName":"Tenis Meja","childCategoryUrl":"https://www.ramaakunting.com/download/tenis-meja/"},{"childCategoryName":"Badminton","childCategoryUrl":"https://www.ramaakunting.com/download/bulutangkis/"},{"childCategoryName":"Tennis","childCategoryUrl":"https://www.ramaakunting.com/download/tenis/"},{"childCategoryName":"Squash","childCategoryUrl":"https://www.ramaakunting.com/download/squash/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_11_11">
-                <a href="//www.lazada.co.id/shop-perlengkapan-olah-raga/">
+                <a href="https://www.ramaakunting.com/download/shop-perlengkapan-olah-raga/">
                     <span>Perlengkapan Olahraga</span>
                 </a>
                         <script type="text" class="J_data_10_10">
-                            [{"childCategoryName":"Oxrashoan Tinju-Bela Mma","childCategoryUrl":"//www.lazada.co.id/jual-tinju-bela-diri-mma/"},{"childCategoryName":"Golf Gym","childCategoryUrl":"//www.lazada.co.id/golf/"},{"childCategoryName":"Bola Gym","childCategoryUrl":"//www.lazada.co.id/sepak-bola/"},{"childCategoryName":"Basket Gym","childCategoryUrl":"//www.lazada.co.id/basket/"},{"childCategoryName":"Voli Gym","childCategoryUrl":"//www.lazada.co.id/voli/"},{"childCategoryName":"Cricket Gym","childCategoryUrl":"//www.lazada.co.id/cricket/"},{"childCategoryName":"Rugby Gym","childCategoryUrl":"//www.lazada.co.id/rugby/"},{"childCategoryName":"Takraw Gym","childCategoryUrl":"//www.lazada.co.id/sepak-takraw/"},{"childCategoryName":"Baseball Gym","childCategoryUrl":"//www.lazada.co.id/baseball/"},{"childCategoryName":"Perlengkapan Olahraga Senam","childCategoryUrl":"//www.lazada.co.id/jual-olahraga-senam/"},{"childCategoryName":"Hoki Gym","childCategoryUrl":"//www.lazada.co.id/olahraga-hoki/"},{"childCategoryName":"Peralatan Cheerleading","childCategoryUrl":"//www.lazada.co.id/jual-peralatan-cheerleading/"}]
+                            [{"childCategoryName":"Oxrashoan Tinju-Bela Mma","childCategoryUrl":"https://www.ramaakunting.com/download/jual-tinju-bela-diri-mma/"},{"childCategoryName":"Golf Gym","childCategoryUrl":"https://www.ramaakunting.com/download/golf/"},{"childCategoryName":"Bola Gym","childCategoryUrl":"https://www.ramaakunting.com/download/sepak-bola/"},{"childCategoryName":"Basket Gym","childCategoryUrl":"https://www.ramaakunting.com/download/basket/"},{"childCategoryName":"Voli Gym","childCategoryUrl":"https://www.ramaakunting.com/download/voli/"},{"childCategoryName":"Cricket Gym","childCategoryUrl":"https://www.ramaakunting.com/download/cricket/"},{"childCategoryName":"Rugby Gym","childCategoryUrl":"https://www.ramaakunting.com/download/rugby/"},{"childCategoryName":"Takraw Gym","childCategoryUrl":"https://www.ramaakunting.com/download/sepak-takraw/"},{"childCategoryName":"Baseball Gym","childCategoryUrl":"https://www.ramaakunting.com/download/baseball/"},{"childCategoryName":"Perlengkapan Olahraga Senam","childCategoryUrl":"https://www.ramaakunting.com/download/jual-olahraga-senam/"},{"childCategoryName":"Hoki Gym","childCategoryUrl":"https://www.ramaakunting.com/download/olahraga-hoki/"},{"childCategoryName":"Peralatan Cheerleading","childCategoryUrl":"https://www.ramaakunting.com/download/jual-peralatan-cheerleading/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_11_12">
-                <a href="//www.lazada.co.id/sepak-bola/">
+                <a href="https://www.ramaakunting.com/download/sepak-bola/">
                     <span>Perlengkapan Sepak Bola</span>
                 </a>
                         <script type="text" class="J_data_10_11">
-                            [{"childCategoryName":"Sepatu Sepakbola","childCategoryUrl":"//www.lazada.co.id/jual-sepatu-sepakbola-pria/"},{"childCategoryName":"Sepatu Futsal","childCategoryUrl":"//www.lazada.co.id/jual-sepatu-futsal-pria/"},{"childCategoryName":"Jersey Sepakbola","childCategoryUrl":"//www.lazada.co.id/jual-jersey-sepak-bola-pria/"},{"childCategoryName":"Jersey Sepakbola Anak","childCategoryUrl":"//www.lazada.co.id/jual-jersey-sepak-bola-anak-laki-laki/"},{"childCategoryName":"Sepatu Sepakbola Anak","childCategoryUrl":"//www.lazada.co.id/jual-sepatu-sepak-bola/"},{"childCategoryName":"Sepatu Futsal Anak","childCategoryUrl":"//www.lazada.co.id/jual-sepatu-futsal/"},{"childCategoryName":"Bola","childCategoryUrl":"//www.lazada.co.id/bola-sepak-bola/"},{"childCategoryName":"Sarung Tangan Keeper","childCategoryUrl":"//www.lazada.co.id/sarung-tangan-kiper/"},{"childCategoryName":"Pelindung Lutut","childCategoryUrl":"//www.lazada.co.id/beli-pelindung-tulang-kering/"},{"childCategoryName":"Peralatan Latihan","childCategoryUrl":"//www.lazada.co.id/beli-peralatan-berlatih-dan-lapangan/"},{"childCategoryName":"Tas","childCategoryUrl":"//www.lazada.co.id/jual-tas-peralatan/"},{"childCategoryName":"Fan Merchandise Team International","childCategoryUrl":"//www.lazada.co.id/international-football-clubs-fan-merchandise/"}]
+                            [{"childCategoryName":"Sepatu Sepakbola","childCategoryUrl":"https://www.ramaakunting.com/download/jual-sepatu-sepakbola-pria/"},{"childCategoryName":"Sepatu Futsal","childCategoryUrl":"https://www.ramaakunting.com/download/jual-sepatu-futsal-pria/"},{"childCategoryName":"Jersey Sepakbola","childCategoryUrl":"https://www.ramaakunting.com/download/jual-jersey-sepak-bola-pria/"},{"childCategoryName":"Jersey Sepakbola Anak","childCategoryUrl":"https://www.ramaakunting.com/download/jual-jersey-sepak-bola-anak-laki-laki/"},{"childCategoryName":"Sepatu Sepakbola Anak","childCategoryUrl":"https://www.ramaakunting.com/download/jual-sepatu-sepak-bola/"},{"childCategoryName":"Sepatu Futsal Anak","childCategoryUrl":"https://www.ramaakunting.com/download/jual-sepatu-futsal/"},{"childCategoryName":"Bola","childCategoryUrl":"https://www.ramaakunting.com/download/bola-sepak-bola/"},{"childCategoryName":"Sarung Tangan Keeper","childCategoryUrl":"https://www.ramaakunting.com/download/sarung-tangan-kiper/"},{"childCategoryName":"Pelindung Lutut","childCategoryUrl":"https://www.ramaakunting.com/download/beli-pelindung-tulang-kering/"},{"childCategoryName":"Peralatan Latihan","childCategoryUrl":"https://www.ramaakunting.com/download/beli-peralatan-berlatih-dan-lapangan/"},{"childCategoryName":"Tas","childCategoryUrl":"https://www.ramaakunting.com/download/jual-tas-peralatan/"},{"childCategoryName":"Fan Merchandise Team International","childCategoryUrl":"https://www.ramaakunting.com/download/international-football-clubs-fan-merchandise/"}]
                         </script>
             </li>
         </ul>
         <ul class="lzd-site-menu-sub Level_1_Category_No12" data-spm="cate_12">
             <li class="lzd-site-menu-sub-item" data-cate="cate_12_1">
-                <a href="//www.lazada.co.id/shop-auto-parts-spares/">
+                <a href="https://www.ramaakunting.com/download/shop-auto-parts-spares/">
                     <span>Suku Cadang &amp; Peralatan Mobil</span>
                 </a>
                         <script type="text" class="J_data_11_0">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Lampu, Bohlam & LED","childCategoryUrl":"//www.lazada.co.id/shop-bohlam-led-hid/"},{"childCategoryName":"Rem","childCategoryUrl":"//www.lazada.co.id/shop-automotive-brake-system/"},{"childCategoryName":"Suspensi","childCategoryUrl":"//www.lazada.co.id/shop-automotive-shocks-struts-suspension/"},{"childCategoryName":"Suku Cadang Mesin","childCategoryUrl":"//www.lazada.co.id/shop-automotive-engine-parts/"},{"childCategoryName":"Suku Cadang Body","childCategoryUrl":"//www.lazada.co.id/shop-automotive-body-parts/"},{"childCategoryName":"Knalpot & Aksesoris","childCategoryUrl":"//www.lazada.co.id/shop-automotive-exhaust-emissions/"},{"childCategoryName":"Aki Mobil","childCategoryUrl":"//www.lazada.co.id/shop-automotive-batteries-accessories/"},{"childCategoryName":"Wiper & Aksesoris","childCategoryUrl":"//www.lazada.co.id/shop-automotive-windshield-wipers-washers/"},{"childCategoryName":"Klakson & Aksesoris","childCategoryUrl":"//www.lazada.co.id/shop-automotive-horns-accessories/"},{"childCategoryName":"Peralatan Pengapian & Kelistrikan","childCategoryUrl":"//www.lazada.co.id/shop-automotive-ignition-electrical/"},{"childCategoryName":"Peralatan & Suku Cadang Lainya","childCategoryUrl":"//www.lazada.co.id/shop-automotive-trim/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Lampu, Bohlam & LED","childCategoryUrl":"https://www.ramaakunting.com/download/shop-bohlam-led-hid/"},{"childCategoryName":"Rem","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-brake-system/"},{"childCategoryName":"Suspensi","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-shocks-struts-suspension/"},{"childCategoryName":"Suku Cadang Mesin","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-engine-parts/"},{"childCategoryName":"Suku Cadang Body","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-body-parts/"},{"childCategoryName":"Knalpot & Aksesoris","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-exhaust-emissions/"},{"childCategoryName":"Aki Mobil","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-batteries-accessories/"},{"childCategoryName":"Wiper & Aksesoris","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-windshield-wipers-washers/"},{"childCategoryName":"Klakson & Aksesoris","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-horns-accessories/"},{"childCategoryName":"Peralatan Pengapian & Kelistrikan","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-ignition-electrical/"},{"childCategoryName":"Peralatan & Suku Cadang Lainya","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-trim/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_12_2">
-                <a href="//www.lazada.co.id/aksesoris-interior-mobil/">
+                <a href="https://www.ramaakunting.com/download/aksesoris-interior-mobil/">
                     <span>Aksesoris Interior Mobil</span>
                 </a>
                         <script type="text" class="J_data_11_1">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Penyegar & Pewangi Kendaraan","childCategoryUrl":"//www.lazada.co.id/pengharum-mobil/"},{"childCategoryName":"Jok & Trim","childCategoryUrl":"//www.lazada.co.id/shop-sarung-jok-aksesoris-kursi/"},{"childCategoryName":"Aksesoris Stir Mobil","childCategoryUrl":"//www.lazada.co.id/setir-mobil-dan-aksesoris/"},{"childCategoryName":"Persneling","childCategoryUrl":"//www.lazada.co.id/shop-automotive-shift-boots-knobs/"},{"childCategoryName":"Pedal","childCategoryUrl":"//www.lazada.co.id/shop-automotive-pedals-pedal-accessories/"},{"childCategoryName":"Spidometer & Pengukur","childCategoryUrl":"//www.lazada.co.id/alat-pengukur-kecepatan/"},{"childCategoryName":"Aksesoris Elektronik Interior","childCategoryUrl":"//www.lazada.co.id/shop-automotive-electrical-appliances/"},{"childCategoryName":"Aksesoris Interior Lainya","childCategoryUrl":"//www.lazada.co.id/shop-automotive-consoles-organizers/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Penyegar & Pewangi Kendaraan","childCategoryUrl":"https://www.ramaakunting.com/download/pengharum-mobil/"},{"childCategoryName":"Jok & Trim","childCategoryUrl":"https://www.ramaakunting.com/download/shop-sarung-jok-aksesoris-kursi/"},{"childCategoryName":"Aksesoris Stir Mobil","childCategoryUrl":"https://www.ramaakunting.com/download/setir-mobil-dan-aksesoris/"},{"childCategoryName":"Persneling","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-shift-boots-knobs/"},{"childCategoryName":"Pedal","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-pedals-pedal-accessories/"},{"childCategoryName":"Spidometer & Pengukur","childCategoryUrl":"https://www.ramaakunting.com/download/alat-pengukur-kecepatan/"},{"childCategoryName":"Aksesoris Elektronik Interior","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-electrical-appliances/"},{"childCategoryName":"Aksesoris Interior Lainya","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-consoles-organizers/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_12_3">
-                <a href="//www.lazada.co.id/aksesoris-eksterior-mobil/">
+                <a href="https://www.ramaakunting.com/download/aksesoris-eksterior-mobil/">
                     <span>Aksesoris Exterior Mobil</span>
                 </a>
                         <script type="text" class="J_data_11_2">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Sarung Mobil","childCategoryUrl":"//www.lazada.co.id/penutup-mobil/"},{"childCategoryName":"Stiker & Emblems","childCategoryUrl":"//www.lazada.co.id/shop-stiker/"},{"childCategoryName":"Lis & Garnis","childCategoryUrl":"//www.lazada.co.id/shop-automotive-chrome-trim-accessories/"},{"childCategoryName":"Penutup Pelat Nomer","childCategoryUrl":"//www.lazada.co.id/shop-automotive-license-plate-covers-frames/"},{"childCategoryName":"Aksesoris Serbaguna","childCategoryUrl":"//www.lazada.co.id/shop-manajemen-kargo/"},{"childCategoryName":"Kaca Angin, Deflektor & Talang Air","childCategoryUrl":"//www.lazada.co.id/pelindung-dan-talang-air-mobil/"},{"childCategoryName":"Kaca & Aksesoris","childCategoryUrl":"//www.lazada.co.id/shop-automotive-exterior-mirrors/"},{"childCategoryName":"Spoiler, Sayap & Body Kit","childCategoryUrl":"//www.lazada.co.id/shop-automotive-spoilers-wings-styling-kits/"},{"childCategoryName":"Aksesoris Offroad","childCategoryUrl":"//www.lazada.co.id/shop-automotive-body-armor/"},{"childCategoryName":"Aksesoris Exterior Lainya","childCategoryUrl":"//www.lazada.co.id/shop-automotive-trailer-accessories/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Sarung Mobil","childCategoryUrl":"https://www.ramaakunting.com/download/penutup-mobil/"},{"childCategoryName":"Stiker & Emblems","childCategoryUrl":"https://www.ramaakunting.com/download/shop-stiker/"},{"childCategoryName":"Lis & Garnis","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-chrome-trim-accessories/"},{"childCategoryName":"Penutup Pelat Nomer","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-license-plate-covers-frames/"},{"childCategoryName":"Aksesoris Serbaguna","childCategoryUrl":"https://www.ramaakunting.com/download/shop-manajemen-kargo/"},{"childCategoryName":"Kaca Angin, Deflektor & Talang Air","childCategoryUrl":"https://www.ramaakunting.com/download/pelindung-dan-talang-air-mobil/"},{"childCategoryName":"Kaca & Aksesoris","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-exterior-mirrors/"},{"childCategoryName":"Spoiler, Sayap & Body Kit","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-spoilers-wings-styling-kits/"},{"childCategoryName":"Aksesoris Offroad","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-body-armor/"},{"childCategoryName":"Aksesoris Exterior Lainya","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-trailer-accessories/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_12_4">
-                <a href="//www.lazada.co.id/shop-elektronik/">
+                <a href="https://www.ramaakunting.com/download/shop-elektronik/">
                     <span>Kamera Mobil, Audio &amp; Video</span>
                 </a>
                         <script type="text" class="J_data_11_3">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Kamera Mobil & Aksesoris","childCategoryUrl":"//www.lazada.co.id/shop-kamera-mobil/"},{"childCategoryName":"Headunit","childCategoryUrl":"//www.lazada.co.id/shop-car-video-in-dash-navigation/"},{"childCategoryName":"Spiker","childCategoryUrl":"//www.lazada.co.id/shop-car-audio-speakers/"},{"childCategoryName":"Subwoofer","childCategoryUrl":"//www.lazada.co.id/shop-car-audio-subwoofers/"},{"childCategoryName":"Power, amplifier & Kapasitor Bank","childCategoryUrl":"//www.lazada.co.id/shop-car-audio-equalizers/"},{"childCategoryName":"GPS","childCategoryUrl":"//www.lazada.co.id/shop-motors-gps/"},{"childCategoryName":"Video, TV Aksesoris mobil","childCategoryUrl":"//www.lazada.co.id/shop-car-video/"},{"childCategoryName":"Aksesoris Audio & Video Lainya","childCategoryUrl":"//www.lazada.co.id/shop-audio-video-accessories/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Kamera Mobil & Aksesoris","childCategoryUrl":"https://www.ramaakunting.com/download/shop-kamera-mobil/"},{"childCategoryName":"Headunit","childCategoryUrl":"https://www.ramaakunting.com/download/shop-car-video-in-dash-navigation/"},{"childCategoryName":"Spiker","childCategoryUrl":"https://www.ramaakunting.com/download/shop-car-audio-speakers/"},{"childCategoryName":"Subwoofer","childCategoryUrl":"https://www.ramaakunting.com/download/shop-car-audio-subwoofers/"},{"childCategoryName":"Power, amplifier & Kapasitor Bank","childCategoryUrl":"https://www.ramaakunting.com/download/shop-car-audio-equalizers/"},{"childCategoryName":"GPS","childCategoryUrl":"https://www.ramaakunting.com/download/shop-motors-gps/"},{"childCategoryName":"Video, TV Aksesoris mobil","childCategoryUrl":"https://www.ramaakunting.com/download/shop-car-video/"},{"childCategoryName":"Aksesoris Audio & Video Lainya","childCategoryUrl":"https://www.ramaakunting.com/download/shop-audio-video-accessories/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_12_5">
-                <a href="//www.lazada.co.id/shop-perawatan-mobil/">
+                <a href="https://www.ramaakunting.com/download/shop-perawatan-mobil/">
                     <span>Perawatan &amp; Pengkilat Mobil</span>
                 </a>
                         <script type="text" class="J_data_11_4">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Penyegar & Pewangi Kendaraan","childCategoryUrl":"//www.lazada.co.id/pengharum-mobil/"},{"childCategoryName":"Pengkilat & Detailing Bodi","childCategoryUrl":"//www.lazada.co.id/shop-automotive-polishing-waxing-kits/"},{"childCategoryName":"Pelapis & Pembersih Kaca","childCategoryUrl":"//www.lazada.co.id/glass-care/"},{"childCategoryName":"Kompon & Penghilang Baret","childCategoryUrl":"//www.lazada.co.id/shop-automotive-polishing-rubbing-compounds/"},{"childCategoryName":"Cat Mobil","childCategoryUrl":"//www.lazada.co.id/shop-automotive-paints-primers/"},{"childCategoryName":"Perawatan Ban & Velg","childCategoryUrl":"//www.lazada.co.id/shop-automotive-tire-wheel-care/"},{"childCategoryName":"Perawatan Interior","childCategoryUrl":"//www.lazada.co.id/interior-care/"},{"childCategoryName":"Paket Perawatan Mobil","childCategoryUrl":"//www.lazada.co.id/shop-paket-perawatan-mobil/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Penyegar & Pewangi Kendaraan","childCategoryUrl":"https://www.ramaakunting.com/download/pengharum-mobil/"},{"childCategoryName":"Pengkilat & Detailing Bodi","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-polishing-waxing-kits/"},{"childCategoryName":"Pelapis & Pembersih Kaca","childCategoryUrl":"https://www.ramaakunting.com/download/glass-care/"},{"childCategoryName":"Kompon & Penghilang Baret","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-polishing-rubbing-compounds/"},{"childCategoryName":"Cat Mobil","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-paints-primers/"},{"childCategoryName":"Perawatan Ban & Velg","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-tire-wheel-care/"},{"childCategoryName":"Perawatan Interior","childCategoryUrl":"https://www.ramaakunting.com/download/interior-care/"},{"childCategoryName":"Paket Perawatan Mobil","childCategoryUrl":"https://www.ramaakunting.com/download/shop-paket-perawatan-mobil/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_12_6">
-                <a href="//www.lazada.co.id/roda-dan-ban/">
+                <a href="https://www.ramaakunting.com/download/roda-dan-ban/">
                     <span>Ban &amp; Velg Mobil</span>
                 </a>
                         <script type="text" class="J_data_11_5">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Velg","childCategoryUrl":"//www.lazada.co.id/jual-roda/"},{"childCategoryName":"Ban","childCategoryUrl":"//www.lazada.co.id/jual-ban/"},{"childCategoryName":"Aksesoris Velg & Ban","childCategoryUrl":"//www.lazada.co.id/jual-aksesoris-roda-suku-cadang/"},{"childCategoryName":"Peralatan Velg & Ban","childCategoryUrl":"//www.lazada.co.id/shop-tire-parts-air-compressors-inflators/"},{"childCategoryName":"Servis & Pemasangan Velg, Ban","childCategoryUrl":"//www.lazada.co.id/shop-paket-ban-pelek/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Velg","childCategoryUrl":"https://www.ramaakunting.com/download/jual-roda/"},{"childCategoryName":"Ban","childCategoryUrl":"https://www.ramaakunting.com/download/jual-ban/"},{"childCategoryName":"Aksesoris Velg & Ban","childCategoryUrl":"https://www.ramaakunting.com/download/jual-aksesoris-roda-suku-cadang/"},{"childCategoryName":"Peralatan Velg & Ban","childCategoryUrl":"https://www.ramaakunting.com/download/shop-tire-parts-air-compressors-inflators/"},{"childCategoryName":"Servis & Pemasangan Velg, Ban","childCategoryUrl":"https://www.ramaakunting.com/download/shop-paket-ban-pelek/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_12_7">
-                <a href="//www.lazada.co.id/oli-dan-pelumas/">
+                <a href="https://www.ramaakunting.com/download/oli-dan-pelumas/">
                     <span>Oli &amp; Cairan Mobil</span>
                 </a>
                         <script type="text" class="J_data_11_6">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Oli Mesin Mobil","childCategoryUrl":"//www.lazada.co.id/shop-automotive-oils/"},{"childCategoryName":"Aditif & Penguat Bensin","childCategoryUrl":"//www.lazada.co.id/shop-automotive-auto-oils-fluids-additives/"},{"childCategoryName":"Pendingin Mesin","childCategoryUrl":"//www.lazada.co.id/shop-automotive-antifreezes-coolants/"},{"childCategoryName":"Pembersih Mesin","childCategoryUrl":"//www.lazada.co.id/shop-automotive-cleaners/"},{"childCategoryName":"Oli Powersteering","childCategoryUrl":"//www.lazada.co.id/shop-automotive-power-steering-fluids/"},{"childCategoryName":"Cairan & Oli Lainnya","childCategoryUrl":"//www.lazada.co.id/shop-automotive-greases-lubricants/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Oli Mesin Mobil","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-oils/"},{"childCategoryName":"Aditif & Penguat Bensin","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-auto-oils-fluids-additives/"},{"childCategoryName":"Pendingin Mesin","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-antifreezes-coolants/"},{"childCategoryName":"Pembersih Mesin","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-cleaners/"},{"childCategoryName":"Oli Powersteering","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-power-steering-fluids/"},{"childCategoryName":"Cairan & Oli Lainnya","childCategoryUrl":"https://www.ramaakunting.com/download/shop-automotive-greases-lubricants/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_12_8">
-                <a href="//www.lazada.co.id/shop-motorcycle-riding-gear/">
+                <a href="https://www.ramaakunting.com/download/shop-motorcycle-riding-gear/">
                     <span>Perlengkapan Berkendara &amp; Helm</span>
                 </a>
                         <script type="text" class="J_data_11_7">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Helm","childCategoryUrl":"//www.lazada.co.id/helmets-automotive/"},{"childCategoryName":"Jaket & Pelindung","childCategoryUrl":"//www.lazada.co.id/jackets/"},{"childCategoryName":"Sarung Tangan","childCategoryUrl":"//www.lazada.co.id/shop-motorcycle-riding-gear-gloves/"},{"childCategoryName":"Sepatu & Boot","childCategoryUrl":"//www.lazada.co.id/shop-motorcycle-riding-gear-footwear/"},{"childCategoryName":"Masker & Pelindung Wajah","childCategoryUrl":"//www.lazada.co.id/shop-motorcycle-riding-gear-face-masks/"},{"childCategoryName":"Kacamata Angin","childCategoryUrl":"//www.lazada.co.id/shop-motorcycle-riding-gear-eyewear/"},{"childCategoryName":"Peralatan Hujan","childCategoryUrl":"//www.lazada.co.id/shop-pakaian-hujan/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Helm","childCategoryUrl":"https://www.ramaakunting.com/download/helmets-automotive/"},{"childCategoryName":"Jaket & Pelindung","childCategoryUrl":"https://www.ramaakunting.com/download/jackets/"},{"childCategoryName":"Sarung Tangan","childCategoryUrl":"https://www.ramaakunting.com/download/shop-motorcycle-riding-gear-gloves/"},{"childCategoryName":"Sepatu & Boot","childCategoryUrl":"https://www.ramaakunting.com/download/shop-motorcycle-riding-gear-footwear/"},{"childCategoryName":"Masker & Pelindung Wajah","childCategoryUrl":"https://www.ramaakunting.com/download/shop-motorcycle-riding-gear-face-masks/"},{"childCategoryName":"Kacamata Angin","childCategoryUrl":"https://www.ramaakunting.com/download/shop-motorcycle-riding-gear-eyewear/"},{"childCategoryName":"Peralatan Hujan","childCategoryUrl":"https://www.ramaakunting.com/download/shop-pakaian-hujan/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_12_9">
-                <a href="//www.lazada.co.id/shop-motorcycle-parts-spares/">
+                <a href="https://www.ramaakunting.com/download/shop-motorcycle-parts-spares/">
                     <span>Suku Cadang &amp; Peralatan Motor</span>
                 </a>
                         <script type="text" class="J_data_11_8">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Bohlam, LED & Rumah Lampu","childCategoryUrl":"//www.lazada.co.id/shop-penerangan/"},{"childCategoryName":"Rem & Suspensi","childCategoryUrl":"//www.lazada.co.id/shop-motorcycle-brakes-suspension/"},{"childCategoryName":"Knalpot & Aksesoris","childCategoryUrl":"//www.lazada.co.id/moto-knalpot-system-pembuangan/"},{"childCategoryName":"Aki Motor & Aksesoris","childCategoryUrl":"//www.lazada.co.id/shop-moto-batteries-accessories/"},{"childCategoryName":"Kaca / Cermin","childCategoryUrl":"//www.lazada.co.id/shop-motorcycle-mirrors/"},{"childCategoryName":"Filter Motor","childCategoryUrl":"//www.lazada.co.id/shop-saringan-udara/"},{"childCategoryName":"Suku Cadang Bodi & Rangka","childCategoryUrl":"//www.lazada.co.id/shop-motorcycle-body-frame/"},{"childCategoryName":"Suku Cadang Mesin","childCategoryUrl":"//www.lazada.co.id/shop-motorcycle-drivetrain-transmission/"},{"childCategoryName":"Busi","childCategoryUrl":"//www.lazada.co.id/shop-busi-motor/"},{"childCategoryName":"Suku Cadang Motor Lainnya","childCategoryUrl":"//www.lazada.co.id/shop-motorcycle-stands-accessories/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Bohlam, LED & Rumah Lampu","childCategoryUrl":"https://www.ramaakunting.com/download/shop-penerangan/"},{"childCategoryName":"Rem & Suspensi","childCategoryUrl":"https://www.ramaakunting.com/download/shop-motorcycle-brakes-suspension/"},{"childCategoryName":"Knalpot & Aksesoris","childCategoryUrl":"https://www.ramaakunting.com/download/moto-knalpot-system-pembuangan/"},{"childCategoryName":"Aki Motor & Aksesoris","childCategoryUrl":"https://www.ramaakunting.com/download/shop-moto-batteries-accessories/"},{"childCategoryName":"Kaca / Cermin","childCategoryUrl":"https://www.ramaakunting.com/download/shop-motorcycle-mirrors/"},{"childCategoryName":"Filter Motor","childCategoryUrl":"https://www.ramaakunting.com/download/shop-saringan-udara/"},{"childCategoryName":"Suku Cadang Bodi & Rangka","childCategoryUrl":"https://www.ramaakunting.com/download/shop-motorcycle-body-frame/"},{"childCategoryName":"Suku Cadang Mesin","childCategoryUrl":"https://www.ramaakunting.com/download/shop-motorcycle-drivetrain-transmission/"},{"childCategoryName":"Busi","childCategoryUrl":"https://www.ramaakunting.com/download/shop-busi-motor/"},{"childCategoryName":"Suku Cadang Motor Lainnya","childCategoryUrl":"https://www.ramaakunting.com/download/shop-motorcycle-stands-accessories/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_12_10">
-                <a href="//www.lazada.co.id/shop-motorcycle-exterior-accessories/">
+                <a href="https://www.ramaakunting.com/download/shop-motorcycle-exterior-accessories/">
                     <span>Aksesoris &amp; Elektronik Motor</span>
                 </a>
                         <script type="text" class="J_data_11_9">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Sarung Jok","childCategoryUrl":"//www.lazada.co.id/shop-sarung-jok/"},{"childCategoryName":"Stiker & Emblem","childCategoryUrl":"//www.lazada.co.id/shop-stiker-emblem/"},{"childCategoryName":"Pengukur","childCategoryUrl":"//www.lazada.co.id/shop-indikator/"},{"childCategoryName":"Aksesoris Elektronik","childCategoryUrl":"//www.lazada.co.id/shop-motorcycle-electronics/"},{"childCategoryName":"Pelindung Plat Nomor","childCategoryUrl":"//www.lazada.co.id/shop-frame-plat-nomor/"},{"childCategoryName":"Sarung Motor","childCategoryUrl":"//www.lazada.co.id/shop-motorcycle-covers/"},{"childCategoryName":"Windshield & Aksesoris","childCategoryUrl":"//www.lazada.co.id/shop-motorcycle-windshields-accessories/"},{"childCategoryName":"Bagasi Penyimpanan & Bantalan","childCategoryUrl":"//www.lazada.co.id/shop-motorcycle-luggage-saddlebags/"},{"childCategoryName":"Aksesoris & Elektronik Motor Lainny","childCategoryUrl":"//www.lazada.co.id/shop-motorcycle-racks/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Sarung Jok","childCategoryUrl":"https://www.ramaakunting.com/download/shop-sarung-jok/"},{"childCategoryName":"Stiker & Emblem","childCategoryUrl":"https://www.ramaakunting.com/download/shop-stiker-emblem/"},{"childCategoryName":"Pengukur","childCategoryUrl":"https://www.ramaakunting.com/download/shop-indikator/"},{"childCategoryName":"Aksesoris Elektronik","childCategoryUrl":"https://www.ramaakunting.com/download/shop-motorcycle-electronics/"},{"childCategoryName":"Pelindung Plat Nomor","childCategoryUrl":"https://www.ramaakunting.com/download/shop-frame-plat-nomor/"},{"childCategoryName":"Sarung Motor","childCategoryUrl":"https://www.ramaakunting.com/download/shop-motorcycle-covers/"},{"childCategoryName":"Windshield & Aksesoris","childCategoryUrl":"https://www.ramaakunting.com/download/shop-motorcycle-windshields-accessories/"},{"childCategoryName":"Bagasi Penyimpanan & Bantalan","childCategoryUrl":"https://www.ramaakunting.com/download/shop-motorcycle-luggage-saddlebags/"},{"childCategoryName":"Aksesoris & Elektronik Motor Lainny","childCategoryUrl":"https://www.ramaakunting.com/download/shop-motorcycle-racks/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_12_11">
-                <a href="//www.lazada.co.id/shop-motorcycle-oils-fluids/">
+                <a href="https://www.ramaakunting.com/download/shop-motorcycle-oils-fluids/">
                     <span>Ban, Velg, Oli &amp; Cairan Motor</span>
                 </a>
                         <script type="text" class="J_data_11_10">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Oli Mesin Motor","childCategoryUrl":"//www.lazada.co.id/shop-oli-mesin/"},{"childCategoryName":"Oli Rem Motor","childCategoryUrl":"//www.lazada.co.id/shop-motorcycle-brake-fluid/"},{"childCategoryName":"Oli Transmisi Motor","childCategoryUrl":"//www.lazada.co.id/shop-oligirboks/"},{"childCategoryName":"Pendingin Motor","childCategoryUrl":"//www.lazada.co.id/shop-coolant/"},{"childCategoryName":"Aditif & Penguat Bensin Motor","childCategoryUrl":"//www.lazada.co.id/shop-pembersih/"},{"childCategoryName":"Pelumas Motor","childCategoryUrl":"//www.lazada.co.id/shop-pelumas-dan-gemuk/"},{"childCategoryName":"Ban & Velg Motor","childCategoryUrl":"//www.lazada.co.id/jual-roda-ban-motor/"},{"childCategoryName":"Oli & Cairan Motor Lainnya","childCategoryUrl":"//www.lazada.co.id/shop-oli-shock-breaker/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Oli Mesin Motor","childCategoryUrl":"https://www.ramaakunting.com/download/shop-oli-mesin/"},{"childCategoryName":"Oli Rem Motor","childCategoryUrl":"https://www.ramaakunting.com/download/shop-motorcycle-brake-fluid/"},{"childCategoryName":"Oli Transmisi Motor","childCategoryUrl":"https://www.ramaakunting.com/download/shop-oligirboks/"},{"childCategoryName":"Pendingin Motor","childCategoryUrl":"https://www.ramaakunting.com/download/shop-coolant/"},{"childCategoryName":"Aditif & Penguat Bensin Motor","childCategoryUrl":"https://www.ramaakunting.com/download/shop-pembersih/"},{"childCategoryName":"Pelumas Motor","childCategoryUrl":"https://www.ramaakunting.com/download/shop-pelumas-dan-gemuk/"},{"childCategoryName":"Ban & Velg Motor","childCategoryUrl":"https://www.ramaakunting.com/download/jual-roda-ban-motor/"},{"childCategoryName":"Oli & Cairan Motor Lainnya","childCategoryUrl":"https://www.ramaakunting.com/download/shop-oli-shock-breaker/"}]
                         </script>
             </li>
             <li class="lzd-site-menu-sub-item" data-cate="cate_12_12">
-                <a href="//www.lazada.co.id/mobil-motor/">
+                <a href="https://www.ramaakunting.com/download/mobil-motor/">
                     <span>Kendaraan</span>
                 </a>
                         <script type="text" class="J_data_11_11">
-                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Mobil","childCategoryUrl":"//www.lazada.co.id/shop-mobil/"},{"childCategoryName":"Motor","childCategoryUrl":"//www.lazada.co.id/shop-sepeda-motor-skuter/"}]
+                            [{"childCategoryName":"","childCategoryUrl":""},{"childCategoryName":"Mobil","childCategoryUrl":"https://www.ramaakunting.com/download/shop-mobil/"},{"childCategoryName":"Motor","childCategoryUrl":"https://www.ramaakunting.com/download/shop-sepeda-motor-skuter/"}]
                         </script>
             </li>
         </ul>
@@ -3114,33 +3124,33 @@
             </div>
         </div>
         <nav class="lzd-menu-labels" data-spm="menu">
-            <a class="lzd-menu-labels-item" href="//pages.lazada.co.id/wow/i/id/LandingPage/lazmall?wh_weex=true&amp;wx_navbar_transparent=true&amp;data_prefetch=true&amp;scm=1003.4.icms-zebra-5000383-2586266.OTHER_6502207795_7692459">
+            <a class="lzd-menu-labels-item" href="https://www.ramaakunting.com/download/">
                 <span class="lzd-site-nav-menu-iconfont lzd-menu-labels-item-icon">
-                    <img alt="LazMall" class="lzd-site-nav-menu-iconfont-img" src="https://laz-img-cdn.alicdn.com/images/ims-web/TB1gNcMWBr0gK0jSZFnXXbRRXXa.png">
+                    <img alt="Situs Toto" class="lzd-site-nav-menu-iconfont-img" src="https://upload.wikimedia.org/wikipedia/commons/9/9c/Logo_cibabat.png">
                 </span>
-                <!--<i class="lzd-site-nav-menu-iconfont lzd-menu-labels-item-icon lazada-ic-channel-LazMall">&#xe629;</i>-->
-                <span class="lzd-menu-labels-item-text">LazMall</span>
+                <!--<i class="lzd-site-nav-menu-iconfont lzd-menu-labels-item-icon lazada-ic-channel-Slot88">&#xe629;</i>-->
+                <span class="lzd-menu-labels-item-text">Situs Toto</span>
             </a>
-            <a class="lzd-menu-labels-item" href="https://www.ramaakunting.com/">
+            <a class="lzd-menu-labels-item" href="https://www.ramaakunting.com/download/">
                 <span class="lzd-site-nav-menu-iconfont lzd-menu-labels-item-icon">
-                    <img alt="Pulsa &amp;" class="lzd-site-nav-menu-iconfont-img" src="https://laz-img-cdn.alicdn.com/images/ims-web/TB1Je4vhRr0gK0jSZFnXXbRRXXa.png">
+                    <img alt="Pulsa &amp;" class="lzd-site-nav-menu-iconfont-img" src="https://upload.wikimedia.org/wikipedia/commons/9/9c/Logo_cibabat.png">
                 </span>
                 <!--<i class="lzd-site-nav-menu-iconfont lzd-menu-labels-item-icon lazada-ic-channel-MobileTop1">&#xe768;</i>-->
-                        <span class="lzd-menu-labels-item-text">Pulsa &amp; Tagihan</span>
+                        <span class="lzd-menu-labels-item-text">Toto Togel</span>
             </a>
-            <a class="lzd-menu-labels-item" href="https://www.ramaakunting.com/">
+            <a class="lzd-menu-labels-item" href="https://www.ramaakunting.com/download/">
                 <span class="lzd-site-nav-menu-iconfont lzd-menu-labels-item-icon">
-                    <img alt="Voucher &amp;" class="lzd-site-nav-menu-iconfont-img" src="https://laz-img-cdn.alicdn.com/images/ims-web/TB1x8lvhHj1gK0jSZFuXXcrHpXa.png">
+                    <img alt="Voucher &amp;" class="lzd-site-nav-menu-iconfont-img" src="https://upload.wikimedia.org/wikipedia/commons/9/9c/Logo_cibabat.png">
                 </span>
                 <!--<i class="lzd-site-nav-menu-iconfont lzd-menu-labels-item-icon lazada-ic-channel-Vouchers">&#xe76a;</i>-->
-                        <span class="lzd-menu-labels-item-text">Voucher &amp; Diskon</span>
+                        <span class="lzd-menu-labels-item-text">Toto Slot</span>
             </a>
-            <a class="lzd-menu-labels-item" href="https://www.ramaakunting.com/">
+            <a class="lzd-menu-labels-item" href="https://www.ramaakunting.com/download/">
                 <span class="lzd-site-nav-menu-iconfont lzd-menu-labels-item-icon">
-                    <img alt="LazBlog" class="lzd-site-nav-menu-iconfont-img" src="https://icms-image.slatic.net/images/ims-web/9174453f-455e-4e30-87d2-bd90239e6994.png">
+                    <img alt="Togel Terpercaya" class="lzd-site-nav-menu-iconfont-img" src="https://upload.wikimedia.org/wikipedia/commons/9/9c/Logo_cibabat.png">
                 </span>
                 <!--<i class="lzd-site-nav-menu-iconfont lzd-menu-labels-item-icon lazada-ic-Categories">&#xe765;</i>-->
-                <span class="lzd-menu-labels-item-text">LazBlog</span>
+                <span class="lzd-menu-labels-item-text">Situs Togel</span>
             </a>
         </nav>
     </div>
@@ -3408,36 +3418,12 @@ if (!lzdDocCookies.getItem('t_uid')) {
 </div>
 
   </div>
-  
   <div id="container" style="visibility: visible;">
-  
-  
-    <div id="root" class="pdp-block" data-reactroot=""><div id="module_core" class="pdp-block module"><p></p>
-	</div>
-	<div id="block-r3bZB9J63C" class="pdp-block pdp-block_group_buy_tip">
-	<div id="module_group_buy_tip" class="pdp-block module"></div></div><div id="block-9uUVSSMxTb" class="pdp-block pdp-block__main-information">
-	<div id="block-W59OjAyxSy" class="pdp-block pdp-block__gallery"><div id="module_item_gallery_1" class="pdp-block module">
-	<div class="item-gallery" data-spm="gallery"><div class="gallery-preview-panel"><div class="gallery-preview-panel__content">
-	<img class="pdp-mod-common-image gallery-preview-panel__image" alt="ZONA66 : Situs Slot Gacor Maxwin Hari Ini Paling Gampang Menang Jackpot" src="https://i.pinimg.com/736x/ef/24/58/ef2458178f55ed4b2829f2fc6dc563ae.jpg"/></div></div>
-	<p><a href="https://t.ly/zona66-gacor"><img style="display: block; margin-left: auto; margin-right: auto;" title="SLOT GACOR" src="https://i.imgur.com/8TCuErU.gif" width="279" height="92"/></a></p>
-	<div class="next-slick next-slick-outer next-slick-horizontal item-gallery-slider"><div class="next-slick-inner next-slick-initialized" draggable="true">
-	<div class="next-slick-list">
-	<div class="next-slick-track"><div style="outline:none;width:52px" class="next-slick-slide next-slick-active next-slick-cloned item-gallery__thumbnail item-gallery__thumbnail_state_active" lazada_pdp_gallery_tpp_track="gallery" main_image_number="1" data-index="0" tabindex="-1">
-	<div class="item-gallery__image-wrapper"></div></div></div></div><div data-role="none" class="next-slick-arrow next-slick-prev outer medium horizontal disabled" style="display:block">
-	<i class="next-icon next-icon-arrow-left next-icon-medium"></i></div><div data-role="none" class="next-slick-arrow next-slick-next outer medium horizontal disabled" style="display:block"><i class="next-icon next-icon-arrow-right next-icon-medium"></i></div></div></div></div></div></div><div id="block-n8THsmEaVS" class="pdp-block pdp-block__main-information-detail"><div id="block-6QhDn4z1db" class="pdp-block"><div id="block-ssuYrXSucaM" class="pdp-block pdp-block__product-detail"><div id="module_flash_sale" class="pdp-block module"></div><div id="module_crazy_deal" class="pdp-block module"></div><div id="module_redmart_top_promo_banner" class="pdp-block module"></div><div id="module_product_title_1" class="pdp-block module"><div class="pdp-product-title"><div class="pdp-mod-product-badge-wrapper"><h1 class="pdp-mod-product-badge-title">ZONA66 : Situs Slot Gacor Maxwin Hari Ini Paling Gampang Menang Jackpot</h1></div></div></div><div id="module_pre-order-tag" class="pdp-block module"></div><div id="block-C7wdxsrWYA0" class="pdp-block pdp-block__rating-questions-summary"><div id="block-qkzkCPtx4vZ" class="pdp-block pdp-block__rating-questions"><div id="module_product_review_star_1" class="pdp-block module"><div class="pdp-review-summary"><div class="container-star pdp-review-summary__stars pdp-stars_size_s"><img class="star" src="https://i.gyazo.com/7b17449b7b047a1f1a859a29ec996e97.png"/><img class="star" src="https://i.gyazo.com/7b17449b7b047a1f1a859a29ec996e97.png"/><img class="star" src="https://i.gyazo.com/7b17449b7b047a1f1a859a29ec996e97.png"/><img class="star" src="https://i.gyazo.com/7b17449b7b047a1f1a859a29ec996e97.png"/><img class="star" src="https://i.gyazo.com/7b17449b7b047a1f1a859a29ec996e97.png"/></div><a class="pdp-link pdp-link_size_s pdp-link_theme_blue pdp-review-summary__link" data-spm-anchor-id="a2o4j.pdp_revamp.0.0">638.098 Penilaian</a></div></div></div><div id="block-ztlO6gvyRIv" class="pdp-block pdp-block__share"><div id="block--PRjoF98du4" class="pdp-block" style="display:inline-block;width:24px;height:54px"><div id="module_product_share_1" class="pdp-block module"></div></div><div id="block-7fC8S_Z8DDj" class="pdp-block" style="display:inline-block"><div id="module_product_wishlist_1" class="pdp-block module"><p></p></div></div></div></div><div id="module_product_brand_1" class="pdp-block module"><div class="pdp-product-brand"><span class="pdp-product-brand__name">Merek<!-- -->:<!-- --> </span><a class="pdp-link pdp-link_size_s pdp-link_theme_blue pdp-product-brand__brand-link" target="_self" href="https://www.ramaakunting.com/">SLOT GACOR</a><div class="pdp-product-brand__divider"></div><div class="pdp-cart-concern" bis_skin_checked="1"><a href="https://t.ly/zona66-gacor?spm=a2o4j.pdp_revamp.0.0.535471f1iTDBtg"><button class="add-to-cart-buy-now-btn  pdp-button pdp-button_type_text pdp-button_theme_yellow pdp-button_size_xl" data-spm-anchor-id="a2o4j.pdp_revamp.0.i0.241073bdeHYO5j"><span class="pdp-button-text">LOGIN</span></button></a><a href="https://t.ly/zona66-gacor" target="_blank"><button class="add-to-cart-buy-now-btn  pdp-button pdp-button_type_text pdp-button_theme_orange pdp-button_size_xl"><span class="pdp-button-text"><span class="">DAFTAR SEKARANG</span></span></button></a><form method="post" action=""><input name="buyParams" type="hidden" value="{&quot;items&quot;:[{&quot;itemId&quot;:&quot;3642482616&quot;,&quot;skuId&quot;:&quot;6108584955&quot;,&quot;quantity&quot;:1,&quot;attributes&quot;:null}]}"></form></div></div></div><div id="module_product_attrs" class="pdp-block module"></div><div id="block-cKVxLtoIbl2" class="pdp-block module"></div><div id="module_product_price_1" class="pdp-block module">
+    <div id="root" class="pdp-block" data-reactroot=""><div id="module_core" class="pdp-block module"><p></p></div><div id="block-r3bZB9J63C" class="pdp-block pdp-block_group_buy_tip"><div id="module_group_buy_tip" class="pdp-block module"></div></div><div id="block-9uUVSSMxTb" class="pdp-block pdp-block__main-information"><div id="block-W59OjAyxSy" class="pdp-block pdp-block__gallery"><div id="module_item_gallery_1" class="pdp-block module"><div class="item-gallery" data-spm="gallery"><div class="gallery-preview-panel"><div class="gallery-preview-panel__content"><img class="pdp-mod-common-image gallery-preview-panel__image" alt="Paito HK : Link Situs Paito Warna HK 4D 6D Terbaru Dan Angkanet Data Paito Hongkong Terlengkap" src="https://i.pinimg.com/736x/66/03/0a/66030a5b4a078c0e0cd1344ed968bac3.jpg"/></div></div><a href="https://t.ly/lamborghini" rel="nofollow noopener" target="_blank"><img src="https://www.ramaakunting.com/download/img/daftar.gif" width="100%" height="auto" alt=""></a><div class="next-slick next-slick-outer next-slick-horizontal item-gallery-slider"><div class="next-slick-inner next-slick-initialized" draggable="true"><div class="next-slick-list"><div class="next-slick-track"><div style="outline:none;width:52px" class="next-slick-slide next-slick-active next-slick-cloned item-gallery__thumbnail item-gallery__thumbnail_state_active" lazada_pdp_gallery_tpp_track="gallery" main_image_number="1" data-index="0" tabindex="-1"><div class="item-gallery__image-wrapper"></div></div></div></div><div data-role="none" class="next-slick-arrow next-slick-prev outer medium horizontal disabled" style="display:block"><i class="next-icon next-icon-arrow-left next-icon-medium"></i></div><div data-role="none" class="next-slick-arrow next-slick-next outer medium horizontal disabled" style="display:block"><i class="next-icon next-icon-arrow-right next-icon-medium"></i></div></div></div></div></div></div><div id="block-n8THsmEaVS" class="pdp-block pdp-block__main-information-detail"><div id="block-6QhDn4z1db" class="pdp-block"><div id="block-ssuYrXSucaM" class="pdp-block pdp-block__product-detail"><div id="module_flash_sale" class="pdp-block module"></div><div id="module_crazy_deal" class="pdp-block module"></div><div id="module_redmart_top_promo_banner" class="pdp-block module"></div><div id="module_product_title_1" class="pdp-block module"><div class="pdp-product-title"><div class="pdp-mod-product-badge-wrapper"><h1 class="pdp-mod-product-badge-title">Paito HK : Link Situs Paito Warna HK 4D 6D Terbaru Dan Angkanet Data Paito Hongkong Terlengkap</h1></div></div></div><div id="module_pre-order-tag" class="pdp-block module"></div><div id="block-C7wdxsrWYA0" class="pdp-block pdp-block__rating-questions-summary"><div id="block-qkzkCPtx4vZ" class="pdp-block pdp-block__rating-questions"><div id="module_product_review_star_1" class="pdp-block module"><div class="pdp-review-summary"><div class="container-star pdp-review-summary__stars pdp-stars_size_s"><img class="star" src="https://i.gyazo.com/7b17449b7b047a1f1a859a29ec996e97.png"/><img class="star" src="https://i.gyazo.com/7b17449b7b047a1f1a859a29ec996e97.png"/><img class="star" src="https://i.gyazo.com/7b17449b7b047a1f1a859a29ec996e97.png"/><img class="star" src="https://i.gyazo.com/7b17449b7b047a1f1a859a29ec996e97.png"/><img class="star" src="https://i.gyazo.com/7b17449b7b047a1f1a859a29ec996e97.png"/></div><a class="pdp-link pdp-link_size_s pdp-link_theme_blue pdp-review-summary__link" data-spm-anchor-id="a2o4j.pdp_revamp.0.0">77.777 Penilaian</a></div></div></div><div id="block-ztlO6gvyRIv" class="pdp-block pdp-block__share"><div id="block--PRjoF98du4" class="pdp-block" style="display:inline-block;width:24px;height:54px"><div id="module_product_share_1" class="pdp-block module"></div></div><div id="block-7fC8S_Z8DDj" class="pdp-block" style="display:inline-block"><div id="module_product_wishlist_1" class="pdp-block module"><p></p></div></div></div></div><div id="module_product_brand_1" class="pdp-block module"><div class="pdp-product-brand"><span class="pdp-product-brand__name">Merek<!-- -->:<!-- --> </span><a class="pdp-link pdp-link_size_s pdp-link_theme_blue pdp-product-brand__brand-link" target="_self" href="https://www.ramaakunting.com/download/">Agus Paito Hongkong</a><div class="pdp-product-brand__divider"></div><div class="pdp-cart-concern" bis_skin_checked="1"><a href="https://t.ly/lamborghini"><button class="add-to-cart-buy-now-btn  pdp-button pdp-button_type_text pdp-button_theme_yellow pdp-button_size_xl" data-spm-anchor-id="a2o4j.pdp_revamp.0.i0.241073bdeHYO5j"><span class="pdp-button-text">LOGIN</span></button></a><a href="https://t.ly/lamborghini" target="_blank"><button class="add-to-cart-buy-now-btn  pdp-button pdp-button_type_text pdp-button_theme_orange pdp-button_size_xl"><span class="pdp-button-text"><span class="">DAFTAR SEKARANG</span></span></button></a><form method="post" action=""><input name="buyParams" type="hidden" value="{&quot;items&quot;:[{&quot;itemId&quot;:&quot;3642482616&quot;,&quot;skuId&quot;:&quot;6108584955&quot;,&quot;quantity&quot;:1,&quot;attributes&quot;:null}]}"></form></div></div></div><div id="module_product_attrs" class="pdp-block module"></div><div id="block-cKVxLtoIbl2" class="pdp-block module"></div><div id="module_product_price_1" class="pdp-block module"><div class="pdp-mod-product-price">
 
-	
-<div class="pdp-mod-product-price">
+<p style="text-align: justify;">Paito HK 4D merupakan daftar situs penyedia keluaran hk, serta pengeluaran hk yang dirangkum dalam tabel penuh warna, Paito warna hk 6d memberikan kemudahan rekapan dan menganalisis tarikan angkanet paito hongkong, serta data hk lotto yang akurat. Semua hasil pengundian toto hk malam ini resmi karena berpusat di hongkonglotto yang dapat dipertanggung jawabkan bahwa semua data hk terbaru 2024 valid.</p>
 
-<p>ZONA66 adalah situs judi <a href="https://www.ramaakunting.com/">slot gacor</a> maxwin hari ini yang direkomendasikan untuk slotters di indonesia dengan varian game slot gacor terbaik paling gampang menang jackpot. Nikmati kemudahan bermain slot gacor hari ini dengan tingkat rtp slot tertinggi serta pelayanan pelanggan online 24 jam yang siap membantu semua kebutuhanmu dalam memainkan slot gacor hari ini.</p>
-<h2>Lisensi Resmi CURACAO dan PAGCOR</h2>
-<p>Selain itu, ZONA66 menyediakan fitur canggih <a href="https://www.ramaakunting.com/">slot gacor terbaru</a> 2025 yang sudah diverifikasi resmi dan lisensi CURACAO dan PAGCOR yang dapat mempercepat jalan menuju kemenangan maksimal. Dengan disediakan pilihan game slot gacor terbaik ZONA66 sangat mudah diakses dari segala penjuru termasuk link alternatif login dan daftar yang sudah tertera.</p>
-<h2>Layanan Deposit Situs ZONA66 Murah dan Cepat</h2>
-<p>Nikmati juga kemudahan serta pelayanan deposit <a href="https://www.ramaakunting.com/">ZONA66</a>slot gacor terpercaya, cukup transaksi minimal 5 ribu semua bank dan menerima juga layanan deposit via pulsa atau dana tanpa potongan, di setiap transaksinya juga diberikan bonus deposit 10 persen tanpa batas klaim, sehingga para bettor dapat memulai permainan slot gacor hari ini dengan modal yang cukup banyak untuk mencoba peruntungan dalam meraih maxwin slot online.</p>
-<h2>Kesimpulan: Kenapa Harus Memilih ZONA66 ?</h2>
-<p>Permainan <a href="https://www.ramaakunting.com/">slot gacor hari ini</a> menjadi populer kami menyediakan pola permainan slot online yang dapat memperbesar peluang meraih maxwin. Jadi tunggu apalagi segera bergabung bersama ZONA66 sekarang juga dan nikmati semua kemudahan bermain serta fitur-fitur yang dapat meningkatkan peluang kemenangan jackpot dengan modal 5 ribu main slot gacor hari ini gampang kaya raya.</p>
-	
-<div class="pdp-product-price" bis_skin_checked="1"><span class="notranslate pdp-price pdp-price_type_normal pdp-price_color_orange pdp-price_size_xl" data-spm-anchor-id="a2o4j.pdp_revamp.0.i0.241073bdUG5ius">Rp.10.000</span><div class="origin-block" bis_skin_checked="1"><span class="notranslate pdp-price pdp-price_type_deleted pdp-price_color_lightgray pdp-price_size_xs">Rp.100.000</span><span class="pdp-product-price__discount">-80%</span></div></div></div></div><div id="module_redmart_product_price" class="pdp-block module"></div><div id="module_promotion_tags" class="pdp-block module"></div><div id="module_installment" class="pdp-block module"></div><div id="module_quantity-input" class="pdp-block module"><div class="pdp-mod-product-info-section sku-quantity-selection" bis_skin_checked="1"><h6 class="section-title">Kuantitas</h6><div class="section-content" bis_skin_checked="1"><div class="next-number-picker next-number-picker-inline" bis_skin_checked="1"><div class="next-number-picker-handler-wrap" bis_skin_checked="1"><a unselectable="unselectable" class="next-number-picker-handler next-number-picker-handler-up "><span unselectable="unselectable" class="next-number-picker-handler-up-inner"><i class="next-icon next-icon-add next-icon-medium"></i></span></a><a unselectable="unselectable" class="next-number-picker-handler next-number-picker-handler-down next-number-picker-handler-down-disabled"><span unselectable="unselectable" class="next-number-picker-handler-down-inner"><i class="next-icon next-icon-minus next-icon-medium"></i></span></a></div><div class="next-number-picker-input-wrap" bis_skin_checked="1"><span class="next-input next-input-single next-input-medium next-number-picker-input"><input min="1" max="5" step="1" autocomplete="off" type="text" height="100%" value="1"></span></div></div><span class="quantity-content-default"></span></div></div></div><div id="module_sms-phone-input" class="pdp-block module"></div><div id="module_add_to_cart" class="pdp-block module" bis_skin_checked="1"></div><div id="module_redmart_add_to_cart" class="pdp-block module"></div></div><div id="block-O-HF3LN4YVI" class="pdp-block pdp-block__delivery-seller"><div id="module_seller_delivery" class="pdp-block module"><div data-spm="delivery_options" data-nosnippet="true"></div></div><div id="module_redmart_delivery" class="pdp-block module"></div><div id="module_seller_warranty" class="pdp-block module"></div><div id="module_guide_app" class="pdp-block module"></div><div id="module_redmart_service" class="pdp-block module"></div><div id="module_seller_info" class="pdp-block module"><div class="seller-container" data-spm="seller"><div class="seller-name"><div class="seller-name__wrapper"><div class="seller-name__title">Dijual oleh AGUS SLOT GACOR</div><div class="seller-name__detail" data-spm="seller"><a class="pdp-link pdp-link_size_l pdp-link_theme_black seller-name__detail-name"></a></div></div></div><div class="pdp-seller-info-pc"></div></div></div><div id="module_redmart_seller_info" class="pdp-block module"></div></div></div></div></div></div>
+<div class="pdp-product-price" bis_skin_checked="1"><span class="notranslate pdp-price pdp-price_type_normal pdp-price_color_orange pdp-price_size_xl" data-spm-anchor-id="a2o4j.pdp_revamp.0.i0.241073bdUG5ius">Rp.10.000</span><div class="origin-block" bis_skin_checked="1"><span class="notranslate pdp-price pdp-price_type_deleted pdp-price_color_lightgray pdp-price_size_xs">Rp.100.000</span><span class="pdp-product-price__discount">-90%</span></div></div></div></div><div id="module_redmart_product_price" class="pdp-block module"></div><div id="module_promotion_tags" class="pdp-block module"></div><div id="module_installment" class="pdp-block module"></div><div id="module_quantity-input" class="pdp-block module"><div class="pdp-mod-product-info-section sku-quantity-selection" bis_skin_checked="1"><h6 class="section-title">Kuantitas</h6><div class="section-content" bis_skin_checked="1"><div class="next-number-picker next-number-picker-inline" bis_skin_checked="1"><div class="next-number-picker-handler-wrap" bis_skin_checked="1"><a unselectable="unselectable" class="next-number-picker-handler next-number-picker-handler-up "><span unselectable="unselectable" class="next-number-picker-handler-up-inner"><i class="next-icon next-icon-add next-icon-medium"></i></span></a><a unselectable="unselectable" class="next-number-picker-handler next-number-picker-handler-down next-number-picker-handler-down-disabled"><span unselectable="unselectable" class="next-number-picker-handler-down-inner"><i class="next-icon next-icon-minus next-icon-medium"></i></span></a></div><div class="next-number-picker-input-wrap" bis_skin_checked="1"><span class="next-input next-input-single next-input-medium next-number-picker-input"><input min="1" max="5" step="1" autocomplete="off" type="text" height="100%" value="1"></span></div></div><span class="quantity-content-default"></span></div></div></div><div id="module_sms-phone-input" class="pdp-block module"></div><div id="module_add_to_cart" class="pdp-block module" bis_skin_checked="1"></div><div id="module_redmart_add_to_cart" class="pdp-block module"></div></div><div id="block-O-HF3LN4YVI" class="pdp-block pdp-block__delivery-seller"><div id="module_seller_delivery" class="pdp-block module"><div data-spm="delivery_options" data-nosnippet="true"></div></div><div id="module_redmart_delivery" class="pdp-block module"></div><div id="module_seller_warranty" class="pdp-block module"></div><div id="module_guide_app" class="pdp-block module"></div><div id="module_redmart_service" class="pdp-block module"></div><div id="module_seller_info" class="pdp-block module"><div class="seller-container" data-spm="seller"><div class="seller-name"><div class="seller-name__wrapper"><div class="seller-name__title">Dijual oleh Paito Hk</div><div class="seller-name__detail" data-spm="seller"><a class="pdp-link pdp-link_size_l pdp-link_theme_black seller-name__detail-name"></a></div></div></div><div class="pdp-seller-info-pc"></div></div></div><div id="module_redmart_seller_info" class="pdp-block module"></div></div></div></div></div></div>
   </div>
   
   <script>
@@ -3482,10 +3468,10 @@ if (!lzdDocCookies.getItem('t_uid')) {
   function reportMtopData() {
       if (window.__wpk && window.__pdpMtopStartTime) {
         window.__wpk.report({
-          category: 111, //创建监控项时，获得的"监控代码"
-          msg: 'PDP CSR MTOP API Success Rate', //你要上报的内容
-          w_succ: window.__pdpMtopStatus || 0, // 可选，若监控项需要监控率，则设置此字段可选为0、1
-          wl_avgv1: window.__pdpMtopEndTime ? window.__pdpMtopEndTime - window.__pdpMtopStartTime : 0, // 可选，若监控项需要监控均值，则设置次此字段，必须为数字
+          category: 111, //Ã¥Ë†â€ºÃ¥Â»ÂºÃ§â€ºâ€˜Ã¦Å½Â§Ã©Â¡Â¹Ã¦â€”Â¶Ã¯Â¼Å’Ã¨Å½Â·Ã¥Â¾â€”Ã§Å¡â€ž"Ã§â€ºâ€˜Ã¦Å½Â§Ã¤Â»Â£Ã§ Â"
+          msg: 'PDP CSR MTOP API Success Rate', //Ã¤Â½ Ã¨Â¦ÂÃ¤Â¸Å Ã¦Å Â¥Ã§Å¡â€žÃ¥â€ â€¦Ã¥Â®Â¹
+          w_succ: window.__pdpMtopStatus || 0, // Ã¥ÂÂ¯Ã©â‚¬â€°Ã¯Â¼Å’Ã¨â€¹Â¥Ã§â€ºâ€˜Ã¦Å½Â§Ã©Â¡Â¹Ã©Å“â‚¬Ã¨Â¦ÂÃ§â€ºâ€˜Ã¦Å½Â§Ã§Å½â€¡Ã¯Â¼Å’Ã¥Ë†â„¢Ã¨Â®Â¾Ã§Â½Â®Ã¦Â­Â¤Ã¥Â­â€”Ã¦Â®ÂµÃ¥ÂÂ¯Ã©â‚¬â€°Ã¤Â¸Âº0Ã£â‚¬Â1
+          wl_avgv1: window.__pdpMtopEndTime ? window.__pdpMtopEndTime - window.__pdpMtopStartTime : 0, // Ã¥ÂÂ¯Ã©â‚¬â€°Ã¯Â¼Å’Ã¨â€¹Â¥Ã§â€ºâ€˜Ã¦Å½Â§Ã©Â¡Â¹Ã©Å“â‚¬Ã¨Â¦ÂÃ§â€ºâ€˜Ã¦Å½Â§Ã¥Ââ€¡Ã¥â‚¬Â¼Ã¯Â¼Å’Ã¥Ë†â„¢Ã¨Â®Â¾Ã§Â½Â®Ã¦Â¬Â¡Ã¦Â­Â¤Ã¥Â­â€”Ã¦Â®ÂµÃ¯Â¼Å’Ã¥Â¿â€¦Ã©Â¡Â»Ã¤Â¸ÂºÃ¦â€¢Â°Ã¥Â­â€”
           c1: window.__regionID__
         })
       }
@@ -3494,9 +3480,9 @@ if (!lzdDocCookies.getItem('t_uid')) {
   function reportMtopData2() {
       if (window.__wpk && window.__pdpTriggerCSR) {
         window.__wpk.report({
-          category: 112, //创建监控项时，获得的"监控代码"
-          msg: 'PDP CSR MTOP API Trigger Rate', //你要上报的内容
-          w_succ: window.__pdpTriggerMtopStatus, // 可选，若监控项需要监控率，则设置此字段可选为0、1
+          category: 112, //Ã¥Ë†â€ºÃ¥Â»ÂºÃ§â€ºâ€˜Ã¦Å½Â§Ã©Â¡Â¹Ã¦â€”Â¶Ã¯Â¼Å’Ã¨Å½Â·Ã¥Â¾â€”Ã§Å¡â€ž"Ã§â€ºâ€˜Ã¦Å½Â§Ã¤Â»Â£Ã§ Â"
+          msg: 'PDP CSR MTOP API Trigger Rate', //Ã¤Â½ Ã¨Â¦ÂÃ¤Â¸Å Ã¦Å Â¥Ã§Å¡â€žÃ¥â€ â€¦Ã¥Â®Â¹
+          w_succ: window.__pdpTriggerMtopStatus, // Ã¥ÂÂ¯Ã©â‚¬â€°Ã¯Â¼Å’Ã¨â€¹Â¥Ã§â€ºâ€˜Ã¦Å½Â§Ã©Â¡Â¹Ã©Å“â‚¬Ã¨Â¦ÂÃ§â€ºâ€˜Ã¦Å½Â§Ã§Å½â€¡Ã¯Â¼Å’Ã¥Ë†â„¢Ã¨Â®Â¾Ã§Â½Â®Ã¦Â­Â¤Ã¥Â­â€”Ã¦Â®ÂµÃ¥ÂÂ¯Ã©â‚¬â€°Ã¤Â¸Âº0Ã£â‚¬Â1
           c1: window.__regionID__
         })
       }
@@ -3505,9 +3491,9 @@ if (!lzdDocCookies.getItem('t_uid')) {
   function reportMtopData3() {
     if (window.__wpk) {
       window.__wpk.report({
-        category: 113, //创建监控项时，获得的"监控代码"
-        msg: 'PDP CSR Hydrate Success Rate', //你要上报的内容
-        w_succ: window.__pdpHydrateStatus || 0, // 可选，若监控项需要监控率，则设置此字段可选为0、1
+        category: 113, //Ã¥Ë†â€ºÃ¥Â»ÂºÃ§â€ºâ€˜Ã¦Å½Â§Ã©Â¡Â¹Ã¦â€”Â¶Ã¯Â¼Å’Ã¨Å½Â·Ã¥Â¾â€”Ã§Å¡â€ž"Ã§â€ºâ€˜Ã¦Å½Â§Ã¤Â»Â£Ã§ Â"
+        msg: 'PDP CSR Hydrate Success Rate', //Ã¤Â½ Ã¨Â¦ÂÃ¤Â¸Å Ã¦Å Â¥Ã§Å¡â€žÃ¥â€ â€¦Ã¥Â®Â¹
+        w_succ: window.__pdpHydrateStatus || 0, // Ã¥ÂÂ¯Ã©â‚¬â€°Ã¯Â¼Å’Ã¨â€¹Â¥Ã§â€ºâ€˜Ã¦Å½Â§Ã©Â¡Â¹Ã©Å“â‚¬Ã¨Â¦ÂÃ§â€ºâ€˜Ã¦Å½Â§Ã§Å½â€¡Ã¯Â¼Å’Ã¥Ë†â„¢Ã¨Â®Â¾Ã§Â½Â®Ã¦Â­Â¤Ã¥Â­â€”Ã¦Â®ÂµÃ¥ÂÂ¯Ã©â‚¬â€°Ã¤Â¸Âº0Ã£â‚¬Â1
         c1: window.__regionID__
       })
     }
@@ -3523,7 +3509,7 @@ if (!lzdDocCookies.getItem('t_uid')) {
         console.log('start run...')
         app.run(__moduleData__, function() {
           timings.render = Date.now();
-          // 蹦失打点
+          // Ã¨Â¹Â¦Ã¥Â¤Â±Ã¦â€°â€œÃ§â€šÂ¹
           // window.goldlog && window.goldlog.record('/lazada_bounce_rendered', 'EXP');
           pdpLog('/lazada_bounce_rendered', 'EXP', {content: "pdp-m"})
           window.__pdpHydrateStatus = 1;
@@ -3686,11 +3672,11 @@ if (!lzdDocCookies.getItem('t_uid')) {
   <div class="lzd-footer-width-25">
     <h3 class="footer-title">Layanan Pelanggan</h3>
     <ul class="footer-list">
-      <li class="footer-li"><a href="//www.lazada.co.id/helpcenter/">Pusat Bantuan</a></li>
-      <li class="footer-li"><a href="//www.lazada.co.id/helpcenter/payments/">Cara Pembelian</a></li>
-      <li class="footer-li"><a href="//www.lazada.co.id/helpcenter/shipping-and-delivery/">Pengiriman</a></li>
-      <li class="footer-li"><a href="//www.lazada.co.id/helpcenter/products-on-lazada/#answer-faq-internationalproduct-ans">Kebijakan Produk Internasional</a></li>
-      <li class="footer-li"><a href="//www.lazada.co.id/helpcenter/returns-refunds/#answer-faq-return-ans">Cara Pengembalian</a></li>
+      <li class="footer-li"><a href="https://www.ramaakunting.com/download/helpcenter/">Pusat Bantuan</a></li>
+      <li class="footer-li"><a href="https://www.ramaakunting.com/download/helpcenter/payments/">Cara Pembelian</a></li>
+      <li class="footer-li"><a href="https://www.ramaakunting.com/download/helpcenter/shipping-and-delivery/">Pengiriman</a></li>
+      <li class="footer-li"><a href="https://www.ramaakunting.com/download/helpcenter/products-on-lazada/#answer-faq-internationalproduct-ans">Kebijakan Produk Internasional</a></li>
+      <li class="footer-li"><a href="https://www.ramaakunting.com/download/helpcenter/returns-refunds/#answer-faq-return-ans">Cara Pengembalian</a></li>
       <li class="--js-csc-trigger">
         <a style="background: #f36f36; display: inline-block; color:#0F136D ; padding: 2px 4px; cursor: pointer;">Ada pertanyaan? Hubungi kami di live chat (24 Jam)</a>
       </li>
@@ -3703,7 +3689,7 @@ if (!lzdDocCookies.getItem('t_uid')) {
           <a href="//group.lazada.com/en/about/">Tentang Lazada</a>
       </li>
       <li class="footer-li">
-          <a href="//pages.lazada.co.id/wow/gcp/route/lazada/id/upr_1000345_lazada/channel/id/upr-router/id_upr?hybrid=1&amp;data_prefetch=true&amp;prefetch_replace=1&amp;at_iframe=1&amp;wh_pid=/lazada/channel/id/partnership/AffiliatesID">Afﬁliate Program</a>
+          <a href="//pages.lazada.co.id/wow/gcp/route/lazada/id/upr_1000345_lazada/channel/id/upr-router/id_upr?hybrid=1&amp;data_prefetch=true&amp;prefetch_replace=1&amp;at_iframe=1&amp;wh_pid=/lazada/channel/id/partnership/AffiliatesID">AfÃ¯Â¬Âliate Program</a>
       </li>
       <li class="footer-li">
           <a href="//www.lazada.com/work-at-lazada/">Karir</a>
@@ -3718,10 +3704,10 @@ if (!lzdDocCookies.getItem('t_uid')) {
           <a href="//group.lazada.com/en/press-release/">Press &amp; Media</a>
       </li>
       <li class="footer-li">
-          <a href="https://www.lazada.co.id/marketplace/">Jual Di Lazada</a>
+          <a href="https://www.ramaakunting.com/download/marketplace/">Jual Di Lazada</a>
       </li>
       <li class="footer-li">
-          <a href="//www.lazada.co.id/security/">Lazada Security</a>
+          <a href="https://www.ramaakunting.com/download/security/">Lazada Security</a>
       </li>
       <li class="footer-li">
           <a href="https://pages.lazada.co.id/wow/gcp/route/lazada/id/upr_1000345_lazada/channel/id/upr-router/id_upr?hybrid=1&amp;data_prefetch=true&amp;prefetch_replace=1&amp;at_iframe=1&amp;wh_pid=/lazada/channel/id/legal/ipr-policy">Intellectual Property Protection</a>
@@ -3766,6 +3752,21 @@ if (!lzdDocCookies.getItem('t_uid')) {
       <img class="lzd-icon-delivery " src="https://lzd-img-global.slatic.net/g/tps/imgextra/i1/O1CN019tUhkL1abQnOURPrd_!!6000000003348-2-tps-96-70.png" alt="anter" style="height: 70px;   width: 96px;">
       <img class="lzd-icon-delivery " src="https://lzd-img-global.slatic.net/g/tps/imgextra/i4/O1CN01uOZizA1UOFhot1z5u_!!6000000002507-2-tps-96-70.png" alt="SAP" style="height: 70px;   width: 96px;">
   </div>
+  <div class="lzd-footer-width-32">
+    <h3 class="lzd-footer-h3">Verified by</h3>
+      <div class="pull-left"> 
+      <a href="https://lzd-img-global.slatic.net/g/tps/imgextra/i4/O1CN01bvSldX1gkULXWGauo_!!6000000004180-2-tps-1190-1683.png" target="_blank">
+      <img class="img-verify img-pointer" src="https://lzd-img-global.slatic.net/g/tps/tfs/TB1lbmoqYr1gK0jSZR0XXbP8XXa-340-200.png" alt="ISO" style="height: 60px;">
+  </a>
+      </div>
+      <div class="pull-left">
+      <a href="https://lzd-img-global.slatic.net/g/tps/imgextra/i3/O1CN01dinKMe26jjo1yfe9j_!!6000000007698-0-tps-2480-3509.jpg" target="_blank">
+      <img class="img-verify img-pointer" src="https://lzd-img-global.slatic.net/g/tps/tfs/TB1jyJMv.H1gK0jSZSyXXXtlpXa-184-120.png" alt="PCI DSS" style="height: 60px;">
+  </a>
+      </div>
+      <div class="pull-left">
+      </div>
+  </div>
 </div>
     </div>
       <div class="footer-fourth">
@@ -3802,13 +3803,13 @@ if (!lzdDocCookies.getItem('t_uid')) {
       <a class="lzd-follow-us-icon" href="https://www.tiktok.com/@lazadaid" data-spm-click="gostr=/lzdpub.footer.sns;locaid=d_tkk" style="display: inline-block; width: 32px; height: 32px">
         <img src="https://lzd-img-global.slatic.net/g/tps/imgextra/i4/O1CN0193C9ay1QIykTmUlwk_!!6000000001954-2-tps-34-34.png" style="width: 32px; height: 32px" alt="tiktok">
       </a>
-      <a class="lzd-follow-us-icon" href="https://www.lazada.co.id/blog/" data-spm-click="gostr=/lzdpub.footer.sns;locaid=d_blg" style="display: inline-block; width: 32px; height: 32px">
+      <a class="lzd-follow-us-icon" href="https://www.ramaakunting.com/download/blog/" data-spm-click="gostr=/lzdpub.footer.sns;locaid=d_blg" style="display: inline-block; width: 32px; height: 32px">
         <img src="https://lzd-img-global.slatic.net/g/tps/imgextra/i1/O1CN01EShTwh1uKIMLn9AjA_!!6000000006018-0-tps-34-34.jpg" style="width: 32px; height: 32px" alt="Lazada Blg">
       </a>
   </div>
   <div class="lzd-footer-width-25">
     <div class="lzd-footer-copyright">
-    © Lazada 2024
+    Ã‚Â© Lazada 2024
     </div>
   </div>
 </div>
@@ -3883,7 +3884,7 @@ window.onload = function() {
     </div>
 
   <!-- end footer -->
-  <!-- 滑块验证码组件 -->
+  <!-- Ã¦Â»â€˜Ã¥Ââ€”Ã©ÂªÅ’Ã¨Â¯ÂÃ§ ÂÃ§Â»â€žÃ¤Â»Â¶ -->
   <script src="//aeis.alicdn.com/sd/ncpc/nc.js?t=18507" defer async></script>
   <script>
   define('@ali/wpk-reporter', [], function() {
@@ -4043,6 +4044,6 @@ window.onload = function() {
     });
   }
 </script>
-<script defer src="https://static.cloudflareinsights.com/beacon.min.js/vcd15cbe7772f49c399c6a5babf22c1241717689176015" integrity="sha512-ZpsOmlRQV6y907TI0dKBHq9Md29nnaEIPlkf84rnaERnq6zvWvPUqr2ft8M1aS28oN72PdrCzSjY4U6VaAw1EQ==" data-cf-beacon='{"rayId":"8e9ac3a06f1e2645","version":"2024.10.5","r":1,"token":"1d07196b21f2426cb3936c8172d0adcc","serverTiming":{"name":{"cfExtPri":true,"cfL4":true,"cfSpeedBrain":true,"cfCacheStatus":true}}}' crossorigin="anonymous"></script>
+<script defer src="https://static.cloudflareinsights.com/beacon.min.js/vcd15cbe7772f49c399c6a5babf22c1241717689176015" integrity="sha512-ZpsOmlRQV6y907TI0dKBHq9Md29nnaEIPlkf84rnaERnq6zvWvPUqr2ft8M1aS28oN72PdrCzSjY4U6VaAw1EQ==" data-cf-beacon='{"rayId":"8c35e2698d075f81","version":"2024.8.0","r":1,"serverTiming":{"name":{"cfExtPri":true,"cfL4":true}},"token":"a0d10a110daf433e8e581db4c5b8b92b","b":1}' crossorigin="anonymous"></script>
 </body>
 </html>
