@@ -8,7 +8,7 @@
 
 
 <url>
-  <loc>https://www.ramaakunting.com/</loc>
+  <loc>https://www.ramaakunting.com/download/</loc>
   <lastmod>2024-12-18T10:32:38+00:00</lastmod>
   <priority>1.00</priority>
 </url>
